@@ -24,20 +24,25 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 ## My Last Five Blog Posts
 
-<!-- BLOG-POST-LIST:START -->
+<!-- JOEHXBLOG:START -->
 - [Is Technology Accelerating? An Analysis of US Patent Records](https://www.joehxblog.com/is-technology-accelerating-an-analysis-of-us-patent-records/)
 - [July 2020 Blog Statistics](https://www.joehxblog.com/july-2020-blog-statistics/)
 - [2020 Goal Check-In](https://www.joehxblog.com/2020-goal-check-in/)
 - [June 2020 Book Reading List](https://www.joehxblog.com/june-2020-book-reading-list/)
 - [June 2020 Blog Statistics](https://www.joehxblog.com/june-2020-blog-statistics/)
-<!-- BLOG-POST-LIST:END -->
+<!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
-<!-- PUPPY-SNUGGLES-POST-LIST:START -->
+<!-- PUPPY-SNUGGLES:START -->
 - [How Slim, My Pit Mix, Finally Accepted Having His Fur Brushed](https://www.puppy-snuggles.com/blog/how-slim-my-pit-mix-finally-accepted-having-his-fur-brushed/)
 - [A Mutt Person by Nature](https://www.puppy-snuggles.com/blog/a-mutt-person-by-nature/)
 - [Rosencrantz, My First Dog](https://www.puppy-snuggles.com/blog/rosencrantz-my-first-dog/)
 - [Getting Our Mojo](https://www.puppy-snuggles.com/blog/getting-our-mojo/)
 - [Our Dog Tommy Rescues a Squirrel](https://www.puppy-snuggles.com/blog/our-dog-tommy-rescues-a-squirrel/)
-<!-- PUPPY-SNUGGLES-POST-LIST:END -->
+<!-- PUPPY-SNUGGLES:END -->
+
+## Reddit
+
+<!-- REDDIT:START -->
+<!-- REDDIT:END -->
