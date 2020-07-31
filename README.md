@@ -32,7 +32,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 - [June 2020 Blog Statistics](https://www.joehxblog.com/june-2020-blog-statistics/)
 <!-- BLOG-POST-LIST:END -->
 
-## The Last Five Blog Posts on Puppy Snuggles
+## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-POST-LIST:START -->
 - [How Slim, My Pit Mix, Finally Accepted Having His Fur Brushed](https://www.puppy-snuggles.com/blog/how-slim-my-pit-mix-finally-accepted-having-his-fur-brushed/)
