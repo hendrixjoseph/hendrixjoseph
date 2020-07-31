@@ -31,3 +31,8 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 - [June 2020 Book Reading List](https://www.joehxblog.com/june-2020-book-reading-list/)
 - [June 2020 Blog Statistics](https://www.joehxblog.com/june-2020-blog-statistics/)
 <!-- BLOG-POST-LIST:END -->
+
+## The Last Five Blog Posts on Puppy Snuggles
+
+<!-- PUPPY-SNUGGLES-POST-LIST:START -->
+<!-- PUPPY-SNUGGLES-POST-LIST:END -->
