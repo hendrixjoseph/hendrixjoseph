@@ -24,13 +24,13 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 ## JoeHx Accross the Web
 
-<a href="https://github.com/hendrixjoseph"><img alt="GitHub followers" src="https://img.shields.io/github/followers/hendrixjoseph?label=GitHub&style=for-the-badge"></a>
-<a href="https://www.reddit.com/user/joehx/"><img alt="Reddit User Karma" src="https://img.shields.io/reddit/user-karma/combined/joehx?label=Reddit&style=for-the-badge"></a>
-<img alt="Twitter Follow" src="https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge">
-<a href="https://www.facebook.com/JoeHxBlog">Facebook</a>
-<a href="https://www.linkedin.com/in/hendrix1984">LinkedIn</a>
-<a href="https://en.wikipedia.org/wiki/User:Hendrixjoseph">Wikipedia</a>
-<a href="https://www.quora.com/profile/Joseph-Hendrix">Quora</a>
+[![GitHub followers](https://img.shields.io/github/followers/hendrixjoseph?label=GitHub&style=for-the-badge)](https://github.com/hendrixjoseph)
+[![Reddit User Karma](https://img.shields.io/reddit/user-karma/combined/joehx?label=Reddit&style=for-the-badge)](https://www.reddit.com/user/joehx/)
+![Twitter Follow](https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge)
+[![Facebook](https://github.com/hendrixjoseph/hendrixjoseph/raw/master/facebook.svg)](https://www.facebook.com/JoeHxBlog)
+[![LinkedIn](https://github.com/hendrixjoseph/hendrixjoseph/raw/master/linkedin.svg)](https://www.linkedin.com/in/hendrix1984)
+[![Wikipedia](https://github.com/hendrixjoseph/hendrixjoseph/raw/master/wikipedia.svg)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
+[![Quora](https://github.com/hendrixjoseph/hendrixjoseph/raw/master/quora.svg)](https://www.quora.com/profile/Joseph-Hendrix)
 
 ## My Last Five Blog Posts
 
