@@ -22,6 +22,8 @@ For a more professional overview of me, check out both [my r&eacute;sum&eacute;]
 
 If you want to contact me, the best way is to shoot a message to me via [my Facebook page](https://www.facebook.com/JoeHxBlog/).
 
+## My Last Five Blog Posts
+
 <!-- BLOG-POST-LIST:START -->
 - [Is Technology Accelerating? An Analysis of US Patent Records](https://www.joehxblog.com/is-technology-accelerating-an-analysis-of-us-patent-records/)
 - [July 2020 Blog Statistics](https://www.joehxblog.com/july-2020-blog-statistics/)
