@@ -22,4 +22,10 @@ For a more professional overview of me, check out both [my r&eacute;sum&eacute;]
 
 If you want to contact me, the best way is to shoot a message to me via [my Facebook page](https://www.facebook.com/JoeHxBlog/).
 
-<!-- BLOG-POST-LIST:START --><!-- BLOG-POST-LIST:END -->
+<!-- BLOG-POST-LIST:START -->
+- [Is Technology Accelerating? An Analysis of US Patent Records](https://www.joehxblog.com/is-technology-accelerating-an-analysis-of-us-patent-records/)
+- [July 2020 Blog Statistics](https://www.joehxblog.com/july-2020-blog-statistics/)
+- [2020 Goal Check-In](https://www.joehxblog.com/2020-goal-check-in/)
+- [June 2020 Book Reading List](https://www.joehxblog.com/june-2020-book-reading-list/)
+- [June 2020 Blog Statistics](https://www.joehxblog.com/june-2020-blog-statistics/)
+<!-- BLOG-POST-LIST:END -->
