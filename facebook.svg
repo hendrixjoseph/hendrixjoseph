@@ -1,1 +1,7 @@
-<svg xmlns="http://www.w3.org/2000/svg" xmlns:xlink="http://www.w3.org/1999/xlink" width="134.5" height="28" ><g shape-rendering="crispEdges"><rect width="81.5" height="28" fill="#555"/><rect x="81.5" width="53" height="28" fill="#9f9f9f"/></g><g fill="#fff" text-anchor="middle" font-family="Verdana,Geneva,DejaVu Sans,sans-serif" text-rendering="geometricPrecision" font-size="100"><rect width="81.5" height="28" fill="rgba(0,0,0,0)"/><text fill="#fff" x="407.5" y="175" transform="scale(.1)" textLength="575">FACEBOOK</text><rect width="53" height="28" x="81.5" fill="rgba(0,0,0,0)"/><text fill="#fff" x="1080" y="175" font-weight="bold" transform="scale(.1)" textLength="290">143 LIKES</text></g></svg>
+<?xml version="1.0" encoding="UTF-8"?>
+<svg width="147.69" height="28" version="1.1" xmlns="http://www.w3.org/2000/svg">
+ <rect width="81.5" height="28" fill="#555" shape-rendering="crispEdges"/>
+ <rect x="81.5" width="66.189" height="28" fill="#3b5998" shape-rendering="crispEdges" stroke-width="1.1175"/>
+ <text transform="scale(.1)" x="407.5" y="175" fill="#ffffff" font-family="Verdana, Geneva, 'DejaVu Sans', sans-serif" font-size="100px" text-anchor="middle" text-rendering="geometricPrecision" textLength="575">FACEBOOK</text>
+ <text transform="scale(1.0298 .97109)" x="110.79932" y="18.020901" fill="#ffffff" font-family="Verdana, Geneva, 'DejaVu Sans', sans-serif" font-size="10.298px" font-weight="bold" stroke-width=".10298" text-anchor="middle" text-rendering="geometricPrecision">143 LIKES</text>
+</svg>
