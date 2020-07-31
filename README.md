@@ -45,4 +45,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on I hate Agile development because it's been coopted by business management , as a method to gamify software building...am I crazy?](https://www.reddit.com/r/programming/comments/hygojk/i_hate_agile_development_because_its_been_coopted/fzekiza/)
+- [/u/joehx on How to use keyword modifiers to find low competition, high traffic keywords (aka unicorn keywords)](https://www.reddit.com/r/Blogging/comments/hs7dml/how_to_use_keyword_modifiers_to_find_low/fy962em/)
+- [/u/joehx on Daily FI discussion thread - July 09, 2020](https://www.reddit.com/r/financialindependence/comments/hnz8s8/daily_fi_discussion_thread_july_09_2020/fxfboet/)
+- [/u/joehx on Daily FI discussion thread - July 09, 2020](https://www.reddit.com/r/financialindependence/comments/hnz8s8/daily_fi_discussion_thread_july_09_2020/fxfbfhz/)
+- [/u/joehx on Colleague flooding JIRA with infinite subtasks.](https://www.reddit.com/r/cscareerquestions/comments/hnirhe/colleague_flooding_jira_with_infinite_subtasks/fxcdha8/)
 <!-- REDDIT:END -->
