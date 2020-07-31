@@ -21,3 +21,5 @@ From 2009 - 2012, I blogged at a site I called [Hendrices](https://www.facebook.
 For a more professional overview of me, check out both [my r&eacute;sum&eacute;](https://www.joehxblog.com/resume/) (HTMLified) and [my LinkedIn profile](https://www.linkedin.com/in/hendrix1984/).
 
 If you want to contact me, the best way is to shoot a message to me via [my Facebook page](https://www.facebook.com/JoeHxBlog/).
+
+<!-- BLOG-POST-LIST:START --><!-- BLOG-POST-LIST:END -->
