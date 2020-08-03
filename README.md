@@ -31,6 +31,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 [![LinkedIn](https://img.shields.io/static/v1?label=LINKEDIN&message=176%20CONNECTIONS&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hendrix1984)
 [![Wikipedia](https://img.shields.io/static/v1?label=WIKIPEDIA&message=509%20EDITS&style=for-the-badge&logo=wikipedia)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
 [![Quora](https://img.shields.io/static/v1?label=QUORA&message=96%20FOLLOWERS&color=b92b27&style=for-the-badge&logo=quora&logoColor=b92b27)](https://www.quora.com/profile/Joseph-Hendrix)
+[![Number of blog posts](https://img.shields.io/endpoint?style=for-the-badge&url=https%3A%2F%2Fwww.joehxblog.com%2Fdata%2Fnumposts.json)](https://www.joehxblog.com/)
 
 ## My Last Five Blog Posts
 
