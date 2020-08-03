@@ -24,9 +24,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 ## JoeHx Accross the Web
 
-https://img.shields.io/static/v1?label=FACEBOOK&message=143%20LIKES&color=3b5998&style=for-the-badge
-
-[![GitHub followers](https://img.shields.io/github/followers/hendrixjoseph?label=GitHub&style=for-the-badge)](https://github.com/hendrixjoseph)
+[![GitHub followers](https://img.shields.io/github/followers/hendrixjoseph?label=GitHub&style=for-the-badge&logo=github)](https://github.com/hendrixjoseph)
 [![Reddit User Karma](https://img.shields.io/reddit/user-karma/combined/joehx?label=Reddit&style=for-the-badge&logo=reddit)](https://www.reddit.com/user/joehx/)
 ![Twitter Follow](https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge&logo=twitter&color=1da1f2)
 [![Facebook](https://img.shields.io/static/v1?label=FACEBOOK&message=143%20LIKES&color=3b5998&style=for-the-badge&logo=facebook)](https://www.facebook.com/JoeHxBlog)
