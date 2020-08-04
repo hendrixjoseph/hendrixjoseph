@@ -28,9 +28,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 [![Reddit User Karma](https://img.shields.io/reddit/user-karma/combined/joehx?label=Reddit&style=for-the-badge&logo=reddit)](https://www.reddit.com/user/joehx/)
 ![Twitter Follow](https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge&logo=twitter&color=1da1f2)
 [![Facebook](https://img.shields.io/static/v1?label=FACEBOOK&message=143%20LIKES&color=3b5998&style=for-the-badge&logo=facebook)](https://www.facebook.com/JoeHxBlog)
-[![LinkedIn](https://img.shields.io/static/v1?label=LINKEDIN&message=176%20CONNECTIONS&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hendrix1984)
-[![Wikipedia](https://img.shields.io/static/v1?label=WIKIPEDIA&message=509%20EDITS&style=for-the-badge&logo=wikipedia)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
-[![Quora](https://img.shields.io/static/v1?label=QUORA&message=96%20FOLLOWERS&color=b92b27&style=for-the-badge&logo=quora&logoColor=b92b27)](https://www.quora.com/profile/Joseph-Hendrix)
+[![LinkedIn](https://img.shields.io/static/v1?label=linkedin&message=176%20connections&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hendrix1984)
+[![Wikipedia](https://img.shields.io/static/v1?label=wikipedia&message=509%20edits&style=for-the-badge&logo=wikipedia)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
+[![Quora](https://img.shields.io/static/v1?label=quora&message=96%20followers&color=b92b27&style=for-the-badge&logo=quora&logoColor=b92b27)](https://www.quora.com/profile/Joseph-Hendrix)
+[![Mix](https://img.shields.io/static/v1?label=mix&message=7k%20followers&color=ff8126&style=for-the-badge&logo=mix)](https://mix.com/joehx)
 [![Number of blog posts](https://img.shields.io/endpoint?style=for-the-badge&url=https%3A%2F%2Fwww.joehxblog.com%2Fdata%2Fnumposts.json)](https://www.joehxblog.com/)
 
 ## My Last Five Blog Posts
