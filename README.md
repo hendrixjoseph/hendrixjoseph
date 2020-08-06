@@ -57,9 +57,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [finding decent articles on arXiv.org](https://www.reddit.com/r/arxiv/comments/i45no2/finding_decent_articles_on_arxivorg/)
+- [/u/joehx on Joseph Hendrix's answer to If the November 2020 US Presidential election was today who would you vote for?](https://www.reddit.com/r/GoGoJoJo/comments/i3r3wi/joseph_hendrixs_answer_to_if_the_november_2020_us/g0fwjbm/)
 - [/u/joehx on How do I respond to someone who claims the Pope is the antichrist?](https://www.reddit.com/r/Catholicism/comments/i3lhpl/how_do_i_respond_to_someone_who_claims_the_pope/g0deb4n/)
 - [Joseph Hendrix's answer to If the November 2020 US Presidential election was today who would you vote for?](https://www.reddit.com/r/JoJ2020/comments/i3r484/joseph_hendrixs_answer_to_if_the_november_2020_us/)
 - [Joseph Hendrix's answer to If the November 2020 US Presidential election was today who would you vote for?](https://www.reddit.com/r/GoGoJoJo/comments/i3r3wi/joseph_hendrixs_answer_to_if_the_november_2020_us/)
-- [/u/joehx on Just got my first full share! I love getting my gas at Kroger’s.](https://www.reddit.com/r/Bumped/comments/i37si8/just_got_my_first_full_share_i_love_getting_my/g0dcmwe/)
-- [/u/joehx on Joseph Hendrix's answer to If the November 2020 US Presidential election was today who would you vote for?](https://www.reddit.com/r/LibertarianPartyOhio/comments/i3pn33/joseph_hendrixs_answer_to_if_the_november_2020_us/g0da31v/)
 <!-- REDDIT:END -->
