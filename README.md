@@ -26,6 +26,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 [![GitHub followers](https://img.shields.io/github/followers/hendrixjoseph?label=GitHub&style=for-the-badge&logo=github)](https://github.com/hendrixjoseph)
 [![Reddit User Karma](https://img.shields.io/reddit/user-karma/combined/joehx?label=Reddit&style=for-the-badge&logo=reddit)](https://www.reddit.com/user/joehx/)
+[![Hacker News](https://img.shields.io/badge/dynamic/json?label=hacker+news&query=%24.karma&url=https%3A%2F%2Fhacker-news.firebaseio.com%2Fv0%2Fuser%2Fjoehx2.json&color=ff6600&style=for-the-badge&logo=y-combinator)](https://news.ycombinator.com/user?id=joehx2)
 ![Twitter Follow](https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge&logo=twitter&color=1da1f2)
 [![Facebook](https://img.shields.io/static/v1?label=FACEBOOK&message=143%20LIKES&color=3b5998&style=for-the-badge&logo=facebook)](https://www.facebook.com/JoeHxBlog)
 [![LinkedIn](https://img.shields.io/static/v1?label=linkedin&message=176%20connections&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hendrix1984)
