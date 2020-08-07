@@ -18,7 +18,7 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           feed_list: "https://www.puppy-snuggles.com/feed.xml"
-          comment_tag_name: "PUPPY-SNUGGLES-POST-LIST"
+          comment_tag_name: "PUPPY-SNUGGLES"
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           feed_list: "https://www.reddit.com/user/joehx/.rss"
