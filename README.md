@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Artificial Intelligence creates 3D rendering of landmarks by interpolating thousands of tourist images](https://www.reddit.com/r/computerscience/comments/i8dxzp/artificial_intelligence_creates_3d_rendering_of/g17unbd/)
 - [Increase Blog Traffic and Get More Backlinks By Sharing to this Quora Space](https://www.reddit.com/r/Blogswap/comments/i7z8u7/increase_blog_traffic_and_get_more_backlinks_by/)
 - [/u/joehx on Is vanguard incorrectly reporting a wash sale?](https://www.reddit.com/r/personalfinance/comments/i75rg2/is_vanguard_incorrectly_reporting_a_wash_sale/g10tncn/)
 - [/u/joehx on Is vanguard incorrectly reporting a wash sale?](https://www.reddit.com/r/personalfinance/comments/i75rg2/is_vanguard_incorrectly_reporting_a_wash_sale/g0zx9qy/)
 - [/u/joehx on All the best programming books, in one place.](https://www.reddit.com/r/programming/comments/i4p3k0/all_the_best_programming_books_in_one_place/g0k3dbz/)
-- [finding decent articles on arXiv.org](https://www.reddit.com/r/arxiv/comments/i45no2/finding_decent_articles_on_arxivorg/)
 <!-- REDDIT:END -->
