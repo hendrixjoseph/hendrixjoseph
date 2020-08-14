@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [I Responded to a Lottery "Scratch-Off" Mailer from a Car Dealership](https://www.joehxblog.com/i-responded-to-a-lottery-scratch-off-mailer-from-a-car-dealership/)
 - [Increase Blog Traffic and Get More Backlinks By Sharing to this Quora Space](https://www.joehxblog.com/increase-blog-traffic-and-get-more-backlinks-by-sharing-to-this-quora-space/)
 - [July 2020 Book Reading List](https://www.joehxblog.com/july-2020-book-reading-list/)
 - [Blaming Women for What They're Wearing is Wrong, Wrong, Wrong](https://www.joehxblog.com/blaming-women-for-what-theyre-wearing-is-wrong-wrong-wrong/)
 - [Is Technology Accelerating? An Analysis of US Patent Records](https://www.joehxblog.com/is-technology-accelerating-an-analysis-of-us-patent-records/)
-- [July 2020 Blog Statistics](https://www.joehxblog.com/july-2020-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
