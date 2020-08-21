@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - August 19, 2020](https://www.reddit.com/r/financialindependence/comments/icjkft/weekly_selfpromotion_thread_august_19_2020/g27qxjt/)
+- [/u/joehx on Seems we now have a better JDK documentations](https://www.reddit.com/r/java/comments/id7ih2/seems_we_now_have_a_better_jdk_documentations/g27n2p1/)
 - [/u/joehx on Artificial Intelligence creates 3D rendering of landmarks by interpolating thousands of tourist images](https://www.reddit.com/r/computerscience/comments/i8dxzp/artificial_intelligence_creates_3d_rendering_of/g17unbd/)
 - [Increase Blog Traffic and Get More Backlinks By Sharing to this Quora Space](https://www.reddit.com/r/Blogswap/comments/i7z8u7/increase_blog_traffic_and_get_more_backlinks_by/)
 - [/u/joehx on Is vanguard incorrectly reporting a wash sale?](https://www.reddit.com/r/personalfinance/comments/i75rg2/is_vanguard_incorrectly_reporting_a_wash_sale/g10tncn/)
-- [/u/joehx on Is vanguard incorrectly reporting a wash sale?](https://www.reddit.com/r/personalfinance/comments/i75rg2/is_vanguard_incorrectly_reporting_a_wash_sale/g0zx9qy/)
-- [/u/joehx on All the best programming books, in one place.](https://www.reddit.com/r/programming/comments/i4p3k0/all_the_best_programming_books_in_one_place/g0k3dbz/)
 <!-- REDDIT:END -->
