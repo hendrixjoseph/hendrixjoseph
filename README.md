@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Using a Threat Matrix for Decision Making](https://www.joehxblog.com/using-a-threat-matrix-for-decision-making/)
 - [August 2020 Blog Statistics](https://www.joehxblog.com/august-2020-blog-statistics/)
 - [3 Ways to Create New Directories in the GitHub Web Interface](https://www.joehxblog.com/3-ways-to-create-new-directories-in-the-github-web-interface/)
 - [I Responded to a Lottery "Scratch-Off" Mailer from a Car Dealership](https://www.joehxblog.com/i-responded-to-a-lottery-scratch-off-mailer-from-a-car-dealership/)
 - [Increase Blog Traffic and Get More Backlinks By Sharing to this Quora Space](https://www.joehxblog.com/increase-blog-traffic-and-get-more-backlinks-by-sharing-to-this-quora-space/)
-- [July 2020 Book Reading List](https://www.joehxblog.com/july-2020-book-reading-list/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
