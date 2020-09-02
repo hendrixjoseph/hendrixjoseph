@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [What are you having for dinner tonight?](https://www.reddit.com/r/AskReddit/comments/iksbeh/what_are_you_having_for_dinner_tonight/)
+- [What's for dinner?](https://www.reddit.com/r/AskReddit/comments/iksb13/whats_for_dinner/)
 - [/u/joehx on Weekly Self-Promotion Thread - August 26, 2020](https://www.reddit.com/r/financialindependence/comments/iguwi7/weekly_selfpromotion_thread_august_26_2020/g2xfine/)
 - [/u/joehx on Weekly Self-Promotion Thread - August 19, 2020](https://www.reddit.com/r/financialindependence/comments/icjkft/weekly_selfpromotion_thread_august_19_2020/g27qxjt/)
 - [/u/joehx on Seems we now have a better JDK documentations](https://www.reddit.com/r/java/comments/id7ih2/seems_we_now_have_a_better_jdk_documentations/g27n2p1/)
-- [/u/joehx on Artificial Intelligence creates 3D rendering of landmarks by interpolating thousands of tourist images](https://www.reddit.com/r/computerscience/comments/i8dxzp/artificial_intelligence_creates_3d_rendering_of/g17unbd/)
-- [Increase Blog Traffic and Get More Backlinks By Sharing to this Quora Space](https://www.reddit.com/r/Blogswap/comments/i7z8u7/increase_blog_traffic_and_get_more_backlinks_by/)
 <!-- REDDIT:END -->
