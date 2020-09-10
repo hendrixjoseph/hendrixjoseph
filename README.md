@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - September 09, 2020](https://www.reddit.com/r/financialindependence/comments/ipbvh4/daily_fi_discussion_thread_september_09_2020/g4jwppo/)
 - [/u/joehx on What makes you happy?](https://www.reddit.com/r/AskReddit/comments/il5o29/what_makes_you_happy/g3qyazc/)
 - [/u/joehx on Weekly Self-Promotion Thread - September 02, 2020](https://www.reddit.com/r/financialindependence/comments/il2rrm/weekly_selfpromotion_thread_september_02_2020/g3qwts0/)
 - [/u/joehx on Thrifty Thursday - share your hauls, finds, tips and tricks. - August 27](https://www.reddit.com/r/Frugal/comments/ihk6rw/thrifty_thursday_share_your_hauls_finds_tips_and/g3qttvc/)
 - [/u/joehx on Daily FI discussion thread - September 02, 2020](https://www.reddit.com/r/financialindependence/comments/il2rok/daily_fi_discussion_thread_september_02_2020/g3qq2an/)
-- [What are you having for dinner tonight?](https://www.reddit.com/r/AskReddit/comments/iksbeh/what_are_you_having_for_dinner_tonight/)
 <!-- REDDIT:END -->
