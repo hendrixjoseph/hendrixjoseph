@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Preview SVG Files in Windows Explorer with Microsoft PowerToys](https://www.joehxblog.com/preview-svg-files-in-windows-explorer-with-microsoft-powertoys/)
 - [GitHub Actions: Tag Page Generator for Jekyll Blogs](https://www.joehxblog.com/github-actions-tag-page-generator-for-jekyll-blogs/)
 - [August 2020 Book Reading List](https://www.joehxblog.com/august-2020-book-reading-list/)
 - [My First Android App: Tagger for Amazon Associates](https://www.joehxblog.com/my-first-android-app-tagger-for-amazon-associates/)
 - [Using a Threat Matrix for Decision Making](https://www.joehxblog.com/using-a-threat-matrix-for-decision-making/)
-- [August 2020 Blog Statistics](https://www.joehxblog.com/august-2020-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
