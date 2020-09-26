@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on I built a tool to increase clickthroughs when sharing posts to social](https://www.reddit.com/r/Blogging/comments/iyw8jj/i_built_a_tool_to_increase_clickthroughs_when/g6hkrge/)
 - [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: September, 2020](https://www.reddit.com/r/cscareerquestions/comments/iv1b5m/official_salary_sharing_thread_for_experienced/g67uguh/)
 - [September 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/iwjda7/september_2020_blog_statistics/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of September 14, 2020](https://www.reddit.com/r/personalfinance/comments/isitjv/weekday_help_and_victory_thread_for_the_week_of/g5gyqqa/)
 - [/u/joehx on Daily FI discussion thread - September 09, 2020](https://www.reddit.com/r/financialindependence/comments/ipbvh4/daily_fi_discussion_thread_september_09_2020/g4jwppo/)
-- [/u/joehx on What makes you happy?](https://www.reddit.com/r/AskReddit/comments/il5o29/what_makes_you_happy/g3qyazc/)
 <!-- REDDIT:END -->
