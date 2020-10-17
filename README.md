@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [I'm an AbeBooks Affiliate](https://www.joehxblog.com/im-an-abebooks-affiliate/)
 - [Where Can You Earn Better Interest Rates Now That Even High-Yield Savings Account Rates are Low?](https://www.joehxblog.com/where-can-you-earn-better-interest-rates-than-savings-account/)
 - [September 2020 Book Reading List](https://www.joehxblog.com/september-2020-book-reading-list/)
 - [A Not-So-Surprise Hot Air Balloon Ride Belated Birthday Present](https://www.joehxblog.com/a-not-so-surprise-hot-air-balloon-ride-belated-birthday-present/)
 - [September 2020 Blog Statistics](https://www.joehxblog.com/september-2020-blog-statistics/)
-- [Preview SVG Files in Windows Explorer with Microsoft PowerToys](https://www.joehxblog.com/preview-svg-files-in-windows-explorer-with-microsoft-powertoys/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
