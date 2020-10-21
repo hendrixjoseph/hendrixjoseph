@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [October 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/jeups6/october_2020_blog_statistics/)
 - [Jack-o-Lanterns](https://www.reddit.com/r/u_joehx/comments/je7bxx/jackolanterns/)
 - [Me and My Dog Max During the COVID-19 Pandemic](https://www.reddit.com/r/u_joehx/comments/jcdwhn/me_and_my_dog_max_during_the_covid19_pandemic/)
 - [/u/joehx on Weekly Self-Promotion Thread - October 07, 2020](https://www.reddit.com/r/financialindependence/comments/j6n0o8/weekly_selfpromotion_thread_october_07_2020/g80f2oq/)
 - [/u/joehx on Chase Freedom Flex - gas included in grocery?](https://www.reddit.com/r/CreditCards/comments/j6rj9t/chase_freedom_flex_gas_included_in_grocery/g80exda/)
-- [/u/joehx on Chase Freedom Flex - gas included in grocery?](https://www.reddit.com/r/CreditCards/comments/j6rj9t/chase_freedom_flex_gas_included_in_grocery/g80asa5/)
 <!-- REDDIT:END -->
