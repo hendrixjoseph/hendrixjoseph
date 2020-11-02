@@ -18,7 +18,7 @@ Today, I program in Java during the day. Sometimes at night, too.
 
 From 2009 - 2012, I blogged at a site I called [Hendrices](https://www.facebook.com/Hendricescom/) - which is a pluralization of my last name. You can view [parts of the site in the WayBack Machine](https://web.archive.org/web/20090731115109/http://www.hendrices.com/). I now blog at [JoeHx Blog](https://www.joehxblog.com/).
 
-For a more professional overview of me, check out both [my r&eacute;sum&eacute;](https://www.joehxblog.com/resume/) (HTMLified) and [my LinkedIn profile](https://www.linkedin.com/in/hendrix1984/).
+For a more professional overview of me, check out both [my r&eacute;sum&eacute;](https://www.joehxblog.com/resume/) (HTMLified) and [my LinkedIn profile](https://www.linkedin.com/in/joehx/).
 
 If you want to contact me, the best way is to shoot a message to me via [my Facebook page](https://www.facebook.com/JoeHxBlog/).
 
@@ -29,7 +29,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 [![Hacker News](https://img.shields.io/badge/dynamic/json?label=hacker+news&query=%24.karma&url=https%3A%2F%2Fhacker-news.firebaseio.com%2Fv0%2Fuser%2Fjoehx2.json&color=ff6600&style=for-the-badge&logo=y-combinator)](https://news.ycombinator.com/user?id=joehx2)
 ![Twitter Follow](https://img.shields.io/twitter/follow/JoeHxBlog?label=Twitter&style=for-the-badge&logo=twitter&color=1da1f2)
 [![Facebook](https://img.shields.io/static/v1?label=FACEBOOK&message=143%20LIKES&color=3b5998&style=for-the-badge&logo=facebook)](https://www.facebook.com/JoeHxBlog)
-[![LinkedIn](https://img.shields.io/static/v1?label=linkedin&message=177%20connections&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/hendrix1984)
+[![LinkedIn](https://img.shields.io/static/v1?label=linkedin&message=177%20connections&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/joehx)
 [![Wikipedia](https://img.shields.io/badge/dynamic/xml?label=wikipedia&query=%2F%2F%2A%5B%40id%3D%22general-stats%22%5D%2Fdiv%2Fdiv%2Fdiv%5B1%5D%2Ftable%2Ftbody%2Ftr%5B11%5D%2Ftd%5B2%5D%2Fstrong&suffix=%20edits&url=https%3A%2F%2Fxtools.wmflabs.org%2Fec%2Fen.wikipedia.org%2FHendrixjoseph&style=for-the-badge&logo=wikipedia&color=9f9f9f)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
 [![Quora](https://img.shields.io/static/v1?label=quora&message=100%20followers&color=b92b27&style=for-the-badge&logo=quora&logoColor=b92b27)](https://www.quora.com/profile/Joseph-Hendrix)
 [![Mix](https://img.shields.io/badge/dynamic/xml?color=ff8126&label=mix&query=%2F%2F%2A%5B%40id%3D%22root%22%5D%2Fdiv%2Fdiv%2Fdiv%5B2%5D%2Fdiv%5B1%5D%2Fdiv%5B2%5D%2Fdiv%5B2%5D%2Fdiv%5B1%5D%2Fa%5B1%5D%2Fspan&suffix=%20followers&url=https%3A%2F%2Fmix.com%2Fjoehx&style=for-the-badge&logo=mix)](https://mix.com/joehx)
