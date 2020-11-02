@@ -38,29 +38,29 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [October 2020 Blog Statistics](https://www.joehxblog.com/october-2020-blog-statistics/)
+- [Jack-o-Lanterns](https://www.joehxblog.com/jack-o-lanterns/)
+- [I'm an AbeBooks Affiliate](https://www.joehxblog.com/im-an-abebooks-affiliate/)
+- [Where Can You Earn Better Interest Rates Now That Even High-Yield Savings Account Rates are Low?](https://www.joehxblog.com/where-can-you-earn-better-interest-rates-than-savings-account/)
 - [September 2020 Book Reading List](https://www.joehxblog.com/september-2020-book-reading-list/)
-- [A Not-So-Surprise Hot Air Balloon Ride Belated Birthday Present](https://www.joehxblog.com/a-not-so-surprise-hot-air-balloon-ride-belated-birthday-present/)
-- [September 2020 Blog Statistics](https://www.joehxblog.com/september-2020-blog-statistics/)
-- [Preview SVG Files in Windows Explorer with Microsoft PowerToys](https://www.joehxblog.com/preview-svg-files-in-windows-explorer-with-microsoft-powertoys/)
-- [GitHub Actions: Tag Page Generator for Jekyll Blogs](https://www.joehxblog.com/github-actions-tag-page-generator-for-jekyll-blogs/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES:START -->
+- [Me and My Dog Max During the COVID-19 Pandemic](https://www.puppy-snuggles.com/blog/me-and-my-dog-max-during-the-covid-19-pandemic/)
 - [How Slim, My Pit Mix, Finally Accepted Having His Fur Brushed](https://www.puppy-snuggles.com/blog/how-slim-my-pit-mix-finally-accepted-having-his-fur-brushed/)
 - [A Mutt Person by Nature](https://www.puppy-snuggles.com/blog/a-mutt-person-by-nature/)
 - [Rosencrantz, My First Dog](https://www.puppy-snuggles.com/blog/rosencrantz-my-first-dog/)
 - [Getting Our Mojo](https://www.puppy-snuggles.com/blog/getting-our-mojo/)
-- [Our Dog Tommy Rescues a Squirrel](https://www.puppy-snuggles.com/blog/our-dog-tommy-rescues-a-squirrel/)
 <!-- PUPPY-SNUGGLES:END -->
 
 ## Reddit
 
 <!-- REDDIT:START -->
-- [September 2020 Book Reading List](https://www.reddit.com/r/Blogswap/comments/j3zcx8/september_2020_book_reading_list/)
-- [/u/joehx on Daily FI discussion thread - September 29, 2020](https://www.reddit.com/r/financialindependence/comments/j1v1f4/daily_fi_discussion_thread_september_29_2020/g72gs4k/)
-- [A Not-So-Surprise Hot Air Balloon Ride Belated Birthday Present](https://www.reddit.com/r/u_joehx/comments/j1kamq/a_notsosurprise_hot_air_balloon_ride_belated/)
-- [/u/joehx on I built a tool to increase clickthroughs when sharing posts to social](https://www.reddit.com/r/Blogging/comments/iyw8jj/i_built_a_tool_to_increase_clickthroughs_when/g6hkrge/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: September, 2020](https://www.reddit.com/r/cscareerquestions/comments/iv1b5m/official_salary_sharing_thread_for_experienced/g67uguh/)
+- [/u/joehx on 401K Investment Choices](https://www.reddit.com/r/personalfinance/comments/jkx51w/401k_investment_choices/galnmyq/)
+- [/u/joehx on Fix, or Toss? The ‘Right to Repair’ Movement Gains Ground](https://www.reddit.com/r/Frugal/comments/jj7g5p/fix_or_toss_the_right_to_repair_movement_gains/gadrv67/)
+- [/u/joehx on Weekly Self-Promotion Thread - October 21, 2020](https://www.reddit.com/r/financialindependence/comments/jf8skv/weekly_selfpromotion_thread_october_21_2020/g9jku8h/)
+- [October 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/jeups6/october_2020_blog_statistics/)
+- [Jack-o-Lanterns](https://www.reddit.com/r/u_joehx/comments/je7bxx/jackolanterns/)
 <!-- REDDIT:END -->
