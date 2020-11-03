@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [October 2020 Book Reading List](https://www.reddit.com/r/u_joehx/comments/jmv6zu/october_2020_book_reading_list/)
+- [What are some animals out there that do things that make you think "WTF, I didn't even think that was possible!"?](https://www.reddit.com/r/AskReddit/comments/jmr85u/what_are_some_animals_out_there_that_do_things/)
 - [/u/joehx on 401K Investment Choices](https://www.reddit.com/r/personalfinance/comments/jkx51w/401k_investment_choices/galnmyq/)
 - [/u/joehx on Fix, or Toss? The ‘Right to Repair’ Movement Gains Ground](https://www.reddit.com/r/Frugal/comments/jj7g5p/fix_or_toss_the_right_to_repair_movement_gains/gadrv67/)
 - [/u/joehx on Weekly Self-Promotion Thread - October 21, 2020](https://www.reddit.com/r/financialindependence/comments/jf8skv/weekly_selfpromotion_thread_october_21_2020/g9jku8h/)
-- [October 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/jeups6/october_2020_blog_statistics/)
-- [Jack-o-Lanterns](https://www.reddit.com/r/u_joehx/comments/je7bxx/jackolanterns/)
 <!-- REDDIT:END -->
