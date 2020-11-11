@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Time as Distance](https://www.reddit.com/r/u_joehx/comments/jru10s/time_as_distance/)
 - [/u/joehx on Weekly Self-Promotion Thread - November 04, 2020](https://www.reddit.com/r/financialindependence/comments/jnswtf/weekly_selfpromotion_thread_november_04_2020/gbch9yf/)
 - [/u/joehx on Daily FI discussion thread - November 03, 2020](https://www.reddit.com/r/financialindependence/comments/jn6jr7/daily_fi_discussion_thread_november_03_2020/gb0yl4r/)
 - [October 2020 Book Reading List](https://www.reddit.com/r/u_joehx/comments/jmv6zu/october_2020_book_reading_list/)
 - [What are some animals out there that do things that make you think "WTF, I didn't even think that was possible!"?](https://www.reddit.com/r/AskReddit/comments/jmr85u/what_are_some_animals_out_there_that_do_things/)
-- [/u/joehx on 401K Investment Choices](https://www.reddit.com/r/personalfinance/comments/jkx51w/401k_investment_choices/galnmyq/)
 <!-- REDDIT:END -->
