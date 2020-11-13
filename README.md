@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [fast.ia ModuleNotFoundError in Google Colab](https://www.joehxblog.com/fast.ia-modulenotfounderror-in-google-colab/)
 - [Time as Distance](https://www.joehxblog.com/time-as-distance/)
 - [October 2020 Book Reading List](https://www.joehxblog.com/october-2020-book-reading-list/)
 - [October 2020 Blog Statistics](https://www.joehxblog.com/october-2020-blog-statistics/)
 - [Jack-o-Lanterns](https://www.joehxblog.com/jack-o-lanterns/)
-- [I'm an AbeBooks Affiliate](https://www.joehxblog.com/im-an-abebooks-affiliate/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
