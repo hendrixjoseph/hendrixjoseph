@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [November 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/jxvhdr/november_2020_blog_statistics/)
 - [/u/joehx on Daily FI discussion thread - November 18, 2020](https://www.reddit.com/r/financialindependence/comments/jwbxfl/daily_fi_discussion_thread_november_18_2020/gcq2yc3/)
 - [fast.ia ModuleNotFoundError in Google Colab](https://www.reddit.com/r/u_joehx/comments/jt3ojo/fastia_modulenotfounderror_in_google_colab/)
 - [Time as Distance](https://www.reddit.com/r/u_joehx/comments/jru10s/time_as_distance/)
 - [/u/joehx on Weekly Self-Promotion Thread - November 04, 2020](https://www.reddit.com/r/financialindependence/comments/jnswtf/weekly_selfpromotion_thread_november_04_2020/gbch9yf/)
-- [/u/joehx on Daily FI discussion thread - November 03, 2020](https://www.reddit.com/r/financialindependence/comments/jn6jr7/daily_fi_discussion_thread_november_03_2020/gb0yl4r/)
 <!-- REDDIT:END -->
