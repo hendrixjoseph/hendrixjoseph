@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [November 2020 Book Reading List](https://www.reddit.com/r/u_joehx/comments/k6us4w/november_2020_book_reading_list/)
 - [/u/joehx on Vanguard - How America Invests 2020](https://www.reddit.com/r/financialindependence/comments/k60cbv/vanguard_how_america_invests_2020/geiu0px/)
 - [My GitHub Game Off 2020 Entry](https://www.reddit.com/r/u_joehx/comments/k4tubr/my_github_game_off_2020_entry/)
 - [/u/joehx on I made a Twitter account that posts reverse splits that round up fractional shares. Scoop up small, easy gains!](https://www.reddit.com/r/RobinHood/comments/k4ox7w/i_made_a_twitter_account_that_posts_reverse/geabpc5/)
 - [November 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/jxvhdr/november_2020_blog_statistics/)
-- [/u/joehx on Daily FI discussion thread - November 18, 2020](https://www.reddit.com/r/financialindependence/comments/jwbxfl/daily_fi_discussion_thread_november_18_2020/gcq2yc3/)
 <!-- REDDIT:END -->
