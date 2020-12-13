@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [There are No Neutral Laws](https://www.reddit.com/r/u_joehx/comments/kbgawt/there_are_no_neutral_laws/)
 - [/u/joehx on Episode Discussion | Star Trek: Discovery | 3x09 "Terra Firma, Part 1"](https://www.reddit.com/r/startrek/comments/kaao7f/episode_discussion_star_trek_discovery_3x09_terra/gfbkr2q/)
 - [/u/joehx on Daily Chat Thread - December 10, 2020](https://www.reddit.com/r/cscareerquestions/comments/kabfxt/daily_chat_thread_december_10_2020/gf9xcye/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of December 07, 2020](https://www.reddit.com/r/personalfinance/comments/k8el38/weekday_help_and_victory_thread_for_the_week_of/gf6echm/)
 - [/u/joehx on People with the last name Pepper who have doctorate degrees, what is your experience introducing yourself to people and do you wish you could change your name?](https://www.reddit.com/r/AskReddit/comments/k8w43d/people_with_the_last_name_pepper_who_have/gf4lylr/)
-- [/u/joehx on What is clearly a scam but is so normalized people don’t notice?](https://www.reddit.com/r/AskReddit/comments/k96kun/what_is_clearly_a_scam_but_is_so_normalized/gf4l7gn/)
 <!-- REDDIT:END -->
