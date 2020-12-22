@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on levels.fyi - End of Year Pay Report 2020](https://www.reddit.com/r/cscareerquestions/comments/kh389q/levelsfyi_end_of_year_pay_report_2020/gglevlg/)
 - [December 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/kh0156/december_2020_blog_statistics/)
 - [Moving My Stocks From Bumped to Robinhood in Five Days (Manually)](https://www.reddit.com/r/u_joehx/comments/kf6lim/moving_my_stocks_from_bumped_to_robinhood_in_five/)
 - [2020 End of Year Side Income Report](https://www.reddit.com/r/u_joehx/comments/keb6gf/2020_end_of_year_side_income_report/)
 - [/u/joehx on Weekly Self-Promotion Thread - December 16, 2020](https://www.reddit.com/r/financialindependence/comments/ke57st/weekly_selfpromotion_thread_december_16_2020/gg1crmo/)
-- [There are No Neutral Laws](https://www.reddit.com/r/u_joehx/comments/kbgawt/there_are_no_neutral_laws/)
 <!-- REDDIT:END -->
