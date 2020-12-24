@@ -48,11 +48,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES:START -->
+- [Waiting for Santa like...](https://www.puppy-snuggles.com/blog/waiting-for-santa-like/)
 - [Me and My Dog Max During the COVID-19 Pandemic](https://www.puppy-snuggles.com/blog/me-and-my-dog-max-during-the-covid-19-pandemic/)
 - [How Slim, My Pit Mix, Finally Accepted Having His Fur Brushed](https://www.puppy-snuggles.com/blog/how-slim-my-pit-mix-finally-accepted-having-his-fur-brushed/)
 - [A Mutt Person by Nature](https://www.puppy-snuggles.com/blog/a-mutt-person-by-nature/)
 - [Rosencrantz, My First Dog](https://www.puppy-snuggles.com/blog/rosencrantz-my-first-dog/)
-- [Getting Our Mojo](https://www.puppy-snuggles.com/blog/getting-our-mojo/)
 <!-- PUPPY-SNUGGLES:END -->
 
 ## Reddit
