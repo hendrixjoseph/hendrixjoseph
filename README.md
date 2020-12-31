@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - December 30, 2020](https://www.reddit.com/r/financialindependence/comments/kmy7l7/weekly_selfpromotion_thread_december_30_2020/ghi5sfb/)
+- [/u/joehx on Anyone else got tired of "self-taught developers" who think they are engineers after completing 6 weeks Javascript course?](https://www.reddit.com/r/cscareerquestions/comments/kn2hfu/anyone_else_got_tired_of_selftaught_developers/ghi44wn/)
 - [Meeting My Fitness Goal in 2020](https://www.reddit.com/r/u_joehx/comments/km4xsw/meeting_my_fitness_goal_in_2020/)
 - [Waiting for Santa like...](https://www.reddit.com/r/dogpictures/comments/kj08x6/waiting_for_santa_like/)
 - [/u/joehx on Weekly Self-Promotion Thread - December 23, 2020](https://www.reddit.com/r/financialindependence/comments/kip4lb/weekly_selfpromotion_thread_december_23_2020/ggt1lt8/)
-- [/u/joehx on levels.fyi - End of Year Pay Report 2020](https://www.reddit.com/r/cscareerquestions/comments/kh389q/levelsfyi_end_of_year_pay_report_2020/gglevlg/)
-- [December 2020 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/kh0156/december_2020_blog_statistics/)
 <!-- REDDIT:END -->
