@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What do you own a ridiculous amount of?](https://www.reddit.com/r/AskReddit/comments/kqzuxj/what_do_you_own_a_ridiculous_amount_of/gi877ss/)
+- [Decoupling My Commenting System from jQuery](https://www.reddit.com/r/u_joehx/comments/kr7wtu/decoupling_my_commenting_system_from_jquery/)
+- [/u/joehx on Someone please explain the data shown in the last episode](https://www.reddit.com/r/startrek/comments/kqnuu1/someone_please_explain_the_data_shown_in_the_last/gi4wlqb/)
 - [/u/joehx on Weekly Self-Promotion Thread - December 30, 2020](https://www.reddit.com/r/financialindependence/comments/kmy7l7/weekly_selfpromotion_thread_december_30_2020/ghi5sfb/)
 - [/u/joehx on Anyone else got tired of "self-taught developers" who think they are engineers after completing 6 weeks Javascript course?](https://www.reddit.com/r/cscareerquestions/comments/kn2hfu/anyone_else_got_tired_of_selftaught_developers/ghi44wn/)
-- [Meeting My Fitness Goal in 2020](https://www.reddit.com/r/u_joehx/comments/km4xsw/meeting_my_fitness_goal_in_2020/)
-- [Waiting for Santa like...](https://www.reddit.com/r/dogpictures/comments/kj08x6/waiting_for_santa_like/)
-- [/u/joehx on Weekly Self-Promotion Thread - December 23, 2020](https://www.reddit.com/r/financialindependence/comments/kip4lb/weekly_selfpromotion_thread_december_23_2020/ggt1lt8/)
 <!-- REDDIT:END -->
