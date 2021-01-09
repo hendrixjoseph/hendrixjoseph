@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly FI Frugal Friday thread - January 08, 2021](https://www.reddit.com/r/financialindependence/comments/kszjn9/weekly_fi_frugal_friday_thread_january_08_2021/gijw2s4/)
+- [If you're having trouble logging into WPCU's website this morning, it's not just you.](https://www.reddit.com/r/dayton/comments/kt4ith/if_youre_having_trouble_logging_into_wpcus/)
 - [/u/joehx on Daily FI discussion thread - Thursday, January 07, 2021](https://www.reddit.com/r/financialindependence/comments/ksaau7/daily_fi_discussion_thread_thursday_january_07/gifi8xk/)
 - [/u/joehx on Actual size is not the actual size](https://www.reddit.com/r/CrappyDesign/comments/krp2x4/actual_size_is_not_the_actual_size/gid5jqx/)
 - [/u/joehx on What do you own a ridiculous amount of?](https://www.reddit.com/r/AskReddit/comments/kqzuxj/what_do_you_own_a_ridiculous_amount_of/gi877ss/)
-- [Decoupling My Commenting System from jQuery](https://www.reddit.com/r/u_joehx/comments/kr7wtu/decoupling_my_commenting_system_from_jquery/)
-- [/u/joehx on Someone please explain the data shown in the last episode](https://www.reddit.com/r/startrek/comments/kqnuu1/someone_please_explain_the_data_shown_in_the_last/gi4wlqb/)
 <!-- REDDIT:END -->
