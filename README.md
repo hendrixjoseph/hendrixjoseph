@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [What is awesome / what do you like about the city or community that you live in?](https://www.reddit.com/r/AskReddit/comments/kwj1oc/what_is_awesome_what_do_you_like_about_the_city/)
 - [/u/joehx on Coronavirus Megathread Update (January, 2021)](https://www.reddit.com/r/personalfinance/comments/kq1a25/coronavirus_megathread_update_january_2021/gj08d0t/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 12, 2021](https://www.reddit.com/r/financialindependence/comments/kvotr9/daily_fi_discussion_thread_tuesday_january_12_2021/gj07rz0/)
 - [/u/joehx on What are your favorite FI-related podcasts?](https://www.reddit.com/r/financialindependence/comments/kvsyyi/what_are_your_favorite_firelated_podcasts/gj06v6j/)
 - [/u/joehx on Weekly FI Frugal Friday thread - January 08, 2021](https://www.reddit.com/r/financialindependence/comments/kszjn9/weekly_fi_frugal_friday_thread_january_08_2021/gijw2s4/)
-- [If you're having trouble logging into WPCU's website this morning, it's not just you.](https://www.reddit.com/r/dayton/comments/kt4ith/if_youre_having_trouble_logging_into_wpcus/)
 <!-- REDDIT:END -->
