@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gkur7xm/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gkuqw47/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gku9qu7/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gku9fl3/)
 - [January 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/l1gg74/january_2021_blog_statistics/)
-- [/u/joehx on A bag of apples with a character on it that got poisoned by an apple](https://www.reddit.com/r/CrappyDesign/comments/l16x27/a_bag_of_apples_with_a_character_on_it_that_got/gjyiprp/)
-- [/u/joehx on Weekly Self-Promotion Thread - January 20, 2021](https://www.reddit.com/r/financialindependence/comments/l168pa/weekly_selfpromotion_thread_january_20_2021/gjy80a0/)
-- [2020 Goals & Accomplishments](https://www.reddit.com/r/u_joehx/comments/kxc29o/2020_goals_accomplishments/)
-- [What is awesome / what do you like about the city or community that you live in?](https://www.reddit.com/r/AskReddit/comments/kwj1oc/what_is_awesome_what_do_you_like_about_the_city/)
 <!-- REDDIT:END -->
