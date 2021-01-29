@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on what is the coolest useless skill you have?](https://www.reddit.com/r/AskReddit/comments/l6umua/what_is_the_coolest_useless_skill_you_have/gl4l0rm/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gkur7xm/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gkuqw47/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gku9qu7/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gku9fl3/)
-- [January 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/l1gg74/january_2021_blog_statistics/)
 <!-- REDDIT:END -->
