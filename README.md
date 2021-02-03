@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [January 2021 Book Reading List](https://www.joehxblog.com/january-2021-book-reading-list/)
 - [January 2021 Blog Statistics](https://www.joehxblog.com/january-2021-blog-statistics/)
 - [2021 New Year's Resolutions & Goals](https://www.joehxblog.com/2021-new-years-resolutions-goals/)
 - [2020 Goals & Accomplishments](https://www.joehxblog.com/2020-goals-accomplishments/)
 - [Petitioning During the Pandemic for a Seat on City Council](https://www.joehxblog.com/petitioning-during-the-pandemic-for-a-seat-on-city-council/)
-- [Decoupling My Commenting System from jQuery](https://www.joehxblog.com/decoupling-my-commenting-system-from-jquery/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
