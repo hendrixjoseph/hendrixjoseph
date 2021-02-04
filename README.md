@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [January 2021 Book Reading List](https://www.reddit.com/r/u_joehx/comments/lb7vmh/january_2021_book_reading_list/)
-- [/u/joehx on 2021 Coinbase Referral Thread - I Noticed there hasn't been a proper referral thread in a few years, and since crypto is at an all time high it's time we start a new one with fresh links! -](https://www.reddit.com/r/CoinBase/comments/l9y1xg/2021_coinbase_referral_thread_i_noticed_there/gls8220/)
-- [/u/joehx on Final Fantasy 7 came 24 years ago today. 🤯](https://www.reddit.com/r/gaming/comments/l9fri1/final_fantasy_7_came_24_years_ago_today/gljklhj/)
-- [/u/joehx on what is the coolest useless skill you have?](https://www.reddit.com/r/AskReddit/comments/l6umua/what_is_the_coolest_useless_skill_you_have/gl4l0rm/)
-- [/u/joehx on Daily FI discussion thread - Tuesday, January 26, 2021](https://www.reddit.com/r/financialindependence/comments/l5b07t/daily_fi_discussion_thread_tuesday_january_26_2021/gkur7xm/)
+- [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww5kv/)
+- [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww15o/)
+- [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glwnu8q/)
+- [/u/joehx on Weekly Self-Promotion Thread - February 03, 2021](https://www.reddit.com/r/financialindependence/comments/lbkcmn/weekly_selfpromotion_thread_february_03_2021/glv5yuv/)
+- [/u/joehx on Best java IDE to use](https://www.reddit.com/r/java/comments/lbmfbm/best_java_ide_to_use/glv4qo3/)
 <!-- REDDIT:END -->
