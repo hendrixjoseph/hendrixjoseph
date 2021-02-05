@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glxmwhs/)
 - [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww5kv/)
 - [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww15o/)
 - [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glwnu8q/)
 - [/u/joehx on Weekly Self-Promotion Thread - February 03, 2021](https://www.reddit.com/r/financialindependence/comments/lbkcmn/weekly_selfpromotion_thread_february_03_2021/glv5yuv/)
-- [/u/joehx on Best java IDE to use](https://www.reddit.com/r/java/comments/lbmfbm/best_java_ide_to_use/glv4qo3/)
 <!-- REDDIT:END -->
