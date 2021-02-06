@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on use case for Java Streams...](https://www.reddit.com/r/java/comments/ld3f83/use_case_for_java_streams/gm4ggf3/)
+- [The Rules for Calorie Content on Nutrition Labels - And Why You'll Never See 107 Calories Per Serving](https://www.reddit.com/r/u_joehx/comments/ld9awp/the_rules_for_calorie_content_on_nutrition_labels/)
 - [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glxmwhs/)
 - [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww5kv/)
 - [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww15o/)
-- [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glwnu8q/)
-- [/u/joehx on Weekly Self-Promotion Thread - February 03, 2021](https://www.reddit.com/r/financialindependence/comments/lbkcmn/weekly_selfpromotion_thread_february_03_2021/glv5yuv/)
 <!-- REDDIT:END -->
