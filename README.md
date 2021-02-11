@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - February 10, 2021](https://www.reddit.com/r/financialindependence/comments/lgqj0j/weekly_selfpromotion_thread_february_10_2021/gmuasnu/)
+- [/u/joehx on 1099-MISC on a clawed back brokerage bonus - how should I report taxes?](https://www.reddit.com/r/personalfinance/comments/lgueuc/1099misc_on_a_clawed_back_brokerage_bonus_how/gmtqj41/)
 - [/u/joehx on use case for Java Streams...](https://www.reddit.com/r/java/comments/ld3f83/use_case_for_java_streams/gm4ggf3/)
 - [The Rules for Calorie Content on Nutrition Labels - And Why You'll Never See 107 Calories Per Serving](https://www.reddit.com/r/u_joehx/comments/ld9awp/the_rules_for_calorie_content_on_nutrition_labels/)
 - [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glxmwhs/)
-- [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww5kv/)
-- [/u/joehx on What common product has a feature you’re not sure everyone is aware of?](https://www.reddit.com/r/AskReddit/comments/lbfk4b/what_common_product_has_a_feature_youre_not_sure/glww15o/)
 <!-- REDDIT:END -->
