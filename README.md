@@ -58,9 +58,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Weekly Self-Promotion Thread - February 10, 2021](https://www.reddit.com/r/financialindependence/comments/lgqj0j/weekly_selfpromotion_thread_february_10_2021/gmuasnu/)
-- [/u/joehx on 1099-MISC on a clawed back brokerage bonus - how should I report taxes?](https://www.reddit.com/r/personalfinance/comments/lgueuc/1099misc_on_a_clawed_back_brokerage_bonus_how/gmtqj41/)
-- [/u/joehx on use case for Java Streams...](https://www.reddit.com/r/java/comments/ld3f83/use_case_for_java_streams/gm4ggf3/)
-- [The Rules for Calorie Content on Nutrition Labels - And Why You'll Never See 107 Calories Per Serving](https://www.reddit.com/r/u_joehx/comments/ld9awp/the_rules_for_calorie_content_on_nutrition_labels/)
-- [/u/joehx on Does anyone have experience selling vectors?](https://www.reddit.com/r/passive_income/comments/lbrk1t/does_anyone_have_experience_selling_vectors/glxmwhs/)
+- [/u/joehx on If you can take a pill in replace of a meal, what would you do with the money saved from buying food?](https://www.reddit.com/r/AskReddit/comments/llef2y/if_you_can_take_a_pill_in_replace_of_a_meal_what/gnoz8p7/)
+- [/u/joehx on The 2021 Tax Season is Upon Us!](https://www.reddit.com/r/RobinHood/comments/lkup5p/the_2021_tax_season_is_upon_us/gnnq9iw/)
+- [/u/joehx on What subreddits you should NEVER visit?](https://www.reddit.com/r/AskReddit/comments/ll1187/what_subreddits_you_should_never_visit/gnnpgu3/)
+- [How is everyone keeping warm today?](https://www.reddit.com/r/AskReddit/comments/ll6tzu/how_is_everyone_keeping_warm_today/)
+- [/u/joehx on The 2021 Tax Season is Upon Us!](https://www.reddit.com/r/RobinHood/comments/lkup5p/the_2021_tax_season_is_upon_us/gnno03m/)
 <!-- REDDIT:END -->
