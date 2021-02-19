@@ -55,6 +55,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 - [How Slim, My Pit Mix, Finally Accepted Having His Fur Brushed](https://www.puppy-snuggles.com/blog/how-slim-my-pit-mix-finally-accepted-having-his-fur-brushed/)
 <!-- PUPPY-SNUGGLES:END -->
 
+## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
+
+<!-- PUPPY-SNUGGLES-NEWS:START -->
+<!-- PUPPY-SNUGGLES-NEWS:END -->
+
 ## Reddit
 
 <!-- REDDIT:START -->
