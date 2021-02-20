@@ -58,6 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Employee of the month](https://news.puppy-snuggles.com/4245386/employee-of-the-month)
+- [A very handsome boy:)](https://news.puppy-snuggles.com/4245382/a-very-handsome-boy)
+- [German Shepherd (Ronin) enjoying the snow in Texas.](https://news.puppy-snuggles.com/4245381/german-shepherd-ronin-enjoying-the-snow-in-texas)
+- [You have been away from me for two months, thank you for 12 years of company.](https://news.puppy-snuggles.com/4245380/you-have-been-away-from-me-for-two-months-thank-you-for-12-years-of-company)
+- [Otis - just home from the shelter. He's a small boi. For now.](https://news.puppy-snuggles.com/4245378/otis-just-home-from-the-shelter-hes-a-small-boi-for-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
