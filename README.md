@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [February 2021 Blog Statistics](https://www.joehxblog.com/february-2021-blog-statistics/)
 - [The Rules for Calorie Content on Nutrition Labels - And Why You'll Never See 107 Calories Per Serving](https://www.joehxblog.com/the-rules-for-calorie-content-on-nutrition-labels/)
 - [January 2021 Book Reading List](https://www.joehxblog.com/january-2021-book-reading-list/)
 - [January 2021 Blog Statistics](https://www.joehxblog.com/january-2021-blog-statistics/)
 - [2021 New Year's Resolutions & Goals](https://www.joehxblog.com/2021-new-years-resolutions-goals/)
-- [2020 Goals & Accomplishments](https://www.joehxblog.com/2020-goals-accomplishments/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
