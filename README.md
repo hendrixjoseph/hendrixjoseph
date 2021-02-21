@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [February 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/log70j/february_2021_blog_statistics/)
 - [/u/joehx on uh it's called guerilla networking sweaty, totally fair game](https://www.reddit.com/r/recruitinghell/comments/llb0a8/uh_its_called_guerilla_networking_sweaty_totally/gnptcpm/)
 - [/u/joehx on If you can take a pill in replace of a meal, what would you do with the money saved from buying food?](https://www.reddit.com/r/AskReddit/comments/llef2y/if_you_can_take_a_pill_in_replace_of_a_meal_what/gnoz8p7/)
 - [/u/joehx on The 2021 Tax Season is Upon Us!](https://www.reddit.com/r/RobinHood/comments/lkup5p/the_2021_tax_season_is_upon_us/gnnq9iw/)
 - [/u/joehx on What subreddits you should NEVER visit?](https://www.reddit.com/r/AskReddit/comments/ll1187/what_subreddits_you_should_never_visit/gnnpgu3/)
-- [How is everyone keeping warm today?](https://www.reddit.com/r/AskReddit/comments/ll6tzu/how_is_everyone_keeping_warm_today/)
 <!-- REDDIT:END -->
