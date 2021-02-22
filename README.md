@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Apparently She Has A Brain Eating Bandana](https://news.puppy-snuggles.com/4215549/apparently-she-has-a-brain-eating-bandana)
-- [So cute smile she has...](https://news.puppy-snuggles.com/4264577/so-cute-smile-she-has)
-- [This is a big German Shepherd Puppy..](https://news.puppy-snuggles.com/4264578/this-is-a-big-german-shepherd-puppy)
-- [My sweet boy Pepper giving a sleepy smile while he gets love and cuddles](https://news.puppy-snuggles.com/4264584/my-sweet-boy-pepper-giving-a-sleepy-smile-while-he-gets-love-and-cuddles)
-- [I have no idea what happened in this picture](https://news.puppy-snuggles.com/4264582/i-have-no-idea-what-happened-in-this-picture)
+- [Obi had quite the weekend.](https://news.puppy-snuggles.com/4280180/obi-had-quite-the-weekend)
+- [This is Bucks stump. There are many stumps like it. But this one is his.](https://news.puppy-snuggles.com/4276438/this-is-bucks-stump-there-are-many-stumps-like-it-but-this-one-is-his)
+- [snowy stripey boy](https://news.puppy-snuggles.com/4272710/snowy-stripey-boy)
+- [Elsa’s always very sleepy during the day and overly energetic during the evening ❤️](https://news.puppy-snuggles.com/4276440/elsas-always-very-sleepy-during-the-day-and-overly-energetic-during-the-evening)
+- [Brother best friends](https://news.puppy-snuggles.com/4272706/brother-best-friends)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
