@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Rukus and Zuko. 200 lbs of lab Shar pei mix.](https://news.puppy-snuggles.com/4300078/meet-rukus-and-zuko-200-lbs-of-lab-shar-pei-mix)
-- [School 4 Petz](https://news.puppy-snuggles.com/4300077/school-4-petz)
-- [Take a seat, stay a while!](https://news.puppy-snuggles.com/4072201/take-a-seat-stay-a-while)
-- [Murph puppy love](https://news.puppy-snuggles.com/4300073/murph-puppy-love)
-- [lovely brisk day for a roll in the grass :3](https://news.puppy-snuggles.com/4300072/lovely-brisk-day-for-a-roll-in-the-grass-3)
+- [Apollo's first day at home](https://news.puppy-snuggles.com/4323961/apollos-first-day-at-home)
+- [Teaching this pupper the joys of ice fishing](https://news.puppy-snuggles.com/4268807/teaching-this-pupper-the-joys-of-ice-fishing)
+- [Why are you laughing...this is how you sit.](https://news.puppy-snuggles.com/4072202/why-are-you-laughingthis-is-how-you-sit)
+- [Meet Friday](https://news.puppy-snuggles.com/4268809/meet-friday)
+- [Tweedle Dee and Tweedle Dum part quatre](https://news.puppy-snuggles.com/4268808/tweedle-dee-and-tweedle-dum-part-quatre)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
