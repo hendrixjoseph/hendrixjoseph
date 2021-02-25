@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Apollo's first day at home](https://news.puppy-snuggles.com/4323961/apollos-first-day-at-home)
-- [Teaching this pupper the joys of ice fishing](https://news.puppy-snuggles.com/4268807/teaching-this-pupper-the-joys-of-ice-fishing)
-- [Why are you laughing...this is how you sit.](https://news.puppy-snuggles.com/4072202/why-are-you-laughingthis-is-how-you-sit)
-- [Meet Friday](https://news.puppy-snuggles.com/4268809/meet-friday)
-- [Tweedle Dee and Tweedle Dum part quatre](https://news.puppy-snuggles.com/4268808/tweedle-dee-and-tweedle-dum-part-quatre)
+- [I told Elsa to smile, so she did. This is her signature face whenever I take a picture of her ❤️](https://news.puppy-snuggles.com/3885759/i-told-elsa-to-smile-so-she-did-this-is-her-signature-face-whenever-i-take-a-picture-of-her)
+- [When ya drink too much and fall over on your back but your friends are also drunk and just stand around looking awkward](https://news.puppy-snuggles.com/4347538/when-ya-drink-too-much-and-fall-over-on-your-back-but-your-friends-are-also-drunk-and-just-stand-around-looking-awkward)
+- [hmmm](https://news.puppy-snuggles.com/4347535/hmmm)
+- [First day with my new buddy](https://news.puppy-snuggles.com/4347537/first-day-with-my-new-buddy)
+- [Akita Tree Dog](https://news.puppy-snuggles.com/4347536/akita-tree-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
