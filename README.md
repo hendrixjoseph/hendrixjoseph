@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I told Elsa to smile, so she did. This is her signature face whenever I take a picture of her ❤️](https://news.puppy-snuggles.com/3885759/i-told-elsa-to-smile-so-she-did-this-is-her-signature-face-whenever-i-take-a-picture-of-her)
-- [When ya drink too much and fall over on your back but your friends are also drunk and just stand around looking awkward](https://news.puppy-snuggles.com/4347538/when-ya-drink-too-much-and-fall-over-on-your-back-but-your-friends-are-also-drunk-and-just-stand-around-looking-awkward)
-- [hmmm](https://news.puppy-snuggles.com/4347535/hmmm)
-- [First day with my new buddy](https://news.puppy-snuggles.com/4347537/first-day-with-my-new-buddy)
-- [Akita Tree Dog](https://news.puppy-snuggles.com/4347536/akita-tree-dog)
+- [Lord of Dogs at Gooseberry Cove](https://news.puppy-snuggles.com/4370992/lord-of-dogs-at-gooseberry-cove)
+- [This was my dog this past Christmas:)](https://news.puppy-snuggles.com/4370994/this-was-my-dog-this-past-christmas)
+- [All dogs are puppies on Christmas!](https://news.puppy-snuggles.com/3097342/all-dogs-are-puppies-on-christmas)
+- [It’s called fashion, look it up](https://news.puppy-snuggles.com/4364813/its-called-fashion-look-it-up)
+- [Happy summee photo☺️](https://news.puppy-snuggles.com/4364815/happy-summee-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
