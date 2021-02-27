@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lord of Dogs at Gooseberry Cove](https://news.puppy-snuggles.com/4370992/lord-of-dogs-at-gooseberry-cove)
-- [This was my dog this past Christmas:)](https://news.puppy-snuggles.com/4370994/this-was-my-dog-this-past-christmas)
-- [All dogs are puppies on Christmas!](https://news.puppy-snuggles.com/3097342/all-dogs-are-puppies-on-christmas)
-- [It’s called fashion, look it up](https://news.puppy-snuggles.com/4364813/its-called-fashion-look-it-up)
-- [Happy summee photo☺️](https://news.puppy-snuggles.com/4364815/happy-summee-photo)
+- [Left the couch for like one minute](https://news.puppy-snuggles.com/4394635/left-the-couch-for-like-one-minute)
+- [Just let him in already! &amp;gt;:(](https://news.puppy-snuggles.com/4388661/just-let-him-in-already-gt)
+- [So far I got eye wash from pet smart and I gave him Benadryl because it was puffy but the puffyness went down. Has anyone went through something like this with their baby? ):](https://news.puppy-snuggles.com/3310427/so-far-i-got-eye-wash-from-pet-smart-and-i-gave-him-benadryl-because-it-was-puffy-but-the-puffyness-went-down-has-anyone-went-through-something-like-this-with-their-baby)
+- [“Why aren’t you petting me”](https://news.puppy-snuggles.com/4388662/why-arent-you-petting-me)
+- [They are all soo cutee!!](https://news.puppy-snuggles.com/4388663/they-are-all-soo-cutee)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
