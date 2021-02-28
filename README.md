@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Left the couch for like one minute](https://news.puppy-snuggles.com/4394635/left-the-couch-for-like-one-minute)
-- [Just let him in already! &amp;gt;:(](https://news.puppy-snuggles.com/4388661/just-let-him-in-already-gt)
-- [So far I got eye wash from pet smart and I gave him Benadryl because it was puffy but the puffyness went down. Has anyone went through something like this with their baby? ):](https://news.puppy-snuggles.com/3310427/so-far-i-got-eye-wash-from-pet-smart-and-i-gave-him-benadryl-because-it-was-puffy-but-the-puffyness-went-down-has-anyone-went-through-something-like-this-with-their-baby)
-- [“Why aren’t you petting me”](https://news.puppy-snuggles.com/4388662/why-arent-you-petting-me)
-- [They are all soo cutee!!](https://news.puppy-snuggles.com/4388663/they-are-all-soo-cutee)
+- [Happy boi!](https://news.puppy-snuggles.com/4410112/happy-boi)
+- [Floppy eared Otis](https://news.puppy-snuggles.com/4410113/floppy-eared-otis)
+- [Lars Never Misses A Good Photo Op](https://news.puppy-snuggles.com/3804750/lars-never-misses-a-good-photo-op)
+- [Bruce enjoying the sun](https://news.puppy-snuggles.com/4410114/bruce-enjoying-the-sun)
+- [Jolly Roger's first snow in the city!](https://news.puppy-snuggles.com/2963681/jolly-rogers-first-snow-in-the-city)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
