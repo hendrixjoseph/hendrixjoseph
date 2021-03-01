@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy boi!](https://news.puppy-snuggles.com/4410112/happy-boi)
-- [Floppy eared Otis](https://news.puppy-snuggles.com/4410113/floppy-eared-otis)
-- [Lars Never Misses A Good Photo Op](https://news.puppy-snuggles.com/3804750/lars-never-misses-a-good-photo-op)
-- [Bruce enjoying the sun](https://news.puppy-snuggles.com/4410114/bruce-enjoying-the-sun)
-- [Jolly Roger's first snow in the city!](https://news.puppy-snuggles.com/2963681/jolly-rogers-first-snow-in-the-city)
+- [My old boy jed I loved him more than I ever loved myself. Miss this dope head.](https://news.puppy-snuggles.com/4428306/my-old-boy-jed-i-loved-him-more-than-i-ever-loved-myself-miss-this-dope-head)
+- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
+- [My dog always goes mad when she dries herself off...](https://news.puppy-snuggles.com/3387436/my-dog-always-goes-mad-when-she-dries-herself-off)
+- [This is the same dog who complains about going outside in the morning after a fresh snow because his toes will get cold...](https://news.puppy-snuggles.com/4428307/this-is-the-same-dog-who-complains-about-going-outside-in-the-morning-after-a-fresh-snow-because-his-toes-will-get-cold)
+- [huskies](https://news.puppy-snuggles.com/4428308/huskies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
