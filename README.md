@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My old boy jed I loved him more than I ever loved myself. Miss this dope head.](https://news.puppy-snuggles.com/4428306/my-old-boy-jed-i-loved-him-more-than-i-ever-loved-myself-miss-this-dope-head)
-- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
-- [My dog always goes mad when she dries herself off...](https://news.puppy-snuggles.com/3387436/my-dog-always-goes-mad-when-she-dries-herself-off)
-- [This is the same dog who complains about going outside in the morning after a fresh snow because his toes will get cold...](https://news.puppy-snuggles.com/4428307/this-is-the-same-dog-who-complains-about-going-outside-in-the-morning-after-a-fresh-snow-because-his-toes-will-get-cold)
-- [huskies](https://news.puppy-snuggles.com/4428308/huskies)
+- [Just posting some pictures of my silly girl.](https://news.puppy-snuggles.com/4400567/just-posting-some-pictures-of-my-silly-girl)
+- [studying is tiring](https://news.puppy-snuggles.com/4447175/studying-is-tiring)
+- [Today my dog of 14 years was put to sleep at 11:00am, here's a picture of her when she was younger, her name is McKenzie](https://news.puppy-snuggles.com/3669492/today-my-dog-of-14-years-was-put-to-sleep-at-1100am-heres-a-picture-of-her-when-she-was-younger-her-name-is-mckenzie)
+- [My best friend 🤎💙](https://news.puppy-snuggles.com/4196837/my-best-friend)
+- [My beloved boy Mango. No longer by my side but forever in my heart. I wish you all could have met him. The world will never be the same.](https://news.puppy-snuggles.com/3687367/my-beloved-boy-mango-no-longer-by-my-side-but-forever-in-my-heart-i-wish-you-all-could-have-met-him-the-world-will-never-be-the-same)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
