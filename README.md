@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just posting some pictures of my silly girl.](https://news.puppy-snuggles.com/4400567/just-posting-some-pictures-of-my-silly-girl)
-- [studying is tiring](https://news.puppy-snuggles.com/4447175/studying-is-tiring)
-- [Today my dog of 14 years was put to sleep at 11:00am, here's a picture of her when she was younger, her name is McKenzie](https://news.puppy-snuggles.com/3669492/today-my-dog-of-14-years-was-put-to-sleep-at-1100am-heres-a-picture-of-her-when-she-was-younger-her-name-is-mckenzie)
-- [My best friend 🤎💙](https://news.puppy-snuggles.com/4196837/my-best-friend)
-- [My beloved boy Mango. No longer by my side but forever in my heart. I wish you all could have met him. The world will never be the same.](https://news.puppy-snuggles.com/3687367/my-beloved-boy-mango-no-longer-by-my-side-but-forever-in-my-heart-i-wish-you-all-could-have-met-him-the-world-will-never-be-the-same)
+- [Cooper (Malinois)](https://news.puppy-snuggles.com/4471137/cooper-malinois)
+- [What kind of Pokémon is this?](https://news.puppy-snuggles.com/4453350/what-kind-of-pokemon-is-this)
+- [Happy smiles I her sleep. Sweet dreams my little princess](https://news.puppy-snuggles.com/4459393/happy-smiles-i-her-sleep-sweet-dreams-my-little-princess)
+- [When that cute blonde gives you the side eye ;)](https://news.puppy-snuggles.com/4459389/when-that-cute-blonde-gives-you-the-side-eye)
+- [One of his first days after adoption he bit my hand trying to steal a chicken nugget. A little bit of training later and he has learned to wait until he has permission.](https://news.puppy-snuggles.com/4464367/one-of-his-first-days-after-adoption-he-bit-my-hand-trying-to-steal-a-chicken-nugget-a-little-bit-of-training-later-and-he-has-learned-to-wait-until-he-has-permission)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
