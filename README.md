@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cooper (Malinois)](https://news.puppy-snuggles.com/4471137/cooper-malinois)
-- [What kind of Pokémon is this?](https://news.puppy-snuggles.com/4453350/what-kind-of-pokemon-is-this)
-- [Happy smiles I her sleep. Sweet dreams my little princess](https://news.puppy-snuggles.com/4459393/happy-smiles-i-her-sleep-sweet-dreams-my-little-princess)
-- [When that cute blonde gives you the side eye ;)](https://news.puppy-snuggles.com/4459389/when-that-cute-blonde-gives-you-the-side-eye)
-- [One of his first days after adoption he bit my hand trying to steal a chicken nugget. A little bit of training later and he has learned to wait until he has permission.](https://news.puppy-snuggles.com/4464367/one-of-his-first-days-after-adoption-he-bit-my-hand-trying-to-steal-a-chicken-nugget-a-little-bit-of-training-later-and-he-has-learned-to-wait-until-he-has-permission)
+- [Meet Lucy one of the kindest small wolf on the planet. You can fallow her on Ig @senjorita_lucy](https://news.puppy-snuggles.com/4495852/meet-lucy-one-of-the-kindest-small-wolf-on-the-planet-you-can-fallow-her-on-ig-at-senjorita-lucy)
+- [they like cuddles, a lot.](https://news.puppy-snuggles.com/4260205/they-like-cuddles-a-lot)
+- [My boy Louie with his sheep.](https://news.puppy-snuggles.com/4424127/my-boy-louie-with-his-sheep)
+- [Photogenic pup](https://news.puppy-snuggles.com/4495853/photogenic-pup)
+- [Daph can't chew on a bone without touching me or laying on my arm. She pawed my arm and demanded I move it so she could lay on it as she chewed her elk antler =)](https://news.puppy-snuggles.com/4394634/daph-cant-chew-on-a-bone-without-touching-me-or-laying-on-my-arm-she-pawed-my-arm-and-demanded-i-move-it-so-she-could-lay-on-it-as-she-chewed-her-elk-antler)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
