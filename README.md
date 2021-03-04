@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on curious if reddit does checkboxes](https://www.reddit.com/r/test/comments/lx53cd/curious_if_reddit_does_checkboxes/gpkz06h/)
+- [curious if reddit does checkboxes](https://www.reddit.com/r/test/comments/lx53cd/curious_if_reddit_does_checkboxes/)
+- [question on old "air cleaner" law](https://www.reddit.com/r/AskMechanics/comments/lx52i4/question_on_old_air_cleaner_law/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 01, 2021](https://www.reddit.com/r/personalfinance/comments/lv6dld/weekday_help_and_victory_thread_for_the_week_of/gpjeynn/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, March 02, 2021](https://www.reddit.com/r/financialindependence/comments/lvyk2m/daily_fi_discussion_thread_tuesday_march_02_2021/gpfaadi/)
-- [/u/joehx on Daily FI discussion thread - Monday, February 22, 2021](https://www.reddit.com/r/financialindependence/comments/lpke3g/daily_fi_discussion_thread_monday_february_22_2021/gocbrru/)
-- [February 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/log70j/february_2021_blog_statistics/)
-- [/u/joehx on uh it's called guerilla networking sweaty, totally fair game](https://www.reddit.com/r/recruitinghell/comments/llb0a8/uh_its_called_guerilla_networking_sweaty_totally/gnptcpm/)
-- [/u/joehx on If you can take a pill in replace of a meal, what would you do with the money saved from buying food?](https://www.reddit.com/r/AskReddit/comments/llef2y/if_you_can_take_a_pill_in_replace_of_a_meal_what/gnoz8p7/)
 <!-- REDDIT:END -->
