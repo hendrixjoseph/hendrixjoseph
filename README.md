@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Lucy one of the kindest small wolf on the planet. You can fallow her on Ig @senjorita_lucy](https://news.puppy-snuggles.com/4495852/meet-lucy-one-of-the-kindest-small-wolf-on-the-planet-you-can-fallow-her-on-ig-at-senjorita-lucy)
-- [they like cuddles, a lot.](https://news.puppy-snuggles.com/4260205/they-like-cuddles-a-lot)
-- [My boy Louie with his sheep.](https://news.puppy-snuggles.com/4424127/my-boy-louie-with-his-sheep)
-- [Photogenic pup](https://news.puppy-snuggles.com/4495853/photogenic-pup)
-- [Daph can't chew on a bone without touching me or laying on my arm. She pawed my arm and demanded I move it so she could lay on it as she chewed her elk antler =)](https://news.puppy-snuggles.com/4394634/daph-cant-chew-on-a-bone-without-touching-me-or-laying-on-my-arm-she-pawed-my-arm-and-demanded-i-move-it-so-she-could-lay-on-it-as-she-chewed-her-elk-antler)
+- [My new baby Karma](https://news.puppy-snuggles.com/4519800/my-new-baby-karma)
+- [Corgi crashing a Bernese meet up](https://news.puppy-snuggles.com/3830559/corgi-crashing-a-bernese-meet-up)
+- [Bosefus and his favorite ball - Mr. Sefus with his skin like coal, is the best dog in the world, I would never trade him for anybody else](https://news.puppy-snuggles.com/4519801/bosefus-and-his-favorite-ball-mr-sefus-with-his-skin-like-coal-is-the-best-dog-in-the-world-i-would-never-trade-him-for-anybody-else)
+- [A couple gorgeous pics my wife got of my girls today.... iPhone 12 has a great camera!](https://news.puppy-snuggles.com/4508465/a-couple-gorgeous-pics-my-wife-got-of-my-girls-today-iphone-12-has-a-great-camera)
+- [The best thing about working nights coming home to see this little face with her funny morning hair styles!](https://news.puppy-snuggles.com/4519795/the-best-thing-about-working-nights-coming-home-to-see-this-little-face-with-her-funny-morning-hair-styles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
