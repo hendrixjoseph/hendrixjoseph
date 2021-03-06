@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new baby Karma](https://news.puppy-snuggles.com/4519800/my-new-baby-karma)
-- [Corgi crashing a Bernese meet up](https://news.puppy-snuggles.com/3830559/corgi-crashing-a-bernese-meet-up)
-- [Bosefus and his favorite ball - Mr. Sefus with his skin like coal, is the best dog in the world, I would never trade him for anybody else](https://news.puppy-snuggles.com/4519801/bosefus-and-his-favorite-ball-mr-sefus-with-his-skin-like-coal-is-the-best-dog-in-the-world-i-would-never-trade-him-for-anybody-else)
-- [A couple gorgeous pics my wife got of my girls today.... iPhone 12 has a great camera!](https://news.puppy-snuggles.com/4508465/a-couple-gorgeous-pics-my-wife-got-of-my-girls-today-iphone-12-has-a-great-camera)
-- [The best thing about working nights coming home to see this little face with her funny morning hair styles!](https://news.puppy-snuggles.com/4519795/the-best-thing-about-working-nights-coming-home-to-see-this-little-face-with-her-funny-morning-hair-styles)
+- [Vet tech sent me a picture of Maggie’s first visit!](https://news.puppy-snuggles.com/4531765/vet-tech-sent-me-a-picture-of-maggies-first-visit)
+- [Pretty puppy Papillon dog](https://news.puppy-snuggles.com/3304670/pretty-puppy-papillon-dog)
+- [Here is Aurora my Alaskan malamute x German shepherd at 8 weeks old](https://news.puppy-snuggles.com/4191326/here-is-aurora-my-alaskan-malamute-x-german-shepherd-at-8-weeks-old)
+- [Jenny approved the coming of summer with a big smile](https://news.puppy-snuggles.com/4536631/jenny-approved-the-coming-of-summer-with-a-big-smile)
+- [Mika enjoyed all the snow this morning!](https://news.puppy-snuggles.com/4173942/mika-enjoyed-all-the-snow-this-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
