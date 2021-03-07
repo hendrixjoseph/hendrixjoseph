@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Vet tech sent me a picture of Maggie’s first visit!](https://news.puppy-snuggles.com/4531765/vet-tech-sent-me-a-picture-of-maggies-first-visit)
-- [Pretty puppy Papillon dog](https://news.puppy-snuggles.com/3304670/pretty-puppy-papillon-dog)
-- [Here is Aurora my Alaskan malamute x German shepherd at 8 weeks old](https://news.puppy-snuggles.com/4191326/here-is-aurora-my-alaskan-malamute-x-german-shepherd-at-8-weeks-old)
-- [Jenny approved the coming of summer with a big smile](https://news.puppy-snuggles.com/4536631/jenny-approved-the-coming-of-summer-with-a-big-smile)
-- [Mika enjoyed all the snow this morning!](https://news.puppy-snuggles.com/4173942/mika-enjoyed-all-the-snow-this-morning)
+- [My dog passed in 2018 and I miss him every single day. This is how I honored his memory ❤️ My very first tattoo!](https://news.puppy-snuggles.com/3549588/my-dog-passed-in-2018-and-i-miss-him-every-single-day-this-is-how-i-honored-his-memory-my-very-first-tattoo)
+- [Enjoying the nice sunny day](https://news.puppy-snuggles.com/4562316/enjoying-the-nice-sunny-day)
+- [My Valentine turned 3 years old! Peanut Butter cake anyone?](https://news.puppy-snuggles.com/4125087/my-valentine-turned-3-years-old-peanut-butter-cake-anyone)
+- [My three stooges 🥰](https://news.puppy-snuggles.com/4562311/my-three-stooges)
+- [Beach activities like shaking hands](https://news.puppy-snuggles.com/4562308/beach-activities-like-shaking-hands)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
