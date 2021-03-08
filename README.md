@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog passed in 2018 and I miss him every single day. This is how I honored his memory ❤️ My very first tattoo!](https://news.puppy-snuggles.com/3549588/my-dog-passed-in-2018-and-i-miss-him-every-single-day-this-is-how-i-honored-his-memory-my-very-first-tattoo)
-- [Enjoying the nice sunny day](https://news.puppy-snuggles.com/4562316/enjoying-the-nice-sunny-day)
-- [My Valentine turned 3 years old! Peanut Butter cake anyone?](https://news.puppy-snuggles.com/4125087/my-valentine-turned-3-years-old-peanut-butter-cake-anyone)
-- [My three stooges 🥰](https://news.puppy-snuggles.com/4562311/my-three-stooges)
-- [Beach activities like shaking hands](https://news.puppy-snuggles.com/4562308/beach-activities-like-shaking-hands)
+- [time to water the collie flowers](https://news.puppy-snuggles.com/4112503/time-to-water-the-collie-flowers)
+- [Love hiking with this boy](https://news.puppy-snuggles.com/3714695/love-hiking-with-this-boy)
+- [Mad because I chose laundry over him](https://news.puppy-snuggles.com/4579458/mad-because-i-chose-laundry-over-him)
+- [Dog is possessed, please send help](https://news.puppy-snuggles.com/3938749/dog-is-possessed-please-send-help)
+- [A couple gorgeous pics my wife got of my girls today.... iPhone 12 has a great camera!](https://news.puppy-snuggles.com/4508465/a-couple-gorgeous-pics-my-wife-got-of-my-girls-today-iphone-12-has-a-great-camera)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
