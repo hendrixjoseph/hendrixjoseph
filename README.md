@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [time to water the collie flowers](https://news.puppy-snuggles.com/4112503/time-to-water-the-collie-flowers)
-- [Love hiking with this boy](https://news.puppy-snuggles.com/3714695/love-hiking-with-this-boy)
-- [Mad because I chose laundry over him](https://news.puppy-snuggles.com/4579458/mad-because-i-chose-laundry-over-him)
-- [Dog is possessed, please send help](https://news.puppy-snuggles.com/3938749/dog-is-possessed-please-send-help)
-- [A couple gorgeous pics my wife got of my girls today.... iPhone 12 has a great camera!](https://news.puppy-snuggles.com/4508465/a-couple-gorgeous-pics-my-wife-got-of-my-girls-today-iphone-12-has-a-great-camera)
+- [Picture snapped mid sneeze](https://news.puppy-snuggles.com/4594679/picture-snapped-mid-sneeze)
+- [My friend's dog turned one this weekend and they threw a party with the neighbors](https://news.puppy-snuggles.com/4600717/my-friends-dog-turned-one-this-weekend-and-they-threw-a-party-with-the-neighbors)
+- [I adopted this sweet old man with cancer seven months ago to provide loving hospice. He's in his final weeks, but as loving as ever.](https://news.puppy-snuggles.com/4036619/i-adopted-this-sweet-old-man-with-cancer-seven-months-ago-to-provide-loving-hospice-hes-in-his-final-weeks-but-as-loving-as-ever)
+- [Chester](https://news.puppy-snuggles.com/3549589/chester)
+- [Pebbles in the snow](https://news.puppy-snuggles.com/4142564/pebbles-in-the-snow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
