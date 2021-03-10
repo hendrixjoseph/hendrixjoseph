@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Picture snapped mid sneeze](https://news.puppy-snuggles.com/4594679/picture-snapped-mid-sneeze)
-- [My friend's dog turned one this weekend and they threw a party with the neighbors](https://news.puppy-snuggles.com/4600717/my-friends-dog-turned-one-this-weekend-and-they-threw-a-party-with-the-neighbors)
-- [I adopted this sweet old man with cancer seven months ago to provide loving hospice. He's in his final weeks, but as loving as ever.](https://news.puppy-snuggles.com/4036619/i-adopted-this-sweet-old-man-with-cancer-seven-months-ago-to-provide-loving-hospice-hes-in-his-final-weeks-but-as-loving-as-ever)
-- [Chester](https://news.puppy-snuggles.com/3549589/chester)
-- [Pebbles in the snow](https://news.puppy-snuggles.com/4142564/pebbles-in-the-snow)
+- [His first swimming lesson attempt.. his face says it all](https://news.puppy-snuggles.com/4622525/his-first-swimming-lesson-attempt-his-face-says-it-all)
+- [My 6 mo. old Malinois / Dutch Shepherd bein' a good boy.](https://news.puppy-snuggles.com/4622523/my-6-mo-old-malinois-dutch-shepherd-bein-a-good-boy)
+- [Will you be my friend?](https://news.puppy-snuggles.com/4622521/will-you-be-my-friend)
+- [The keeper of the city reporting for duty! :) Daphne!](https://news.puppy-snuggles.com/4622520/the-keeper-of-the-city-reporting-for-duty-daphne)
+- [Here is my dog](https://news.puppy-snuggles.com/4622517/here-is-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
