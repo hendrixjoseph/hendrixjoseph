@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His first swimming lesson attempt.. his face says it all](https://news.puppy-snuggles.com/4622525/his-first-swimming-lesson-attempt-his-face-says-it-all)
-- [My 6 mo. old Malinois / Dutch Shepherd bein' a good boy.](https://news.puppy-snuggles.com/4622523/my-6-mo-old-malinois-dutch-shepherd-bein-a-good-boy)
-- [Will you be my friend?](https://news.puppy-snuggles.com/4622521/will-you-be-my-friend)
-- [The keeper of the city reporting for duty! :) Daphne!](https://news.puppy-snuggles.com/4622520/the-keeper-of-the-city-reporting-for-duty-daphne)
-- [Here is my dog](https://news.puppy-snuggles.com/4622517/here-is-my-dog)
+- [She's got such a pretty smile](https://news.puppy-snuggles.com/4645689/shes-got-such-a-pretty-smile)
+- [My miniature schnauzer, Thomas!](https://news.puppy-snuggles.com/4645687/my-miniature-schnauzer-thomas)
+- [Bath time never looked so cute! Bonus: this headband is great for those floppy eared dogs who get chronic ear infections around water!](https://news.puppy-snuggles.com/4645685/bath-time-never-looked-so-cute-bonus-this-headband-is-great-for-those-floppy-eared-dogs-who-get-chronic-ear-infections-around-water)
+- [“Can I have that sandwich pwease?”](https://news.puppy-snuggles.com/4645686/can-i-have-that-sandwich-pwease)
+- [I hope unicorn pictures are allowed here...](https://news.puppy-snuggles.com/4639271/i-hope-unicorn-pictures-are-allowed-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
