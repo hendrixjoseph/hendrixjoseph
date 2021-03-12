@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She's got such a pretty smile](https://news.puppy-snuggles.com/4645689/shes-got-such-a-pretty-smile)
-- [My miniature schnauzer, Thomas!](https://news.puppy-snuggles.com/4645687/my-miniature-schnauzer-thomas)
-- [Bath time never looked so cute! Bonus: this headband is great for those floppy eared dogs who get chronic ear infections around water!](https://news.puppy-snuggles.com/4645685/bath-time-never-looked-so-cute-bonus-this-headband-is-great-for-those-floppy-eared-dogs-who-get-chronic-ear-infections-around-water)
-- [“Can I have that sandwich pwease?”](https://news.puppy-snuggles.com/4645686/can-i-have-that-sandwich-pwease)
-- [I hope unicorn pictures are allowed here...](https://news.puppy-snuggles.com/4639271/i-hope-unicorn-pictures-are-allowed-here)
+- [My dog is saying hi to you dog lovers](https://news.puppy-snuggles.com/4669652/my-dog-is-saying-hi-to-you-dog-lovers)
+- [My name is Archie and I always look like I’m having an existential crisis](https://news.puppy-snuggles.com/3659831/my-name-is-archie-and-i-always-look-like-im-having-an-existential-crisis)
+- [When you're secure in yourself, you can pull this look off.](https://news.puppy-snuggles.com/3742233/when-youre-secure-in-yourself-you-can-pull-this-look-off)
+- [Just like a child! Can never get a decent picture 😂](https://news.puppy-snuggles.com/4669649/just-like-a-child-can-never-get-a-decent-picture)
+- [Simon has a pretty big smile for being so small](https://news.puppy-snuggles.com/4662816/simon-has-a-pretty-big-smile-for-being-so-small)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
