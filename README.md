@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is saying hi to you dog lovers](https://news.puppy-snuggles.com/4669652/my-dog-is-saying-hi-to-you-dog-lovers)
-- [My name is Archie and I always look like I’m having an existential crisis](https://news.puppy-snuggles.com/3659831/my-name-is-archie-and-i-always-look-like-im-having-an-existential-crisis)
-- [When you're secure in yourself, you can pull this look off.](https://news.puppy-snuggles.com/3742233/when-youre-secure-in-yourself-you-can-pull-this-look-off)
-- [Just like a child! Can never get a decent picture 😂](https://news.puppy-snuggles.com/4669649/just-like-a-child-can-never-get-a-decent-picture)
-- [Simon has a pretty big smile for being so small](https://news.puppy-snuggles.com/4662816/simon-has-a-pretty-big-smile-for-being-so-small)
+- [Where’s my food, Robert?](https://news.puppy-snuggles.com/4687095/wheres-my-food-robert)
+- [Look at those big sweet brown eyes](https://news.puppy-snuggles.com/4687097/look-at-those-big-sweet-brown-eyes)
+- [recently, my beloved dog Cody passed away. i really loved him and i am finding it hard to feel happy in any way. Are there any recommendations or anything i can do to not get upset every time i think about him?](https://news.puppy-snuggles.com/4681206/recently-my-beloved-dog-cody-passed-away-i-really-loved-him-and-i-am-finding-it-hard-to-feel-happy-in-any-way-are-there-any-recommendations-or-anything-i-can-do-to-not-get-upset-every-time-i-think-about-him)
+- [My pointy-eared girl💕](https://news.puppy-snuggles.com/4066380/my-pointy-eared-girl)
+- [Piper on watch for bad guys](https://news.puppy-snuggles.com/4687098/piper-on-watch-for-bad-guys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
