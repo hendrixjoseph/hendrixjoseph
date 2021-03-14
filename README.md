@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Do you build apps for your own use?](https://www.reddit.com/r/androiddev/comments/m3z9bm/do_you_build_apps_for_your_own_use/gqtkkou/)
+- [/u/joehx on In honor of Pi Day (3/14), all my nerdy books are FREE on Kindle this weekend. I hope you can get AROUND to downloading them.](https://www.reddit.com/r/FreeEBOOKS/comments/m48oga/in_honor_of_pi_day_314_all_my_nerdy_books_are/gqtjwft/)
 - [/u/joehx on Tax Thursday Thread for the week of March 11, 2021](https://www.reddit.com/r/personalfinance/comments/m2nom1/tax_thursday_thread_for_the_week_of_march_11_2021/gqkjhl1/)
 - [/u/joehx on Whatever happened with that Equifax breach settlement????](https://www.reddit.com/r/personalfinance/comments/m2ju5g/whatever_happened_with_that_equifax_breach/gqkizbd/)
 - [/u/joehx on The number of ads you can show has been limited.](https://www.reddit.com/r/juststart/comments/lzprwu/the_number_of_ads_you_can_show_has_been_limited/gq4dl1l/)
-- [/u/joehx on What's something you should ALWAYS keep in your car?](https://www.reddit.com/r/AskReddit/comments/lzr4ze/whats_something_you_should_always_keep_in_your_car/gq4d7li/)
-- [/u/joehx on What was your "Wtf, how do people NOT know this?" moment?](https://www.reddit.com/r/AskReddit/comments/lz2bgd/what_was_your_wtf_how_do_people_not_know_this/gq26akp/)
 <!-- REDDIT:END -->
