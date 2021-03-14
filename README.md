@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Where’s my food, Robert?](https://news.puppy-snuggles.com/4687095/wheres-my-food-robert)
-- [Look at those big sweet brown eyes](https://news.puppy-snuggles.com/4687097/look-at-those-big-sweet-brown-eyes)
-- [recently, my beloved dog Cody passed away. i really loved him and i am finding it hard to feel happy in any way. Are there any recommendations or anything i can do to not get upset every time i think about him?](https://news.puppy-snuggles.com/4681206/recently-my-beloved-dog-cody-passed-away-i-really-loved-him-and-i-am-finding-it-hard-to-feel-happy-in-any-way-are-there-any-recommendations-or-anything-i-can-do-to-not-get-upset-every-time-i-think-about-him)
-- [My pointy-eared girl💕](https://news.puppy-snuggles.com/4066380/my-pointy-eared-girl)
-- [Piper on watch for bad guys](https://news.puppy-snuggles.com/4687098/piper-on-watch-for-bad-guys)
+- [Dog's u/East_Heron](https://news.puppy-snuggles.com/4708470/dogs-ueast-heron)
+- [Daisy working her hardest to get some beggin' strips.](https://news.puppy-snuggles.com/4708467/daisy-working-her-hardest-to-get-some-beggin-strips)
+- [This belongs here](https://news.puppy-snuggles.com/4108385/this-belongs-here)
+- [The bestest of friends](https://news.puppy-snuggles.com/4459394/the-bestest-of-friends)
+- [The all seeing dog](https://news.puppy-snuggles.com/4708468/the-all-seeing-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
