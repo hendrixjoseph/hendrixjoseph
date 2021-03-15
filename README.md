@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog's u/East_Heron](https://news.puppy-snuggles.com/4708470/dogs-ueast-heron)
-- [Daisy working her hardest to get some beggin' strips.](https://news.puppy-snuggles.com/4708467/daisy-working-her-hardest-to-get-some-beggin-strips)
-- [This belongs here](https://news.puppy-snuggles.com/4108385/this-belongs-here)
-- [The bestest of friends](https://news.puppy-snuggles.com/4459394/the-bestest-of-friends)
-- [The all seeing dog](https://news.puppy-snuggles.com/4708468/the-all-seeing-dog)
+- [New little rescue he as skin disease and he is really weak. Hopefully with a good treatment and love he will get better soon. Send him some energy 🙏](https://news.puppy-snuggles.com/3549587/new-little-rescue-he-as-skin-disease-and-he-is-really-weak-hopefully-with-a-good-treatment-and-love-he-will-get-better-soon-send-him-some-energy)
+- [Lady, the corgi-dobberman❤](https://news.puppy-snuggles.com/4142561/lady-the-corgi-dobberman)
+- [Such grace.](https://news.puppy-snuggles.com/4724848/such-grace)
+- [Smiling about his stick](https://news.puppy-snuggles.com/4090488/smiling-about-his-stick)
+- [Latin America's police dogs turn noses to Covid](https://news.puppy-snuggles.com/4676389/latin-americas-police-dogs-turn-noses-to-covid)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
