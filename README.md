@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why are there only 11 apostles in this stained glass window? Any guesses?](https://www.reddit.com/r/Catholicism/comments/m49njl/why_are_there_only_11_apostles_in_this_stained/gquylgf/)
 - [/u/joehx on Do you build apps for your own use?](https://www.reddit.com/r/androiddev/comments/m3z9bm/do_you_build_apps_for_your_own_use/gqtkkou/)
 - [/u/joehx on In honor of Pi Day (3/14), all my nerdy books are FREE on Kindle this weekend. I hope you can get AROUND to downloading them.](https://www.reddit.com/r/FreeEBOOKS/comments/m48oga/in_honor_of_pi_day_314_all_my_nerdy_books_are/gqtjwft/)
 - [/u/joehx on Tax Thursday Thread for the week of March 11, 2021](https://www.reddit.com/r/personalfinance/comments/m2nom1/tax_thursday_thread_for_the_week_of_march_11_2021/gqkjhl1/)
 - [/u/joehx on Whatever happened with that Equifax breach settlement????](https://www.reddit.com/r/personalfinance/comments/m2ju5g/whatever_happened_with_that_equifax_breach/gqkizbd/)
-- [/u/joehx on The number of ads you can show has been limited.](https://www.reddit.com/r/juststart/comments/lzprwu/the_number_of_ads_you_can_show_has_been_limited/gq4dl1l/)
 <!-- REDDIT:END -->
