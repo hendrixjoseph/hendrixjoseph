@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New little rescue he as skin disease and he is really weak. Hopefully with a good treatment and love he will get better soon. Send him some energy 🙏](https://news.puppy-snuggles.com/3549587/new-little-rescue-he-as-skin-disease-and-he-is-really-weak-hopefully-with-a-good-treatment-and-love-he-will-get-better-soon-send-him-some-energy)
-- [Lady, the corgi-dobberman❤](https://news.puppy-snuggles.com/4142561/lady-the-corgi-dobberman)
-- [Such grace.](https://news.puppy-snuggles.com/4724848/such-grace)
-- [Smiling about his stick](https://news.puppy-snuggles.com/4090488/smiling-about-his-stick)
-- [Latin America's police dogs turn noses to Covid](https://news.puppy-snuggles.com/4676389/latin-americas-police-dogs-turn-noses-to-covid)
+- [Hi, my name is Soda and im a toller boy. This is my younger sister Millie, she is a sheltie. and my older Sister Festis, she is a toller like I am. Have a nice day](https://news.puppy-snuggles.com/4289180/hi-my-name-is-soda-and-im-a-toller-boy-this-is-my-younger-sister-millie-she-is-a-sheltie-and-my-older-sister-festis-she-is-a-toller-like-i-am-have-a-nice-day)
+- [Herbert has recovered from his surgery to remove a tumor and is getting his first round of chemotherapy today! Wish him luck!](https://news.puppy-snuggles.com/3499096/herbert-has-recovered-from-his-surgery-to-remove-a-tumor-and-is-getting-his-first-round-of-chemotherapy-today-wish-him-luck)
+- [As you seemed to like the pictures I posted of my puppy earlier...here he is again, chomping on a plush mushroom. By the way, he has an Instagram! It’s @nori.thedoggo :-)](https://news.puppy-snuggles.com/4739334/as-you-seemed-to-like-the-pictures-i-posted-of-my-puppy-earlierhere-he-is-again-chomping-on-a-plush-mushroom-by-the-way-he-has-an-instagram-its-at-norithedoggo)
+- [This is Ralphie, a border collie with a heart of gold and a mind of empty.](https://news.puppy-snuggles.com/4745626/this-is-ralphie-a-border-collie-with-a-heart-of-gold-and-a-mind-of-empty)
+- [Where’s my food, Robert?](https://news.puppy-snuggles.com/4687095/wheres-my-food-robert)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
