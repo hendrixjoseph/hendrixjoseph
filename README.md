@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 15, 2021](https://www.reddit.com/r/personalfinance/comments/m5i6gr/weekday_help_and_victory_thread_for_the_week_of/gr4pr1l/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 15, 2021](https://www.reddit.com/r/personalfinance/comments/m5i6gr/weekday_help_and_victory_thread_for_the_week_of/gr4ph3i/)
 - [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/shamelessplug/comments/m5nn23/noshave_winter_121_selfies_across_121_days/)
 - [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/videos/comments/m5nmro/noshave_winter_121_selfies_across_121_days/)
 - [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/u_joehx/comments/m5necr/noshave_winter_121_selfies_across_121_days/)
-- [/u/joehx on Why are there only 11 apostles in this stained glass window? Any guesses?](https://www.reddit.com/r/Catholicism/comments/m49njl/why_are_there_only_11_apostles_in_this_stained/gquylgf/)
-- [/u/joehx on Do you build apps for your own use?](https://www.reddit.com/r/androiddev/comments/m3z9bm/do_you_build_apps_for_your_own_use/gqtkkou/)
 <!-- REDDIT:END -->
