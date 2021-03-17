@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi, my name is Soda and im a toller boy. This is my younger sister Millie, she is a sheltie. and my older Sister Festis, she is a toller like I am. Have a nice day](https://news.puppy-snuggles.com/4289180/hi-my-name-is-soda-and-im-a-toller-boy-this-is-my-younger-sister-millie-she-is-a-sheltie-and-my-older-sister-festis-she-is-a-toller-like-i-am-have-a-nice-day)
-- [Herbert has recovered from his surgery to remove a tumor and is getting his first round of chemotherapy today! Wish him luck!](https://news.puppy-snuggles.com/3499096/herbert-has-recovered-from-his-surgery-to-remove-a-tumor-and-is-getting-his-first-round-of-chemotherapy-today-wish-him-luck)
-- [As you seemed to like the pictures I posted of my puppy earlier...here he is again, chomping on a plush mushroom. By the way, he has an Instagram! It’s @nori.thedoggo :-)](https://news.puppy-snuggles.com/4739334/as-you-seemed-to-like-the-pictures-i-posted-of-my-puppy-earlierhere-he-is-again-chomping-on-a-plush-mushroom-by-the-way-he-has-an-instagram-its-at-norithedoggo)
-- [This is Ralphie, a border collie with a heart of gold and a mind of empty.](https://news.puppy-snuggles.com/4745626/this-is-ralphie-a-border-collie-with-a-heart-of-gold-and-a-mind-of-empty)
-- [Where’s my food, Robert?](https://news.puppy-snuggles.com/4687095/wheres-my-food-robert)
+- [I found the baby pic of the meme husky](https://news.puppy-snuggles.com/4769077/i-found-the-baby-pic-of-the-meme-husky)
+- [Treats?](https://news.puppy-snuggles.com/4758060/treats)
+- [My fur baby got out and was lost in March of 2020. This week she was found safe and sound. This is her right after a fresh haircut enjoying the wind on her face for the first time since roughing it in the wilderness for a year. My heart is so full.](https://news.puppy-snuggles.com/4758058/my-fur-baby-got-out-and-was-lost-in-march-of-2020-this-week-she-was-found-safe-and-sound-this-is-her-right-after-a-fresh-haircut-enjoying-the-wind-on-her-face-for-the-first-time-since-roughing-it-in-the-wilderness-for-a-year-my-heart-is-so-full)
+- [The spring breeze blows the corners of my sweetheart's mouth~ Spring is the best season~](https://news.puppy-snuggles.com/4758062/the-spring-breeze-blows-the-corners-of-my-sweethearts-mouth-spring-is-the-best-season)
+- [Took these of my guy the other night](https://news.puppy-snuggles.com/4769076/took-these-of-my-guy-the-other-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
