@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - March 17, 2021](https://www.reddit.com/r/financialindependence/comments/m6w41m/weekly_selfpromotion_thread_march_17_2021/gr8qpno/)
+- [/u/joehx on I forgot to file a 1099-int](https://www.reddit.com/r/personalfinance/comments/m6zze2/i_forgot_to_file_a_1099int/gr8pibp/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of March 15, 2021](https://www.reddit.com/r/personalfinance/comments/m5i6gr/weekday_help_and_victory_thread_for_the_week_of/gr4pr1l/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of March 15, 2021](https://www.reddit.com/r/personalfinance/comments/m5i6gr/weekday_help_and_victory_thread_for_the_week_of/gr4ph3i/)
 - [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/shamelessplug/comments/m5nn23/noshave_winter_121_selfies_across_121_days/)
-- [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/videos/comments/m5nmro/noshave_winter_121_selfies_across_121_days/)
-- [No-Shave Winter - 121 Selfies Across 121 Days](https://www.reddit.com/r/u_joehx/comments/m5necr/noshave_winter_121_selfies_across_121_days/)
 <!-- REDDIT:END -->
