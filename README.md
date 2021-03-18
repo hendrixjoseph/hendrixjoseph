@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I found the baby pic of the meme husky](https://news.puppy-snuggles.com/4769077/i-found-the-baby-pic-of-the-meme-husky)
-- [Treats?](https://news.puppy-snuggles.com/4758060/treats)
-- [My fur baby got out and was lost in March of 2020. This week she was found safe and sound. This is her right after a fresh haircut enjoying the wind on her face for the first time since roughing it in the wilderness for a year. My heart is so full.](https://news.puppy-snuggles.com/4758058/my-fur-baby-got-out-and-was-lost-in-march-of-2020-this-week-she-was-found-safe-and-sound-this-is-her-right-after-a-fresh-haircut-enjoying-the-wind-on-her-face-for-the-first-time-since-roughing-it-in-the-wilderness-for-a-year-my-heart-is-so-full)
-- [The spring breeze blows the corners of my sweetheart's mouth~ Spring is the best season~](https://news.puppy-snuggles.com/4758062/the-spring-breeze-blows-the-corners-of-my-sweethearts-mouth-spring-is-the-best-season)
-- [Took these of my guy the other night](https://news.puppy-snuggles.com/4769076/took-these-of-my-guy-the-other-night)
+- [Have a wonderful day. Wishing everyone a Lucky Pot Gold Today!🌞🍀🌞🍀](https://news.puppy-snuggles.com/4792249/have-a-wonderful-day-wishing-everyone-a-lucky-pot-gold-today)
+- [Found this derpy good boi who's part of the Dutch cops](https://news.puppy-snuggles.com/3690802/found-this-derpy-good-boi-whos-part-of-the-dutch-cops)
+- [Ralph likes his new ball.. ft. His and his brothers face cushions](https://news.puppy-snuggles.com/4260204/ralph-likes-his-new-ball-ft-his-and-his-brothers-face-cushions)
+- [A little 6 months old Aussie/Golden](https://news.puppy-snuggles.com/4734310/a-little-6-months-old-aussiegolden)
+- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
