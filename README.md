@@ -58,10 +58,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Have a wonderful day. Wishing everyone a Lucky Pot Gold Today!🌞🍀🌞🍀](https://news.puppy-snuggles.com/4792249/have-a-wonderful-day-wishing-everyone-a-lucky-pot-gold-today)
-- [Found this derpy good boi who's part of the Dutch cops](https://news.puppy-snuggles.com/3690802/found-this-derpy-good-boi-whos-part-of-the-dutch-cops)
-- [Ralph likes his new ball.. ft. His and his brothers face cushions](https://news.puppy-snuggles.com/4260204/ralph-likes-his-new-ball-ft-his-and-his-brothers-face-cushions)
-- [A little 6 months old Aussie/Golden](https://news.puppy-snuggles.com/4734310/a-little-6-months-old-aussiegolden)
+- [Buster &amp;amp; Fozzy - My two old boys aged 13 and 14](https://news.puppy-snuggles.com/3454993/buster-amp-fozzy-my-two-old-boys-aged-13-and-14)
+- [“For small creatures such as we the vastness is bearable only through love.” –Carl Sagan 🐾](https://news.puppy-snuggles.com/4815345/for-small-creatures-such-as-we-the-vastness-is-bearable-only-through-love-carl-sagan)
+- [This is my little boy myles, he just turned one years old! Please wish him a happy birthday because himbs a goob boy](https://news.puppy-snuggles.com/4815343/this-is-my-little-boy-myles-he-just-turned-one-years-old-please-wish-him-a-happy-birthday-because-himbs-a-goob-boy)
+- [How my little sister celebrates my dog's birthday..](https://news.puppy-snuggles.com/4815342/how-my-little-sister-celebrates-my-dogs-birthday)
 - [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
