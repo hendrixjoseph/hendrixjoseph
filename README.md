@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Buster &amp;amp; Fozzy - My two old boys aged 13 and 14](https://news.puppy-snuggles.com/3454993/buster-amp-fozzy-my-two-old-boys-aged-13-and-14)
-- [“For small creatures such as we the vastness is bearable only through love.” –Carl Sagan 🐾](https://news.puppy-snuggles.com/4815345/for-small-creatures-such-as-we-the-vastness-is-bearable-only-through-love-carl-sagan)
-- [This is my little boy myles, he just turned one years old! Please wish him a happy birthday because himbs a goob boy](https://news.puppy-snuggles.com/4815343/this-is-my-little-boy-myles-he-just-turned-one-years-old-please-wish-him-a-happy-birthday-because-himbs-a-goob-boy)
-- [How my little sister celebrates my dog's birthday..](https://news.puppy-snuggles.com/4815342/how-my-little-sister-celebrates-my-dogs-birthday)
-- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
+- [Our rescue pup, she came to us from Romania a year ago and was so scared of everything!](https://news.puppy-snuggles.com/3770755/our-rescue-pup-she-came-to-us-from-romania-a-year-ago-and-was-so-scared-of-everything)
+- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
+- [Hanging out at a river!](https://news.puppy-snuggles.com/3926276/hanging-out-at-a-river)
+- [CHEESE 😬🥰](https://news.puppy-snuggles.com/4840062/cheese)
+- [“Whoever said money can't buy happiness didn't know where to shop” --Gertrude Stein 🐾](https://news.puppy-snuggles.com/3919989/whoever-said-money-cant-buy-happiness-didnt-know-where-to-shop-gertrude-stein)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
