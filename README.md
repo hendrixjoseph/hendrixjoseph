@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [February 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/m9e0i8/february_2021_blog_statistics/)
 - [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/grh81of/)
 - [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/grcjdeb/)
 - [/u/joehx on Weekly Self-Promotion Thread - March 17, 2021](https://www.reddit.com/r/financialindependence/comments/m6w41m/weekly_selfpromotion_thread_march_17_2021/gr8qpno/)
 - [/u/joehx on I forgot to file a 1099-int](https://www.reddit.com/r/personalfinance/comments/m6zze2/i_forgot_to_file_a_1099int/gr8pibp/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of March 15, 2021](https://www.reddit.com/r/personalfinance/comments/m5i6gr/weekday_help_and_victory_thread_for_the_week_of/gr4pr1l/)
 <!-- REDDIT:END -->
