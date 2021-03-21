@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our rescue pup, she came to us from Romania a year ago and was so scared of everything!](https://news.puppy-snuggles.com/3770755/our-rescue-pup-she-came-to-us-from-romania-a-year-ago-and-was-so-scared-of-everything)
-- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
-- [Hanging out at a river!](https://news.puppy-snuggles.com/3926276/hanging-out-at-a-river)
-- [CHEESE 😬🥰](https://news.puppy-snuggles.com/4840062/cheese)
-- [“Whoever said money can't buy happiness didn't know where to shop” --Gertrude Stein 🐾](https://news.puppy-snuggles.com/3919989/whoever-said-money-cant-buy-happiness-didnt-know-where-to-shop-gertrude-stein)
+- [We suddenly and very unexpectedly lost our sweet boy Canyon yesterday. He died doing his favorite thing in the world: playing fetch with my SO. We are utterly heartbroken. He would have been 2 in June. Here is my favorite picture of him.](https://news.puppy-snuggles.com/4860544/we-suddenly-and-very-unexpectedly-lost-our-sweet-boy-canyon-yesterday-he-died-doing-his-favorite-thing-in-the-world-playing-fetch-with-my-so-we-are-utterly-heartbroken-he-would-have-been-2-in-june-here-is-my-favorite-picture-of-him)
+- [Our new puppy is here! She is called snickers and she had surgery a few days ago so she's kind tired](https://news.puppy-snuggles.com/4860536/our-new-puppy-is-here-she-is-called-snickers-and-she-had-surgery-a-few-days-ago-so-shes-kind-tired)
+- [Original post from u/Stormk955](https://news.puppy-snuggles.com/4860541/original-post-from-ustormk955)
+- [Took this of my moms Boston, Hazel, this morning](https://news.puppy-snuggles.com/4860540/took-this-of-my-moms-boston-hazel-this-morning)
+- [I miss this guy so much :(](https://news.puppy-snuggles.com/4860538/i-miss-this-guy-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
