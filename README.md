@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We suddenly and very unexpectedly lost our sweet boy Canyon yesterday. He died doing his favorite thing in the world: playing fetch with my SO. We are utterly heartbroken. He would have been 2 in June. Here is my favorite picture of him.](https://news.puppy-snuggles.com/4860544/we-suddenly-and-very-unexpectedly-lost-our-sweet-boy-canyon-yesterday-he-died-doing-his-favorite-thing-in-the-world-playing-fetch-with-my-so-we-are-utterly-heartbroken-he-would-have-been-2-in-june-here-is-my-favorite-picture-of-him)
-- [Our new puppy is here! She is called snickers and she had surgery a few days ago so she's kind tired](https://news.puppy-snuggles.com/4860536/our-new-puppy-is-here-she-is-called-snickers-and-she-had-surgery-a-few-days-ago-so-shes-kind-tired)
-- [Original post from u/Stormk955](https://news.puppy-snuggles.com/4860541/original-post-from-ustormk955)
-- [Took this of my moms Boston, Hazel, this morning](https://news.puppy-snuggles.com/4860540/took-this-of-my-moms-boston-hazel-this-morning)
-- [I miss this guy so much :(](https://news.puppy-snuggles.com/4860538/i-miss-this-guy-so-much)
+- [I hate Mondays](https://news.puppy-snuggles.com/4878000/i-hate-mondays)
+- [Update: We found a stick with blood on it, the same size as the hole, sticking out of a tree, we think she was chasing the raccoon and fell onto the stick, but she is fine and her wound is healing.](https://news.puppy-snuggles.com/3425298/update-we-found-a-stick-with-blood-on-it-the-same-size-as-the-hole-sticking-out-of-a-tree-we-think-she-was-chasing-the-raccoon-and-fell-onto-the-stick-but-she-is-fine-and-her-wound-is-healing)
+- [The smile of baby Freya](https://news.puppy-snuggles.com/4877997/the-smile-of-baby-freya)
+- [Hec hopes everyone has a lazy Sunday!](https://news.puppy-snuggles.com/4877999/hec-hopes-everyone-has-a-lazy-sunday)
+- [My Recent dog pencil art commission work.. nicely done.. hows it friends](https://news.puppy-snuggles.com/4877998/my-recent-dog-pencil-art-commission-work-nicely-done-hows-it-friends)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
