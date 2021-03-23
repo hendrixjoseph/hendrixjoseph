@@ -32,7 +32,7 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 [![LinkedIn](https://img.shields.io/static/v1?label=linkedin&message=193%20connections&color=2867b2&style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/joehx)
 [![Wikipedia](https://img.shields.io/badge/dynamic/xml?label=wikipedia&query=%2F%2F%2A%5B%40id%3D%22general-stats%22%5D%2Fdiv%2Fdiv%2Fdiv%5B1%5D%2Ftable%2Ftbody%2Ftr%5B11%5D%2Ftd%5B2%5D%2Fstrong&suffix=%20edits&url=https%3A%2F%2Fxtools.wmflabs.org%2Fec%2Fen.wikipedia.org%2FHendrixjoseph&style=for-the-badge&logo=wikipedia&color=9f9f9f)](https://en.wikipedia.org/wiki/User:Hendrixjoseph)
 [![Quora](https://img.shields.io/static/v1?label=quora&message=110%20followers&color=b92b27&style=for-the-badge&logo=quora&logoColor=b92b27)](https://www.quora.com/profile/Joseph-Hendrix)
-[![Mix](https://img.shields.io/badge/dynamic/xml?color=ff8126&label=mix&query=%2F%2F%2A%5B%40id%3D%22root%22%5D%2Fdiv%2Fdiv%2Fdiv%5B2%5D%2Fdiv%5B1%5D%2Fdiv%5B2%5D%2Fdiv%5B2%5D%2Fdiv%5B1%5D%2Fa%5B1%5D%2Fspan&suffix=%20followers&url=https%3A%2F%2Fmix.com%2Fjoehx&style=for-the-badge&logo=mix)](https://mix.com/joehx)
+[![Mix](https://img.shields.io/static/v1?label=mix&message=14k%20followers&color=ff8126&style=for-the-badge&logo=mix&logoColor=ff8126)](https://mix.com/joehx)
 [![Number of blog posts](https://img.shields.io/endpoint?style=for-the-badge&url=https%3A%2F%2Fwww.joehxblog.com%2Fdata%2Fnumposts.json)](https://www.joehxblog.com/)
 
 ## My Last Five Blog Posts
