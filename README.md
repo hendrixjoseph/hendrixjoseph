@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I hate Mondays](https://news.puppy-snuggles.com/4878000/i-hate-mondays)
-- [Update: We found a stick with blood on it, the same size as the hole, sticking out of a tree, we think she was chasing the raccoon and fell onto the stick, but she is fine and her wound is healing.](https://news.puppy-snuggles.com/3425298/update-we-found-a-stick-with-blood-on-it-the-same-size-as-the-hole-sticking-out-of-a-tree-we-think-she-was-chasing-the-raccoon-and-fell-onto-the-stick-but-she-is-fine-and-her-wound-is-healing)
-- [The smile of baby Freya](https://news.puppy-snuggles.com/4877997/the-smile-of-baby-freya)
-- [Hec hopes everyone has a lazy Sunday!](https://news.puppy-snuggles.com/4877999/hec-hopes-everyone-has-a-lazy-sunday)
-- [My Recent dog pencil art commission work.. nicely done.. hows it friends](https://news.puppy-snuggles.com/4877998/my-recent-dog-pencil-art-commission-work-nicely-done-hows-it-friends)
+- [He isn’t really the most photogenic dog, lol wich ones ur favorite?](https://news.puppy-snuggles.com/4898614/he-isnt-really-the-most-photogenic-dog-lol-wich-ones-ur-favorite)
+- [Some of my favorite pictures of my dogs](https://news.puppy-snuggles.com/4898612/some-of-my-favorite-pictures-of-my-dogs)
+- [This is Taco. She is a little smush. I babysit for her human. She's such a love bug](https://news.puppy-snuggles.com/4865212/this-is-taco-she-is-a-little-smush-i-babysit-for-her-human-shes-such-a-love-bug)
+- [Maya’s 13weeks and wants all the treats please](https://news.puppy-snuggles.com/4898611/mayas-13weeks-and-wants-all-the-treats-please)
+- [Darryl always seems to cross paths with the rainbows shooting around the house in the mornings thought I’d share](https://news.puppy-snuggles.com/3387442/darryl-always-seems-to-cross-paths-with-the-rainbows-shooting-around-the-house-in-the-mornings-thought-id-share)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
