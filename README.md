@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on The Main Crypto Referral Thread](https://www.reddit.com/r/Crypto_Referral_Codes/comments/m71xaj/the_main_crypto_referral_thread/grvre94/)
+- [JoeHx BlockFi referral](https://www.reddit.com/r/BlockFiReferralCodes/comments/mb3p60/joehx_blockfi_referral/)
+- [/u/joehx on BlockFi Referral Thread- main](https://www.reddit.com/r/BlockFiReferralCodes/comments/ma2hhc/blockfi_referral_thread_main/grvrazt/)
 - [/u/joehx on People who don’t want to tax the 1% but are not in the 1%, why?](https://www.reddit.com/r/AskReddit/comments/m959ep/people_who_dont_want_to_tax_the_1_but_are_not_in/grnhdkp/)
 - [/u/joehx on People who don’t want to tax the 1% but are not in the 1%, why?](https://www.reddit.com/r/AskReddit/comments/m959ep/people_who_dont_want_to_tax_the_1_but_are_not_in/grngjkr/)
-- [February 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/m9e0i8/february_2021_blog_statistics/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/grh81of/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/grcjdeb/)
 <!-- REDDIT:END -->
