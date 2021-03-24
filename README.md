@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He isn’t really the most photogenic dog, lol wich ones ur favorite?](https://news.puppy-snuggles.com/4898614/he-isnt-really-the-most-photogenic-dog-lol-wich-ones-ur-favorite)
-- [Some of my favorite pictures of my dogs](https://news.puppy-snuggles.com/4898612/some-of-my-favorite-pictures-of-my-dogs)
-- [This is Taco. She is a little smush. I babysit for her human. She's such a love bug](https://news.puppy-snuggles.com/4865212/this-is-taco-she-is-a-little-smush-i-babysit-for-her-human-shes-such-a-love-bug)
-- [Maya’s 13weeks and wants all the treats please](https://news.puppy-snuggles.com/4898611/mayas-13weeks-and-wants-all-the-treats-please)
-- [Darryl always seems to cross paths with the rainbows shooting around the house in the mornings thought I’d share](https://news.puppy-snuggles.com/3387442/darryl-always-seems-to-cross-paths-with-the-rainbows-shooting-around-the-house-in-the-mornings-thought-id-share)
+- [The cuddle puddle](https://news.puppy-snuggles.com/4921923/the-cuddle-puddle)
+- [Happy dog day to all from Dosha!](https://news.puppy-snuggles.com/4921922/happy-dog-day-to-all-from-dosha)
+- [The innocent look with fluff in his mouth](https://news.puppy-snuggles.com/3530414/the-innocent-look-with-fluff-in-his-mouth)
+- [He did his best against a heart murmur but unfortunately after 2 years it finally got the best of him . RIP Jimmy ❤️](https://news.puppy-snuggles.com/4915592/he-did-his-best-against-a-heart-murmur-but-unfortunately-after-2-years-it-finally-got-the-best-of-him-rip-jimmy)
+- [Simon smiling goofy for National Puppy Day](https://news.puppy-snuggles.com/4915593/simon-smiling-goofy-for-national-puppy-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
