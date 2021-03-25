@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The cuddle puddle](https://news.puppy-snuggles.com/4921923/the-cuddle-puddle)
-- [Happy dog day to all from Dosha!](https://news.puppy-snuggles.com/4921922/happy-dog-day-to-all-from-dosha)
-- [The innocent look with fluff in his mouth](https://news.puppy-snuggles.com/3530414/the-innocent-look-with-fluff-in-his-mouth)
-- [He did his best against a heart murmur but unfortunately after 2 years it finally got the best of him . RIP Jimmy ❤️](https://news.puppy-snuggles.com/4915592/he-did-his-best-against-a-heart-murmur-but-unfortunately-after-2-years-it-finally-got-the-best-of-him-rip-jimmy)
-- [Simon smiling goofy for National Puppy Day](https://news.puppy-snuggles.com/4915593/simon-smiling-goofy-for-national-puppy-day)
+- [I missed puppy day but here are all my dogs as puppies...](https://news.puppy-snuggles.com/4939350/i-missed-puppy-day-but-here-are-all-my-dogs-as-puppies)
+- [Everything I do, I do with paw-fect form](https://news.puppy-snuggles.com/4489794/everything-i-do-i-do-with-paw-fect-form)
+- [farklı olun ve sevin](https://news.puppy-snuggles.com/4133077/farkli-olun-ve-sevin)
+- [Jax was cute this evening.](https://news.puppy-snuggles.com/4017804/jax-was-cute-this-evening)
+- [Snoop looking pleased with himself after the vet told him to lose a few lbs](https://news.puppy-snuggles.com/4939351/snoop-looking-pleased-with-himself-after-the-vet-told-him-to-lose-a-few-lbs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
