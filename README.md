@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I missed puppy day but here are all my dogs as puppies...](https://news.puppy-snuggles.com/4939350/i-missed-puppy-day-but-here-are-all-my-dogs-as-puppies)
-- [Everything I do, I do with paw-fect form](https://news.puppy-snuggles.com/4489794/everything-i-do-i-do-with-paw-fect-form)
-- [farklı olun ve sevin](https://news.puppy-snuggles.com/4133077/farkli-olun-ve-sevin)
-- [Jax was cute this evening.](https://news.puppy-snuggles.com/4017804/jax-was-cute-this-evening)
-- [Snoop looking pleased with himself after the vet told him to lose a few lbs](https://news.puppy-snuggles.com/4939351/snoop-looking-pleased-with-himself-after-the-vet-told-him-to-lose-a-few-lbs)
+- [She sure has a ruff life *big yawn*](https://news.puppy-snuggles.com/4963394/she-sure-has-a-ruff-life-big-yawn)
+- [My boy turned 1!](https://news.puppy-snuggles.com/4102930/my-boy-turned-1)
+- [Laziest game of Tug of War ever](https://news.puppy-snuggles.com/4963395/laziest-game-of-tug-of-war-ever)
+- [Lady Gaga's dog walker describes his 'very close call with death' after thieves shot him and stole the pop star's dogs](https://news.puppy-snuggles.com/4473972/lady-gagas-dog-walker-describes-his-very-close-call-with-death-after-thieves-shot-him-and-stole-the-pop-stars-dogs)
+- [Father &amp;amp; Son](https://news.puppy-snuggles.com/4963391/father-amp-son)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
