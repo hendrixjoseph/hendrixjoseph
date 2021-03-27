@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She sure has a ruff life *big yawn*](https://news.puppy-snuggles.com/4963394/she-sure-has-a-ruff-life-big-yawn)
-- [My boy turned 1!](https://news.puppy-snuggles.com/4102930/my-boy-turned-1)
-- [Laziest game of Tug of War ever](https://news.puppy-snuggles.com/4963395/laziest-game-of-tug-of-war-ever)
-- [Lady Gaga's dog walker describes his 'very close call with death' after thieves shot him and stole the pop star's dogs](https://news.puppy-snuggles.com/4473972/lady-gagas-dog-walker-describes-his-very-close-call-with-death-after-thieves-shot-him-and-stole-the-pop-stars-dogs)
-- [Father &amp;amp; Son](https://news.puppy-snuggles.com/4963391/father-amp-son)
+- [Ozzy took a trip to petsmart for his 13th birthday and he had the time of his life (it was the first time he went without pooping on the floor!!)](https://news.puppy-snuggles.com/4989420/ozzy-took-a-trip-to-petsmart-for-his-13th-birthday-and-he-had-the-time-of-his-life-it-was-the-first-time-he-went-without-pooping-on-the-floor)
+- [Latin America's police dogs turn noses to Covid](https://news.puppy-snuggles.com/4676389/latin-americas-police-dogs-turn-noses-to-covid)
+- [I'm still sleeping. Why are you up?](https://news.puppy-snuggles.com/4704164/im-still-sleeping-why-are-you-up)
+- [The poo crew look like they’re about to drop a mix tape 🔥](https://news.puppy-snuggles.com/3730697/the-poo-crew-look-like-theyre-about-to-drop-a-mix-tape)
+- [Dis my dog!](https://news.puppy-snuggles.com/4989418/dis-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
