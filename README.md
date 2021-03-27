@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on The Main Crypto Referral Thread](https://www.reddit.com/r/Crypto_Referral_Codes/comments/m71xaj/the_main_crypto_referral_thread/grvre94/)
-- [JoeHx BlockFi referral](https://www.reddit.com/r/BlockFiReferralCodes/comments/mb3p60/joehx_blockfi_referral/)
-- [/u/joehx on BlockFi Referral Thread- main](https://www.reddit.com/r/BlockFiReferralCodes/comments/ma2hhc/blockfi_referral_thread_main/grvrazt/)
-- [/u/joehx on People who don’t want to tax the 1% but are not in the 1%, why?](https://www.reddit.com/r/AskReddit/comments/m959ep/people_who_dont_want_to_tax_the_1_but_are_not_in/grnhdkp/)
-- [/u/joehx on People who don’t want to tax the 1% but are not in the 1%, why?](https://www.reddit.com/r/AskReddit/comments/m959ep/people_who_dont_want_to_tax_the_1_but_are_not_in/grngjkr/)
+- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsc55e0/)
+- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsbfecl/)
+- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsbecpi/)
+- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsb4ka3/)
+- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsb4dks/)
 <!-- REDDIT:END -->
