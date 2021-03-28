@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ozzy took a trip to petsmart for his 13th birthday and he had the time of his life (it was the first time he went without pooping on the floor!!)](https://news.puppy-snuggles.com/4989420/ozzy-took-a-trip-to-petsmart-for-his-13th-birthday-and-he-had-the-time-of-his-life-it-was-the-first-time-he-went-without-pooping-on-the-floor)
-- [Latin America's police dogs turn noses to Covid](https://news.puppy-snuggles.com/4676389/latin-americas-police-dogs-turn-noses-to-covid)
-- [I'm still sleeping. Why are you up?](https://news.puppy-snuggles.com/4704164/im-still-sleeping-why-are-you-up)
-- [The poo crew look like they’re about to drop a mix tape 🔥](https://news.puppy-snuggles.com/3730697/the-poo-crew-look-like-theyre-about-to-drop-a-mix-tape)
-- [Dis my dog!](https://news.puppy-snuggles.com/4989418/dis-my-dog)
+- [My handsome boy Louie being King of the Woods.](https://news.puppy-snuggles.com/5009938/my-handsome-boy-louie-being-king-of-the-woods)
+- [Hi, thank you for calling. My name is Keb'mo, how may i help you?](https://news.puppy-snuggles.com/5009939/hi-thank-you-for-calling-my-name-is-kebmo-how-may-i-help-you)
+- [This is our rescue doggo Ghost had him almost a year now and he’s the biggest softie. First pic is when we brought him home..](https://news.puppy-snuggles.com/5005323/this-is-our-rescue-doggo-ghost-had-him-almost-a-year-now-and-hes-the-biggest-softie-first-pic-is-when-we-brought-him-home)
+- [Got a sweet snap of my lil' girl](https://news.puppy-snuggles.com/5005327/got-a-sweet-snap-of-my-lil-girl)
+- [We might as well live at the park](https://news.puppy-snuggles.com/5009941/we-might-as-well-live-at-the-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
