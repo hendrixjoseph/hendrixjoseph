@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My handsome boy Louie being King of the Woods.](https://news.puppy-snuggles.com/5009938/my-handsome-boy-louie-being-king-of-the-woods)
-- [Hi, thank you for calling. My name is Keb'mo, how may i help you?](https://news.puppy-snuggles.com/5009939/hi-thank-you-for-calling-my-name-is-kebmo-how-may-i-help-you)
-- [This is our rescue doggo Ghost had him almost a year now and he’s the biggest softie. First pic is when we brought him home..](https://news.puppy-snuggles.com/5005323/this-is-our-rescue-doggo-ghost-had-him-almost-a-year-now-and-hes-the-biggest-softie-first-pic-is-when-we-brought-him-home)
-- [Got a sweet snap of my lil' girl](https://news.puppy-snuggles.com/5005327/got-a-sweet-snap-of-my-lil-girl)
-- [We might as well live at the park](https://news.puppy-snuggles.com/5009941/we-might-as-well-live-at-the-park)
+- [My doggo sad the snow is melting (also some happy doggo pics](https://news.puppy-snuggles.com/5027714/my-doggo-sad-the-snow-is-melting-also-some-happy-doggo-pics)
+- [What do you guys think my dog is a mix of?](https://news.puppy-snuggles.com/5019011/what-do-you-guys-think-my-dog-is-a-mix-of)
+- [She’s currently curled up sleeping against my back and I love the feeling](https://news.puppy-snuggles.com/4957687/shes-currently-curled-up-sleeping-against-my-back-and-i-love-the-feeling)
+- [My grandma’s one-eyed beauty named Amber](https://news.puppy-snuggles.com/5027716/my-grandmas-one-eyed-beauty-named-amber)
+- [He ripped the pad on his foot. Doc said he needs the cone or a sock. He hated the cone and the socks kept falling down. Solution I bought a garter belt. Now the socks stay in place and he feels sexy!](https://news.puppy-snuggles.com/4945230/he-ripped-the-pad-on-his-foot-doc-said-he-needs-the-cone-or-a-sock-he-hated-the-cone-and-the-socks-kept-falling-down-solution-i-bought-a-garter-belt-now-the-socks-stay-in-place-and-he-feels-sexy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
