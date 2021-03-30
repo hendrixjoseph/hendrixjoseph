@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My doggo sad the snow is melting (also some happy doggo pics](https://news.puppy-snuggles.com/5027714/my-doggo-sad-the-snow-is-melting-also-some-happy-doggo-pics)
-- [What do you guys think my dog is a mix of?](https://news.puppy-snuggles.com/5019011/what-do-you-guys-think-my-dog-is-a-mix-of)
-- [She’s currently curled up sleeping against my back and I love the feeling](https://news.puppy-snuggles.com/4957687/shes-currently-curled-up-sleeping-against-my-back-and-i-love-the-feeling)
-- [My grandma’s one-eyed beauty named Amber](https://news.puppy-snuggles.com/5027716/my-grandmas-one-eyed-beauty-named-amber)
-- [He ripped the pad on his foot. Doc said he needs the cone or a sock. He hated the cone and the socks kept falling down. Solution I bought a garter belt. Now the socks stay in place and he feels sexy!](https://news.puppy-snuggles.com/4945230/he-ripped-the-pad-on-his-foot-doc-said-he-needs-the-cone-or-a-sock-he-hated-the-cone-and-the-socks-kept-falling-down-solution-i-bought-a-garter-belt-now-the-socks-stay-in-place-and-he-feels-sexy)
+- [Little butterscotch sitting my my bed :)](https://news.puppy-snuggles.com/5048822/little-butterscotch-sitting-my-my-bed)
+- [Some old cute pics of my dog tucker](https://news.puppy-snuggles.com/5037572/some-old-cute-pics-of-my-dog-tucker)
+- [Maggie the mud queen 💜](https://news.puppy-snuggles.com/5037571/maggie-the-mud-queen)
+- [Archie has a meme-face 😃](https://news.puppy-snuggles.com/5048819/archie-has-a-meme-face)
+- [Little Breeze's first day at home](https://news.puppy-snuggles.com/5032255/little-breezes-first-day-at-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
