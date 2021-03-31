@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Little butterscotch sitting my my bed :)](https://news.puppy-snuggles.com/5048822/little-butterscotch-sitting-my-my-bed)
-- [Some old cute pics of my dog tucker](https://news.puppy-snuggles.com/5037572/some-old-cute-pics-of-my-dog-tucker)
-- [Maggie the mud queen 💜](https://news.puppy-snuggles.com/5037571/maggie-the-mud-queen)
-- [Archie has a meme-face 😃](https://news.puppy-snuggles.com/5048819/archie-has-a-meme-face)
-- [Little Breeze's first day at home](https://news.puppy-snuggles.com/5032255/little-breezes-first-day-at-home)
+- [Reddit - Meet Maverick. Our family’s first Bork machine.](https://news.puppy-snuggles.com/3396234/reddit-meet-maverick-our-familys-first-bork-machine)
+- [The biggest of smiles](https://news.puppy-snuggles.com/3674498/the-biggest-of-smiles)
+- [adorable confusion](https://news.puppy-snuggles.com/5072031/adorable-confusion)
+- [Our first encounter with Charlotte :)](https://news.puppy-snuggles.com/5072026/our-first-encounter-with-charlotte)
+- [Sunday morning and making the most of the teddy bedding!!](https://news.puppy-snuggles.com/4023670/sunday-morning-and-making-the-most-of-the-teddy-bedding)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
