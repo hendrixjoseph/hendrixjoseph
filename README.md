@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Reddit - Meet Maverick. Our family’s first Bork machine.](https://news.puppy-snuggles.com/3396234/reddit-meet-maverick-our-familys-first-bork-machine)
-- [The biggest of smiles](https://news.puppy-snuggles.com/3674498/the-biggest-of-smiles)
-- [adorable confusion](https://news.puppy-snuggles.com/5072031/adorable-confusion)
-- [Our first encounter with Charlotte :)](https://news.puppy-snuggles.com/5072026/our-first-encounter-with-charlotte)
-- [Sunday morning and making the most of the teddy bedding!!](https://news.puppy-snuggles.com/4023670/sunday-morning-and-making-the-most-of-the-teddy-bedding)
+- [Just a photo of our dog lying next our daughter who is recovering from a recent seizure. Sometimes dogs just know how to be there.](https://news.puppy-snuggles.com/5097611/just-a-photo-of-our-dog-lying-next-our-daughter-who-is-recovering-from-a-recent-seizure-sometimes-dogs-just-know-how-to-be-there)
+- [Baby pickle](https://news.puppy-snuggles.com/5097609/baby-pickle)
+- [Best fetcher east of the Mississippi](https://news.puppy-snuggles.com/5097606/best-fetcher-east-of-the-mississippi)
+- [A very tired belgium malinois after a long walk](https://news.puppy-snuggles.com/3996033/a-very-tired-belgium-malinois-after-a-long-walk)
+- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
