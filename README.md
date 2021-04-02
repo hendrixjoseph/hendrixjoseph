@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a photo of our dog lying next our daughter who is recovering from a recent seizure. Sometimes dogs just know how to be there.](https://news.puppy-snuggles.com/5097611/just-a-photo-of-our-dog-lying-next-our-daughter-who-is-recovering-from-a-recent-seizure-sometimes-dogs-just-know-how-to-be-there)
-- [Baby pickle](https://news.puppy-snuggles.com/5097609/baby-pickle)
-- [Best fetcher east of the Mississippi](https://news.puppy-snuggles.com/5097606/best-fetcher-east-of-the-mississippi)
-- [A very tired belgium malinois after a long walk](https://news.puppy-snuggles.com/3996033/a-very-tired-belgium-malinois-after-a-long-walk)
-- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
+- [mine best buddy borus](https://news.puppy-snuggles.com/5121361/mine-best-buddy-borus)
+- [Smile hah hah 😂](https://news.puppy-snuggles.com/5121358/smile-hah-hah)
+- [Live. Laugh. Bark.](https://news.puppy-snuggles.com/5121360/live-laugh-bark)
+- [Rainbows on my puppy Sam](https://news.puppy-snuggles.com/5121359/rainbows-on-my-puppy-sam)
+- [Ellie enjoying Easter vibes](https://news.puppy-snuggles.com/5121357/ellie-enjoying-easter-vibes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
