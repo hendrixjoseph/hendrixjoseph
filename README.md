@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Why the hell do SaaS vendors feel it’s appropriate to email me?](https://www.reddit.com/r/cscareerquestions/comments/mfpjq6/why_the_hell_do_saas_vendors_feel_its_appropriate/gsq9xcj/)
-- [/u/joehx on Why the hell do SaaS vendors feel it’s appropriate to email me?](https://www.reddit.com/r/cscareerquestions/comments/mfpjq6/why_the_hell_do_saas_vendors_feel_its_appropriate/gspbdbe/)
-- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsc55e0/)
-- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsbfecl/)
-- [/u/joehx on Daily FI discussion thread - Friday, March 26, 2021](https://www.reddit.com/r/financialindependence/comments/mdkfn9/daily_fi_discussion_thread_friday_march_26_2021/gsbecpi/)
+- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt7146h/)
+- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt711x4/)
+- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt70t56/)
+- [/u/joehx on Who enforces a City Charter?](https://www.reddit.com/r/legaladviceofftopic/comments/miog16/who_enforces_a_city_charter/gt70ocm/)
+- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt64i72/)
 <!-- REDDIT:END -->
