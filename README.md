@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [mine best buddy borus](https://news.puppy-snuggles.com/5121361/mine-best-buddy-borus)
-- [Smile hah hah 😂](https://news.puppy-snuggles.com/5121358/smile-hah-hah)
-- [Live. Laugh. Bark.](https://news.puppy-snuggles.com/5121360/live-laugh-bark)
-- [Rainbows on my puppy Sam](https://news.puppy-snuggles.com/5121359/rainbows-on-my-puppy-sam)
-- [Ellie enjoying Easter vibes](https://news.puppy-snuggles.com/5121357/ellie-enjoying-easter-vibes)
+- [Lila’s first hike.. she’s 15 weeks old today](https://news.puppy-snuggles.com/5143824/lilas-first-hike-shes-15-weeks-old-today)
+- [When you're secure in yourself, you can pull this look off.](https://news.puppy-snuggles.com/3742233/when-youre-secure-in-yourself-you-can-pull-this-look-off)
+- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
+- [Just my boy Mando being awesome. That is all.](https://news.puppy-snuggles.com/5143826/just-my-boy-mando-being-awesome-that-is-all)
+- [She's absolutely thrilled about her new giant tennis ball](https://news.puppy-snuggles.com/5060321/shes-absolutely-thrilled-about-her-new-giant-tennis-ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
