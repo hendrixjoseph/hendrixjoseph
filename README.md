@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt7etpz/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt7146h/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt711x4/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt70t56/)
 - [/u/joehx on Who enforces a City Charter?](https://www.reddit.com/r/legaladviceofftopic/comments/miog16/who_enforces_a_city_charter/gt70ocm/)
-- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt64i72/)
 <!-- REDDIT:END -->
