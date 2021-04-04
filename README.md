@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lila’s first hike.. she’s 15 weeks old today](https://news.puppy-snuggles.com/5143824/lilas-first-hike-shes-15-weeks-old-today)
-- [When you're secure in yourself, you can pull this look off.](https://news.puppy-snuggles.com/3742233/when-youre-secure-in-yourself-you-can-pull-this-look-off)
-- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
-- [Just my boy Mando being awesome. That is all.](https://news.puppy-snuggles.com/5143826/just-my-boy-mando-being-awesome-that-is-all)
-- [She's absolutely thrilled about her new giant tennis ball](https://news.puppy-snuggles.com/5060321/shes-absolutely-thrilled-about-her-new-giant-tennis-ball)
+- [just a couple of happy pals 💛](https://news.puppy-snuggles.com/5161653/just-a-couple-of-happy-pals)
+- [She's a real beauty!](https://news.puppy-snuggles.com/5161661/shes-a-real-beauty)
+- [Any one else has a mix of chihuahua and Yorkshire?](https://news.puppy-snuggles.com/4699516/any-one-else-has-a-mix-of-chihuahua-and-yorkshire)
+- [She’s about 14 years old now but still as cute as ever](https://news.puppy-snuggles.com/5115357/shes-about-14-years-old-now-but-still-as-cute-as-ever)
+- [Throwback to when I was tiny... 3 weeks ago.](https://news.puppy-snuggles.com/5157885/throwback-to-when-i-was-tiny-3-weeks-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
