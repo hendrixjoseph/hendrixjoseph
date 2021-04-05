@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [just a couple of happy pals 💛](https://news.puppy-snuggles.com/5161653/just-a-couple-of-happy-pals)
-- [She's a real beauty!](https://news.puppy-snuggles.com/5161661/shes-a-real-beauty)
-- [Any one else has a mix of chihuahua and Yorkshire?](https://news.puppy-snuggles.com/4699516/any-one-else-has-a-mix-of-chihuahua-and-yorkshire)
-- [She’s about 14 years old now but still as cute as ever](https://news.puppy-snuggles.com/5115357/shes-about-14-years-old-now-but-still-as-cute-as-ever)
-- [Throwback to when I was tiny... 3 weeks ago.](https://news.puppy-snuggles.com/5157885/throwback-to-when-i-was-tiny-3-weeks-ago)
+- [Happy Easter](https://news.puppy-snuggles.com/5173147/happy-easter)
+- [Keeper of the City](https://news.puppy-snuggles.com/5173146/keeper-of-the-city)
+- [Just can't get enough of the snow](https://news.puppy-snuggles.com/4589677/just-cant-get-enough-of-the-snow)
+- [Please don’t ever grow out of your puppy eyes!](https://news.puppy-snuggles.com/4566545/please-dont-ever-grow-out-of-your-puppy-eyes)
+- [Remington doesn’t like the cold.](https://news.puppy-snuggles.com/3742234/remington-doesnt-like-the-cold)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
