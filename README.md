@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Have u seen anything more cuter today?](https://news.puppy-snuggles.com/5190627/have-u-seen-anything-more-cuter-today)
-- [Franklinton stepped on a tiny shard of glass while I was at work. I came home to bloody paw prints. He limped up to me, and held his paw out to me. I bent it around so I could see the injury. With my knife I plucked the glass out and then wrapped it up with Neosporin. He is now a relieved pupper.](https://news.puppy-snuggles.com/4687093/franklinton-stepped-on-a-tiny-shard-of-glass-while-i-was-at-work-i-came-home-to-bloody-paw-prints-he-limped-up-to-me-and-held-his-paw-out-to-me-i-bent-it-around-so-i-could-see-the-injury-with-my-knife-i-plucked-the-glass-out-and-then-wrapped-it-up-with-neosporin-he-is-now-a-relieved-pupper)
-- [recently, my beloved dog Cody passed away. i really loved him and i am finding it hard to feel happy in any way. Are there any recommendations or anything i can do to not get upset every time i think about him?](https://news.puppy-snuggles.com/4681206/recently-my-beloved-dog-cody-passed-away-i-really-loved-him-and-i-am-finding-it-hard-to-feel-happy-in-any-way-are-there-any-recommendations-or-anything-i-can-do-to-not-get-upset-every-time-i-think-about-him)
-- [A little something to start your day!!](https://news.puppy-snuggles.com/3509275/a-little-something-to-start-your-day)
-- [First post what do you think of my dog?](https://news.puppy-snuggles.com/5190631/first-post-what-do-you-think-of-my-dog)
+- [Soy Sauce first belly rub of the month](https://news.puppy-snuggles.com/5212935/soy-sauce-first-belly-rub-of-the-month)
+- [Celebrating her 1st birthday in style!](https://news.puppy-snuggles.com/4976837/celebrating-her-1st-birthday-in-style)
+- [Last picture of my doggo on CNY Day 1 before she passed away last night due to kidney failure after suffering for a year.](https://news.puppy-snuggles.com/4142559/last-picture-of-my-doggo-on-cny-day-1-before-she-passed-away-last-night-due-to-kidney-failure-after-suffering-for-a-year)
+- [My boy Indie crossed the rainbow Bridge today so here is one of my favorite pictures of him](https://news.puppy-snuggles.com/5161654/my-boy-indie-crossed-the-rainbow-bridge-today-so-here-is-one-of-my-favorite-pictures-of-him)
+- [The dog is the doorbell ?](https://news.puppy-snuggles.com/3545742/the-dog-is-the-doorbell)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
