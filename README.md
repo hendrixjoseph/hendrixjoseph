@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Soy Sauce first belly rub of the month](https://news.puppy-snuggles.com/5212935/soy-sauce-first-belly-rub-of-the-month)
-- [Celebrating her 1st birthday in style!](https://news.puppy-snuggles.com/4976837/celebrating-her-1st-birthday-in-style)
-- [Last picture of my doggo on CNY Day 1 before she passed away last night due to kidney failure after suffering for a year.](https://news.puppy-snuggles.com/4142559/last-picture-of-my-doggo-on-cny-day-1-before-she-passed-away-last-night-due-to-kidney-failure-after-suffering-for-a-year)
-- [My boy Indie crossed the rainbow Bridge today so here is one of my favorite pictures of him](https://news.puppy-snuggles.com/5161654/my-boy-indie-crossed-the-rainbow-bridge-today-so-here-is-one-of-my-favorite-pictures-of-him)
-- [The dog is the doorbell ?](https://news.puppy-snuggles.com/3545742/the-dog-is-the-doorbell)
+- [You got any games on your phone?](https://news.puppy-snuggles.com/5225098/you-got-any-games-on-your-phone)
+- [Half an hour looking for him, in front of our garage just smiling](https://news.puppy-snuggles.com/5238253/half-an-hour-looking-for-him-in-front-of-our-garage-just-smiling)
+- [When you have to leave home for a while, but the seal says no!](https://news.puppy-snuggles.com/5231039/when-you-have-to-leave-home-for-a-while-but-the-seal-says-no)
+- [Dog in the Sun has reached your timeline. Be blessed.](https://news.puppy-snuggles.com/5225097/dog-in-the-sun-has-reached-your-timeline-be-blessed)
+- [I love seeing all the beautiful dog pictures and videos here! This is our Zoey. She wants to play.](https://news.puppy-snuggles.com/5238251/i-love-seeing-all-the-beautiful-dog-pictures-and-videos-here-this-is-our-zoey-she-wants-to-play)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
