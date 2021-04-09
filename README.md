@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [If Only Reading Nonfiction Matters, Then Reading Fiction Matters](https://www.joehxblog.com/if-only-reading-nonfiction-matters/)
 - [March 2021 Book Reading List](https://www.joehxblog.com/march-2021-book-reading-list/)
 - [March 2021 Blog Statistics](https://www.joehxblog.com/march-2021-blog-statistics/)
 - [No-Shave Winter - 121 Selfies Across 121 Days](https://www.joehxblog.com/no-shave-winter/)
 - [February 2021 Book Reading List](https://www.joehxblog.com/february-2021-book-reading-list/)
-- [3D Colorspace Geometry](https://www.joehxblog.com/3d-colorspace-geometry/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
