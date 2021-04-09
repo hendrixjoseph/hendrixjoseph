@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Will Chase Manhattan (JPM) stock split in 2021?](https://www.reddit.com/r/RobinHood/comments/mm3jpb/will_chase_manhattan_jpm_stock_split_in_2021/gttbrv3/)
+- [If Only Reading Nonfiction Matters, Then Reading Fiction Matters](https://www.reddit.com/r/u_joehx/comments/mmhi4y/if_only_reading_nonfiction_matters_then_reading/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt7etpz/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt7146h/)
 - [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt711x4/)
-- [/u/joehx on Huber Heights Community Cleanup on Saturday, April 10th, 2021 10am-11am](https://www.reddit.com/r/dayton/comments/mim1ml/huber_heights_community_cleanup_on_saturday_april/gt70t56/)
-- [/u/joehx on Who enforces a City Charter?](https://www.reddit.com/r/legaladviceofftopic/comments/miog16/who_enforces_a_city_charter/gt70ocm/)
 <!-- REDDIT:END -->
