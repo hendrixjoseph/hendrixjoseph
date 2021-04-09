@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [You got any games on your phone?](https://news.puppy-snuggles.com/5225098/you-got-any-games-on-your-phone)
-- [Half an hour looking for him, in front of our garage just smiling](https://news.puppy-snuggles.com/5238253/half-an-hour-looking-for-him-in-front-of-our-garage-just-smiling)
-- [When you have to leave home for a while, but the seal says no!](https://news.puppy-snuggles.com/5231039/when-you-have-to-leave-home-for-a-while-but-the-seal-says-no)
-- [Dog in the Sun has reached your timeline. Be blessed.](https://news.puppy-snuggles.com/5225097/dog-in-the-sun-has-reached-your-timeline-be-blessed)
-- [I love seeing all the beautiful dog pictures and videos here! This is our Zoey. She wants to play.](https://news.puppy-snuggles.com/5238251/i-love-seeing-all-the-beautiful-dog-pictures-and-videos-here-this-is-our-zoey-she-wants-to-play)
+- [Rosie's face when she saw her new yard for the first time (she's never had her own before!!)](https://news.puppy-snuggles.com/5263694/rosies-face-when-she-saw-her-new-yard-for-the-first-time-shes-never-had-her-own-before)
+- [Second Birthday](https://news.puppy-snuggles.com/5263699/second-birthday)
+- [Majestic Niles](https://news.puppy-snuggles.com/5263698/majestic-niles)
+- [How to give your neighbors a heart attack.](https://news.puppy-snuggles.com/5263696/how-to-give-your-neighbors-a-heart-attack)
+- [Little bunny ears](https://news.puppy-snuggles.com/5263695/little-bunny-ears)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
