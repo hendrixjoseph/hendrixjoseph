@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rosie's face when she saw her new yard for the first time (she's never had her own before!!)](https://news.puppy-snuggles.com/5263694/rosies-face-when-she-saw-her-new-yard-for-the-first-time-shes-never-had-her-own-before)
-- [Second Birthday](https://news.puppy-snuggles.com/5263699/second-birthday)
-- [Majestic Niles](https://news.puppy-snuggles.com/5263698/majestic-niles)
-- [How to give your neighbors a heart attack.](https://news.puppy-snuggles.com/5263696/how-to-give-your-neighbors-a-heart-attack)
-- [Little bunny ears](https://news.puppy-snuggles.com/5263695/little-bunny-ears)
+- [Yes, I did bribe Moose with a treat for this perfect shot. Happy Friday to all!](https://news.puppy-snuggles.com/5286807/yes-i-did-bribe-moose-with-a-treat-for-this-perfect-shot-happy-friday-to-all)
+- [Mother and baby](https://news.puppy-snuggles.com/4137613/mother-and-baby)
+- [Our boy got a bad diagnosis last week, and they've only given him a month. We made him a bucket list and crossed off 1st Beach Trip over the weekend. Lots more to do in the coming weeks!](https://news.puppy-snuggles.com/5286808/our-boy-got-a-bad-diagnosis-last-week-and-theyve-only-given-him-a-month-we-made-him-a-bucket-list-and-crossed-off-1st-beach-trip-over-the-weekend-lots-more-to-do-in-the-coming-weeks)
+- [Sometimes we all get stuck it’s okay.](https://news.puppy-snuggles.com/4995535/sometimes-we-all-get-stuck-its-okay)
+- [Stage five clinger](https://news.puppy-snuggles.com/4196840/stage-five-clinger)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
