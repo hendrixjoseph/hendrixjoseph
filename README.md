@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Police dog named in honor of fallen Suffolk County Sheriff's Office correction officer](https://news.puppy-snuggles.com/5308562/police-dog-named-in-honor-of-fallen-suffolk-county-sheriffs-office-correction-officer)
-- [Enjoying the sun!](https://news.puppy-snuggles.com/5306664/enjoying-the-sun)
-- [My dog max just turned 1 today, first Pic is when he was 3 months old](https://news.puppy-snuggles.com/4508461/my-dog-max-just-turned-1-today-first-pic-is-when-he-was-3-months-old)
-- [She left us today, but Bailey was the best ❤️](https://news.puppy-snuggles.com/5306661/she-left-us-today-but-bailey-was-the-best)
-- [Your shoe? No, I haven't seen it, why do you ask?](https://news.puppy-snuggles.com/5306663/your-shoe-no-i-havent-seen-it-why-do-you-ask)
+- [My dog is always taking shoes](https://news.puppy-snuggles.com/5324363/my-dog-is-always-taking-shoes)
+- [Mr. Guinness, the lab whose smile never ends!](https://news.puppy-snuggles.com/5324356/mr-guinness-the-lab-whose-smile-never-ends)
+- [The happiest dog in town!](https://news.puppy-snuggles.com/4191327/the-happiest-dog-in-town)
+- [how lovely they are!](https://news.puppy-snuggles.com/5324355/how-lovely-they-are)
+- [Dog in the Sun has reached your timeline. Be blessed.](https://news.puppy-snuggles.com/5225097/dog-in-the-sun-has-reached-your-timeline-be-blessed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
