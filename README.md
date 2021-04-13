@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [test just sharing an image](https://www.reddit.com/r/test/comments/mpk6an/test_just_sharing_an_image/)
+- [test sharing Facebook page post with image](https://www.reddit.com/r/test/comments/mpk5i9/test_sharing_facebook_page_post_with_image/)
 - [Update on the Huber Heights Community Cleanup on Saturday, April 10th, 2021](https://www.reddit.com/r/Huberheights/comments/mnljto/update_on_the_huber_heights_community_cleanup_on/)
 - [Update on the Huber Heights Community Cleanup on Saturday, April 10th, 2021](https://www.reddit.com/r/dayton/comments/mnlj84/update_on_the_huber_heights_community_cleanup_on/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 09, 2021](https://www.reddit.com/r/financialindependence/comments/mnd5dg/daily_fi_discussion_thread_friday_april_09_2021/gtxggka/)
-- [/u/joehx on Will Chase Manhattan (JPM) stock split in 2021?](https://www.reddit.com/r/RobinHood/comments/mm3jpb/will_chase_manhattan_jpm_stock_split_in_2021/gttbrv3/)
-- [If Only Reading Nonfiction Matters, Then Reading Fiction Matters](https://www.reddit.com/r/u_joehx/comments/mmhi4y/if_only_reading_nonfiction_matters_then_reading/)
 <!-- REDDIT:END -->
