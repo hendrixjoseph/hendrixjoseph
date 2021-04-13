@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is always taking shoes](https://news.puppy-snuggles.com/5324363/my-dog-is-always-taking-shoes)
-- [Mr. Guinness, the lab whose smile never ends!](https://news.puppy-snuggles.com/5324356/mr-guinness-the-lab-whose-smile-never-ends)
-- [The happiest dog in town!](https://news.puppy-snuggles.com/4191327/the-happiest-dog-in-town)
-- [how lovely they are!](https://news.puppy-snuggles.com/5324355/how-lovely-they-are)
-- [Dog in the Sun has reached your timeline. Be blessed.](https://news.puppy-snuggles.com/5225097/dog-in-the-sun-has-reached-your-timeline-be-blessed)
+- [This is my good ole boy who passed away last month he was 13 and had lived a good life. He brought joy into my life and I wanted to share him with you](https://news.puppy-snuggles.com/5345696/this-is-my-good-ole-boy-who-passed-away-last-month-he-was-13-and-had-lived-a-good-life-he-brought-joy-into-my-life-and-i-wanted-to-share-him-with-you)
+- [She likes her new baby brother!](https://news.puppy-snuggles.com/5345697/she-likes-her-new-baby-brother)
+- [Mylo the mini golden doodle had a ruff day](https://news.puppy-snuggles.com/5345703/mylo-the-mini-golden-doodle-had-a-ruff-day)
+- [This is my best friend Guapo!](https://news.puppy-snuggles.com/4611856/this-is-my-best-friend-guapo)
+- [Guess who just got back from the groomer](https://news.puppy-snuggles.com/5345698/guess-who-just-got-back-from-the-groomer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
