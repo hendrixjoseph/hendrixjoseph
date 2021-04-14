@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is my good ole boy who passed away last month he was 13 and had lived a good life. He brought joy into my life and I wanted to share him with you](https://news.puppy-snuggles.com/5345696/this-is-my-good-ole-boy-who-passed-away-last-month-he-was-13-and-had-lived-a-good-life-he-brought-joy-into-my-life-and-i-wanted-to-share-him-with-you)
-- [She likes her new baby brother!](https://news.puppy-snuggles.com/5345697/she-likes-her-new-baby-brother)
-- [Mylo the mini golden doodle had a ruff day](https://news.puppy-snuggles.com/5345703/mylo-the-mini-golden-doodle-had-a-ruff-day)
-- [This is my best friend Guapo!](https://news.puppy-snuggles.com/4611856/this-is-my-best-friend-guapo)
-- [Guess who just got back from the groomer](https://news.puppy-snuggles.com/5345698/guess-who-just-got-back-from-the-groomer)
+- [Here’s Celeste and her best smile](https://news.puppy-snuggles.com/5368892/heres-celeste-and-her-best-smile)
+- [Here's your Sunday reminder to take a TON of pictures of your dog while they're a puppy - they grow up so fast!](https://news.puppy-snuggles.com/3545740/heres-your-sunday-reminder-to-take-a-ton-of-pictures-of-your-dog-while-theyre-a-puppy-they-grow-up-so-fast)
+- [Always a challenge to get a good picture of him, he always turns away from a camera](https://news.puppy-snuggles.com/5368894/always-a-challenge-to-get-a-good-picture-of-him-he-always-turns-away-from-a-camera)
+- [Any time I get chips with my lunch, Bean has to come visit](https://news.puppy-snuggles.com/5368893/any-time-i-get-chips-with-my-lunch-bean-has-to-come-visit)
+- [Miso may be a southern girl but she is loving winter on the east coast!](https://news.puppy-snuggles.com/4023665/miso-may-be-a-southern-girl-but-she-is-loving-winter-on-the-east-coast)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
