@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s Celeste and her best smile](https://news.puppy-snuggles.com/5368892/heres-celeste-and-her-best-smile)
-- [Here's your Sunday reminder to take a TON of pictures of your dog while they're a puppy - they grow up so fast!](https://news.puppy-snuggles.com/3545740/heres-your-sunday-reminder-to-take-a-ton-of-pictures-of-your-dog-while-theyre-a-puppy-they-grow-up-so-fast)
-- [Always a challenge to get a good picture of him, he always turns away from a camera](https://news.puppy-snuggles.com/5368894/always-a-challenge-to-get-a-good-picture-of-him-he-always-turns-away-from-a-camera)
-- [Any time I get chips with my lunch, Bean has to come visit](https://news.puppy-snuggles.com/5368893/any-time-i-get-chips-with-my-lunch-bean-has-to-come-visit)
-- [Miso may be a southern girl but she is loving winter on the east coast!](https://news.puppy-snuggles.com/4023665/miso-may-be-a-southern-girl-but-she-is-loving-winter-on-the-east-coast)
+- [My silly boi!](https://news.puppy-snuggles.com/5393765/my-silly-boi)
+- [Angelica hopes everyone has a Chill Wednesday🙂](https://news.puppy-snuggles.com/5387066/angelica-hopes-everyone-has-a-chill-wednesday)
+- [When the wrinkles fall backward.](https://news.puppy-snuggles.com/5393766/when-the-wrinkles-fall-backward)
+- [Is it just me or he has a face like cheems](https://news.puppy-snuggles.com/4120714/is-it-just-me-or-he-has-a-face-like-cheems)
+- [The Sapsali dog is considered good luck throughout Korean history &amp;amp; myths for it protects children from evil spirits.](https://news.puppy-snuggles.com/5387067/the-sapsali-dog-is-considered-good-luck-throughout-korean-history-amp-myths-for-it-protects-children-from-evil-spirits)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
