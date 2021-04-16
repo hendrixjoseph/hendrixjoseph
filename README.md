@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My silly boi!](https://news.puppy-snuggles.com/5393765/my-silly-boi)
-- [Angelica hopes everyone has a Chill Wednesday🙂](https://news.puppy-snuggles.com/5387066/angelica-hopes-everyone-has-a-chill-wednesday)
-- [When the wrinkles fall backward.](https://news.puppy-snuggles.com/5393766/when-the-wrinkles-fall-backward)
-- [Is it just me or he has a face like cheems](https://news.puppy-snuggles.com/4120714/is-it-just-me-or-he-has-a-face-like-cheems)
-- [The Sapsali dog is considered good luck throughout Korean history &amp;amp; myths for it protects children from evil spirits.](https://news.puppy-snuggles.com/5387067/the-sapsali-dog-is-considered-good-luck-throughout-korean-history-amp-myths-for-it-protects-children-from-evil-spirits)
+- [My rescue Hailey, her favorite thing in the world is car rides! 🚙 ☺️](https://news.puppy-snuggles.com/5411691/my-rescue-hailey-her-favorite-thing-in-the-world-is-car-rides)
+- [Every day he runs out with a toy to meet my autistic brother getting off the bus from his day program](https://news.puppy-snuggles.com/5048821/every-day-he-runs-out-with-a-toy-to-meet-my-autistic-brother-getting-off-the-bus-from-his-day-program)
+- [Underbite for the win! Lyras special face!](https://news.puppy-snuggles.com/5411692/underbite-for-the-win-lyras-special-face)
+- [Someone Graduated Puppy Class today!](https://news.puppy-snuggles.com/5399979/someone-graduated-puppy-class-today)
+- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
