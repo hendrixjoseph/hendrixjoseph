@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My rescue Hailey, her favorite thing in the world is car rides! 🚙 ☺️](https://news.puppy-snuggles.com/5411691/my-rescue-hailey-her-favorite-thing-in-the-world-is-car-rides)
-- [Every day he runs out with a toy to meet my autistic brother getting off the bus from his day program](https://news.puppy-snuggles.com/5048821/every-day-he-runs-out-with-a-toy-to-meet-my-autistic-brother-getting-off-the-bus-from-his-day-program)
-- [Underbite for the win! Lyras special face!](https://news.puppy-snuggles.com/5411692/underbite-for-the-win-lyras-special-face)
-- [Someone Graduated Puppy Class today!](https://news.puppy-snuggles.com/5399979/someone-graduated-puppy-class-today)
-- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
+- [When she smiles](https://news.puppy-snuggles.com/5434871/when-she-smiles)
+- [Happy 4th birthday to this boy who was a flea-bitten farm pup with a fractured femur when I got him.](https://news.puppy-snuggles.com/5434870/happy-4th-birthday-to-this-boy-who-was-a-flea-bitten-farm-pup-with-a-fractured-femur-when-i-got-him)
+- [One of the happiest pupps I know](https://news.puppy-snuggles.com/3835145/one-of-the-happiest-pupps-i-know)
+- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
+- [My boy Chippy, eternal optimist](https://news.puppy-snuggles.com/3582368/my-boy-chippy-eternal-optimist)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
