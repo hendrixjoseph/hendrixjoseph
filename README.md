@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When she smiles](https://news.puppy-snuggles.com/5434871/when-she-smiles)
-- [Happy 4th birthday to this boy who was a flea-bitten farm pup with a fractured femur when I got him.](https://news.puppy-snuggles.com/5434870/happy-4th-birthday-to-this-boy-who-was-a-flea-bitten-farm-pup-with-a-fractured-femur-when-i-got-him)
-- [One of the happiest pupps I know](https://news.puppy-snuggles.com/3835145/one-of-the-happiest-pupps-i-know)
-- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
-- [My boy Chippy, eternal optimist](https://news.puppy-snuggles.com/3582368/my-boy-chippy-eternal-optimist)
+- [Choco likes cuddles! That bear is one of his favourite things in the house.](https://news.puppy-snuggles.com/5454401/choco-likes-cuddles-that-bear-is-one-of-his-favourite-things-in-the-house)
+- [My dog got his drivers license today!](https://news.puppy-snuggles.com/5446039/my-dog-got-his-drivers-license-today)
+- [Vicious dog murders baby sheep](https://news.puppy-snuggles.com/5454400/vicious-dog-murders-baby-sheep)
+- [This camera shy but still smiley boy just turned 1 yr old today!](https://news.puppy-snuggles.com/5446044/this-camera-shy-but-still-smiley-boy-just-turned-1-yr-old-today)
+- [Finn didn’t like stoping for pictures during our hike.](https://news.puppy-snuggles.com/5446047/finn-didnt-like-stoping-for-pictures-during-our-hike)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
