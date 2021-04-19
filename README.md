@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Choco likes cuddles! That bear is one of his favourite things in the house.](https://news.puppy-snuggles.com/5454401/choco-likes-cuddles-that-bear-is-one-of-his-favourite-things-in-the-house)
-- [My dog got his drivers license today!](https://news.puppy-snuggles.com/5446039/my-dog-got-his-drivers-license-today)
-- [Vicious dog murders baby sheep](https://news.puppy-snuggles.com/5454400/vicious-dog-murders-baby-sheep)
-- [This camera shy but still smiley boy just turned 1 yr old today!](https://news.puppy-snuggles.com/5446044/this-camera-shy-but-still-smiley-boy-just-turned-1-yr-old-today)
-- [Finn didn’t like stoping for pictures during our hike.](https://news.puppy-snuggles.com/5446047/finn-didnt-like-stoping-for-pictures-during-our-hike)
+- [Big yawn](https://news.puppy-snuggles.com/5470469/big-yawn)
+- [This is Emma the Lab and her most favorite bear.](https://news.puppy-snuggles.com/3310424/this-is-emma-the-lab-and-her-most-favorite-bear)
+- [Gheddy’s first snow of the year.](https://news.puppy-snuggles.com/4054322/gheddys-first-snow-of-the-year)
+- [Miso may be a southern girl but she is loving winter on the east coast!](https://news.puppy-snuggles.com/4023665/miso-may-be-a-southern-girl-but-she-is-loving-winter-on-the-east-coast)
+- [&amp;lt;3](https://news.puppy-snuggles.com/5470470/lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
