@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big yawn](https://news.puppy-snuggles.com/5470469/big-yawn)
-- [This is Emma the Lab and her most favorite bear.](https://news.puppy-snuggles.com/3310424/this-is-emma-the-lab-and-her-most-favorite-bear)
-- [Gheddy’s first snow of the year.](https://news.puppy-snuggles.com/4054322/gheddys-first-snow-of-the-year)
-- [Miso may be a southern girl but she is loving winter on the east coast!](https://news.puppy-snuggles.com/4023665/miso-may-be-a-southern-girl-but-she-is-loving-winter-on-the-east-coast)
-- [&amp;lt;3](https://news.puppy-snuggles.com/5470470/lt3)
+- [Molly just got her first professional haircut, and I can't get over how adorable she is!](https://news.puppy-snuggles.com/4945238/molly-just-got-her-first-professional-haircut-and-i-cant-get-over-how-adorable-she-is)
+- [Is it a bat or a rat? Nope it’s LuLu the Boston☺️](https://news.puppy-snuggles.com/4606754/is-it-a-bat-or-a-rat-nope-its-lulu-the-boston)
+- [My family had to say goodbye to our beautiful Sadie this week, we’re so heartbroken but it was a true privilege to spend 14 of her 18 years with her as my best friend.](https://news.puppy-snuggles.com/4699513/my-family-had-to-say-goodbye-to-our-beautiful-sadie-this-week-were-so-heartbroken-but-it-was-a-true-privilege-to-spend-14-of-her-18-years-with-her-as-my-best-friend)
+- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
+- [Classy](https://news.puppy-snuggles.com/5490285/classy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
