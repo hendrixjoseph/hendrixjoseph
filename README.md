@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Molly just got her first professional haircut, and I can't get over how adorable she is!](https://news.puppy-snuggles.com/4945238/molly-just-got-her-first-professional-haircut-and-i-cant-get-over-how-adorable-she-is)
-- [Is it a bat or a rat? Nope it’s LuLu the Boston☺️](https://news.puppy-snuggles.com/4606754/is-it-a-bat-or-a-rat-nope-its-lulu-the-boston)
-- [My family had to say goodbye to our beautiful Sadie this week, we’re so heartbroken but it was a true privilege to spend 14 of her 18 years with her as my best friend.](https://news.puppy-snuggles.com/4699513/my-family-had-to-say-goodbye-to-our-beautiful-sadie-this-week-were-so-heartbroken-but-it-was-a-true-privilege-to-spend-14-of-her-18-years-with-her-as-my-best-friend)
-- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
-- [Classy](https://news.puppy-snuggles.com/5490285/classy)
+- [Boo turned 6 yesterday! 🥺💜](https://news.puppy-snuggles.com/5042873/boo-turned-6-yesterday)
+- [something pleasant, cheerful and pretty](https://news.puppy-snuggles.com/5514679/something-pleasant-cheerful-and-pretty)
+- [Someone is having a hard time grasping the concept of &amp;quot;snowflakes&amp;quot;...](https://news.puppy-snuggles.com/3562121/someone-is-having-a-hard-time-grasping-the-concept-of-quotsnowflakesquot)
+- [I've accidentally let a loaf of bread fall, now it's his property.](https://news.puppy-snuggles.com/5496322/ive-accidentally-let-a-loaf-of-bread-fall-now-its-his-property)
+- [Handsome Gus taking it all in](https://news.puppy-snuggles.com/5507993/handsome-gus-taking-it-all-in)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
