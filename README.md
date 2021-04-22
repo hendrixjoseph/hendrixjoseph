@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Boo turned 6 yesterday! 🥺💜](https://news.puppy-snuggles.com/5042873/boo-turned-6-yesterday)
-- [something pleasant, cheerful and pretty](https://news.puppy-snuggles.com/5514679/something-pleasant-cheerful-and-pretty)
-- [Someone is having a hard time grasping the concept of &amp;quot;snowflakes&amp;quot;...](https://news.puppy-snuggles.com/3562121/someone-is-having-a-hard-time-grasping-the-concept-of-quotsnowflakesquot)
-- [I've accidentally let a loaf of bread fall, now it's his property.](https://news.puppy-snuggles.com/5496322/ive-accidentally-let-a-loaf-of-bread-fall-now-its-his-property)
-- [Handsome Gus taking it all in](https://news.puppy-snuggles.com/5507993/handsome-gus-taking-it-all-in)
+- [Good morning to you all I got a new home now](https://news.puppy-snuggles.com/5532297/good-morning-to-you-all-i-got-a-new-home-now)
+- [brother selfies](https://news.puppy-snuggles.com/5532294/brother-selfies)
+- [RIP Sammy, our little angel, 6.5 years young lost her fight with heart disease this morning.](https://news.puppy-snuggles.com/5538487/rip-sammy-our-little-angel-65-years-young-lost-her-fight-with-heart-disease-this-morning)
+- [Please look at my dog, I love him so much](https://news.puppy-snuggles.com/5538490/please-look-at-my-dog-i-love-him-so-much)
+- [This is extremely accurate](https://news.puppy-snuggles.com/5538488/this-is-extremely-accurate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
