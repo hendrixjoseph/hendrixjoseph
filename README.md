@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good morning to you all I got a new home now](https://news.puppy-snuggles.com/5532297/good-morning-to-you-all-i-got-a-new-home-now)
-- [brother selfies](https://news.puppy-snuggles.com/5532294/brother-selfies)
-- [RIP Sammy, our little angel, 6.5 years young lost her fight with heart disease this morning.](https://news.puppy-snuggles.com/5538487/rip-sammy-our-little-angel-65-years-young-lost-her-fight-with-heart-disease-this-morning)
-- [Please look at my dog, I love him so much](https://news.puppy-snuggles.com/5538490/please-look-at-my-dog-i-love-him-so-much)
-- [This is extremely accurate](https://news.puppy-snuggles.com/5538488/this-is-extremely-accurate)
+- [Finally, after years of wanting a dog but never having the opportunity, I can now say I proudly have one by my side.](https://news.puppy-snuggles.com/5563115/finally-after-years-of-wanting-a-dog-but-never-having-the-opportunity-i-can-now-say-i-proudly-have-one-by-my-side)
+- [My sweet children. Can’t get enough of ‘em.](https://news.puppy-snuggles.com/5563112/my-sweet-children-cant-get-enough-of-em)
+- [Good girl Frida, prior to licking the lens](https://news.puppy-snuggles.com/5556774/good-girl-frida-prior-to-licking-the-lens)
+- [Found my best friend under a bridge in a box when he was 2 months old.. he just turned 5 ❤️](https://news.puppy-snuggles.com/5563116/found-my-best-friend-under-a-bridge-in-a-box-when-he-was-2-months-old-he-just-turned-5)
+- [Megabyte, best dog I’ve ever had. Sleep well old girl.](https://news.puppy-snuggles.com/5563111/megabyte-best-dog-ive-ever-had-sleep-well-old-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
