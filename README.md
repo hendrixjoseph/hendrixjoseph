@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Finally, after years of wanting a dog but never having the opportunity, I can now say I proudly have one by my side.](https://news.puppy-snuggles.com/5563115/finally-after-years-of-wanting-a-dog-but-never-having-the-opportunity-i-can-now-say-i-proudly-have-one-by-my-side)
-- [My sweet children. Can’t get enough of ‘em.](https://news.puppy-snuggles.com/5563112/my-sweet-children-cant-get-enough-of-em)
-- [Good girl Frida, prior to licking the lens](https://news.puppy-snuggles.com/5556774/good-girl-frida-prior-to-licking-the-lens)
-- [Found my best friend under a bridge in a box when he was 2 months old.. he just turned 5 ❤️](https://news.puppy-snuggles.com/5563116/found-my-best-friend-under-a-bridge-in-a-box-when-he-was-2-months-old-he-just-turned-5)
-- [Megabyte, best dog I’ve ever had. Sleep well old girl.](https://news.puppy-snuggles.com/5563111/megabyte-best-dog-ive-ever-had-sleep-well-old-girl)
+- [Saw my lifelong dream today. The little chocolate lab puppy was so wiggly!](https://news.puppy-snuggles.com/5587946/saw-my-lifelong-dream-today-the-little-chocolate-lab-puppy-was-so-wiggly)
+- [Rhylee Peek](https://news.puppy-snuggles.com/5587947/rhylee-peek)
+- [I love how menacing she can look, because in reality, she is the sweetest and more loyal companion ever. 🖤](https://news.puppy-snuggles.com/5587948/i-love-how-menacing-she-can-look-because-in-reality-she-is-the-sweetest-and-more-loyal-companion-ever)
+- [Hug incoming!](https://news.puppy-snuggles.com/5587942/hug-incoming)
+- [My parents adopted this sweet girl recently 💞](https://news.puppy-snuggles.com/5587943/my-parents-adopted-this-sweet-girl-recently)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
