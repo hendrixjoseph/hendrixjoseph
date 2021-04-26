@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His little Paws...](https://news.puppy-snuggles.com/5608321/his-little-paws)
-- [Celebrating 5 years with Ziggy Stardust today! 💙](https://news.puppy-snuggles.com/4293942/celebrating-5-years-with-ziggy-stardust-today)
-- [Since it’s my cake day, here’s a picture of my favorite girl who passed away a few months ago at the age of 18. She was with me for all of my childhood and never left my side. Miss you Patches](https://news.puppy-snuggles.com/4256089/since-its-my-cake-day-heres-a-picture-of-my-favorite-girl-who-passed-away-a-few-months-ago-at-the-age-of-18-she-was-with-me-for-all-of-my-childhood-and-never-left-my-side-miss-you-patches)
-- [sweetest little lady ran into a tree and broke her leg. recovery going well &amp;amp; she’s gonna have a pretty rad scar under all her fur!](https://news.puppy-snuggles.com/5608329/sweetest-little-lady-ran-into-a-tree-and-broke-her-leg-recovery-going-well-amp-shes-gonna-have-a-pretty-rad-scar-under-all-her-fur)
-- [Don't Forget To SMILEEEEE](https://news.puppy-snuggles.com/5608328/dont-forget-to-smileeeee)
+- [Mastiff and buddies](https://news.puppy-snuggles.com/5624389/mastiff-and-buddies)
+- [7 years since we brought this puppet home for the first time!!](https://news.puppy-snuggles.com/5624394/7-years-since-we-brought-this-puppet-home-for-the-first-time)
+- [hey! My grandma picked up this little girl yesterday, her name is star!](https://news.puppy-snuggles.com/5624395/hey-my-grandma-picked-up-this-little-girl-yesterday-her-name-is-star)
+- [It doesn’t snow here often so we’re very confused](https://news.puppy-snuggles.com/4180463/it-doesnt-snow-here-often-so-were-very-confused)
+- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
