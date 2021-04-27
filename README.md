@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mastiff and buddies](https://news.puppy-snuggles.com/5624389/mastiff-and-buddies)
-- [7 years since we brought this puppet home for the first time!!](https://news.puppy-snuggles.com/5624394/7-years-since-we-brought-this-puppet-home-for-the-first-time)
-- [hey! My grandma picked up this little girl yesterday, her name is star!](https://news.puppy-snuggles.com/5624395/hey-my-grandma-picked-up-this-little-girl-yesterday-her-name-is-star)
-- [It doesn’t snow here often so we’re very confused](https://news.puppy-snuggles.com/4180463/it-doesnt-snow-here-often-so-were-very-confused)
-- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
+- [My dog might be better then me](https://news.puppy-snuggles.com/5638737/my-dog-might-be-better-then-me)
+- [My girl left us this past weekend:'( pic from the day I got her vs last pic I took of her. Give your pups some love for me!!](https://news.puppy-snuggles.com/5638736/my-girl-left-us-this-past-weekend-pic-from-the-day-i-got-her-vs-last-pic-i-took-of-her-give-your-pups-some-love-for-me)
+- [Can't Resist to Boop the Sleeping Snoot](https://news.puppy-snuggles.com/5638742/cant-resist-to-boop-the-sleeping-snoot)
+- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
+- [Meet Friday](https://news.puppy-snuggles.com/4268809/meet-friday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
