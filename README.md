@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is a hill you're willing to die on?](https://www.reddit.com/r/AskReddit/comments/myf57l/what_is_a_hill_youre_willing_to_die_on/gvy8fx0/)
 - [Sometimes The Unit is Not the Unit](https://www.reddit.com/r/u_joehx/comments/mwbeqh/sometimes_the_unit_is_not_the_unit/)
 - [That Gate on Corby Way, Huber Heights – Joseph Hendrix, Candidate for Ward 3, Huber Heights](https://www.reddit.com/r/u_joehx/comments/mufbc6/that_gate_on_corby_way_huber_heights_joseph/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, April 14, 2021](https://www.reddit.com/r/financialindependence/comments/mqmnmz/daily_fi_discussion_thread_wednesday_april_14_2021/gui0xi9/)
 - [/u/joehx on Weekly Self-Promotion Thread - April 14, 2021](https://www.reddit.com/r/financialindependence/comments/mqmnmy/weekly_selfpromotion_thread_april_14_2021/guhub0l/)
-- [test just sharing an image](https://www.reddit.com/r/test/comments/mpk6an/test_just_sharing_an_image/)
 <!-- REDDIT:END -->
