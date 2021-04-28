@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog might be better then me](https://news.puppy-snuggles.com/5638737/my-dog-might-be-better-then-me)
-- [My girl left us this past weekend:'( pic from the day I got her vs last pic I took of her. Give your pups some love for me!!](https://news.puppy-snuggles.com/5638736/my-girl-left-us-this-past-weekend-pic-from-the-day-i-got-her-vs-last-pic-i-took-of-her-give-your-pups-some-love-for-me)
-- [Can't Resist to Boop the Sleeping Snoot](https://news.puppy-snuggles.com/5638742/cant-resist-to-boop-the-sleeping-snoot)
-- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
-- [Meet Friday](https://news.puppy-snuggles.com/4268809/meet-friday)
+- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
+- [Don't Forget To SMILEEEEE](https://news.puppy-snuggles.com/5608328/dont-forget-to-smileeeee)
+- [Said goodbye to my big guy of ten years](https://news.puppy-snuggles.com/4584493/said-goodbye-to-my-big-guy-of-ten-years)
+- [I found a pic of my last dog Jade, who passed a few years ago. I love this one!](https://news.puppy-snuggles.com/5603741/i-found-a-pic-of-my-last-dog-jade-who-passed-a-few-years-ago-i-love-this-one)
+- [TMW Calli was told she cannot play with the neighbors during a pandemic.](https://news.puppy-snuggles.com/4419774/tmw-calli-was-told-she-cannot-play-with-the-neighbors-during-a-pandemic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
