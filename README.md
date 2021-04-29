@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New member of the family. Still acclimatising to living with us.](https://news.puppy-snuggles.com/4424126/new-member-of-the-family-still-acclimatising-to-living-with-us)
-- [Don't Forget To SMILEEEEE](https://news.puppy-snuggles.com/5608328/dont-forget-to-smileeeee)
-- [Said goodbye to my big guy of ten years](https://news.puppy-snuggles.com/4584493/said-goodbye-to-my-big-guy-of-ten-years)
-- [I found a pic of my last dog Jade, who passed a few years ago. I love this one!](https://news.puppy-snuggles.com/5603741/i-found-a-pic-of-my-last-dog-jade-who-passed-a-few-years-ago-i-love-this-one)
-- [TMW Calli was told she cannot play with the neighbors during a pandemic.](https://news.puppy-snuggles.com/4419774/tmw-calli-was-told-she-cannot-play-with-the-neighbors-during-a-pandemic)
+- [First experience of snow :)](https://news.puppy-snuggles.com/3690805/first-experience-of-snow)
+- [Excuse hooman. Valentine’s Day is coming. Wish to taco ‘bout love with you.](https://news.puppy-snuggles.com/4072206/excuse-hooman-valentines-day-is-coming-wish-to-taco-bout-love-with-you)
+- [Smile...it's hump day!](https://news.puppy-snuggles.com/5680819/smileits-hump-day)
+- [Dog Style in Beach](https://news.puppy-snuggles.com/5680820/dog-style-in-beach)
+- [Just posting some pictures of my silly girl.](https://news.puppy-snuggles.com/4400567/just-posting-some-pictures-of-my-silly-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
