@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [First experience of snow :)](https://news.puppy-snuggles.com/3690805/first-experience-of-snow)
-- [Excuse hooman. Valentine’s Day is coming. Wish to taco ‘bout love with you.](https://news.puppy-snuggles.com/4072206/excuse-hooman-valentines-day-is-coming-wish-to-taco-bout-love-with-you)
-- [Smile...it's hump day!](https://news.puppy-snuggles.com/5680819/smileits-hump-day)
-- [Dog Style in Beach](https://news.puppy-snuggles.com/5680820/dog-style-in-beach)
-- [Just posting some pictures of my silly girl.](https://news.puppy-snuggles.com/4400567/just-posting-some-pictures-of-my-silly-girl)
+- [Always ready for ball time](https://news.puppy-snuggles.com/4713211/always-ready-for-ball-time)
+- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
+- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
+- [Our little Honey. She's a Shiba Inu/Mini Poodle, 6 months old.](https://news.puppy-snuggles.com/4152378/our-little-honey-shes-a-shiba-inumini-poodle-6-months-old)
+- [I really wanted to share this cool picture I took of my 12 year old lab on a walk yesterday. She says hi to all of you!](https://news.puppy-snuggles.com/4536632/i-really-wanted-to-share-this-cool-picture-i-took-of-my-12-year-old-lab-on-a-walk-yesterday-she-says-hi-to-all-of-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
