@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Always ready for ball time](https://news.puppy-snuggles.com/4713211/always-ready-for-ball-time)
-- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
-- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
-- [Our little Honey. She's a Shiba Inu/Mini Poodle, 6 months old.](https://news.puppy-snuggles.com/4152378/our-little-honey-shes-a-shiba-inumini-poodle-6-months-old)
-- [I really wanted to share this cool picture I took of my 12 year old lab on a walk yesterday. She says hi to all of you!](https://news.puppy-snuggles.com/4536632/i-really-wanted-to-share-this-cool-picture-i-took-of-my-12-year-old-lab-on-a-walk-yesterday-she-says-hi-to-all-of-you)
+- [Yes, mommy. I had a good time at the park. Can I get a drink of water now?](https://news.puppy-snuggles.com/5724326/yes-mommy-i-had-a-good-time-at-the-park-can-i-get-a-drink-of-water-now)
+- [A well earned rest after a day of napping](https://news.puppy-snuggles.com/5718481/a-well-earned-rest-after-a-day-of-napping)
+- [Anyone know what this breed? It is so cute.](https://news.puppy-snuggles.com/5724329/anyone-know-what-this-breed-it-is-so-cute)
+- [My best girl Lucy had such a beautiful and happy smile. We lost her 10 weeks ago today at age 17. But she’s in our hearts every single minute of every single day.](https://news.puppy-snuggles.com/5157884/my-best-girl-lucy-had-such-a-beautiful-and-happy-smile-we-lost-her-10-weeks-ago-today-at-age-17-but-shes-in-our-hearts-every-single-minute-of-every-single-day)
+- [Our rescue puppy Jupiter living it up with her new wardrobe and her stuffy. She was in a terrible house and got stuck in a fence when she was little so she has a huge scar across her side. We say it gives her character. But now she’s living her best life!!! 🐶❤️❤️❤️](https://news.puppy-snuggles.com/4699514/our-rescue-puppy-jupiter-living-it-up-with-her-new-wardrobe-and-her-stuffy-she-was-in-a-terrible-house-and-got-stuck-in-a-fence-when-she-was-little-so-she-has-a-huge-scar-across-her-side-we-say-it-gives-her-character-but-now-shes-living-her-best-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
