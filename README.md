@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yes, mommy. I had a good time at the park. Can I get a drink of water now?](https://news.puppy-snuggles.com/5724326/yes-mommy-i-had-a-good-time-at-the-park-can-i-get-a-drink-of-water-now)
-- [A well earned rest after a day of napping](https://news.puppy-snuggles.com/5718481/a-well-earned-rest-after-a-day-of-napping)
-- [Anyone know what this breed? It is so cute.](https://news.puppy-snuggles.com/5724329/anyone-know-what-this-breed-it-is-so-cute)
-- [My best girl Lucy had such a beautiful and happy smile. We lost her 10 weeks ago today at age 17. But she’s in our hearts every single minute of every single day.](https://news.puppy-snuggles.com/5157884/my-best-girl-lucy-had-such-a-beautiful-and-happy-smile-we-lost-her-10-weeks-ago-today-at-age-17-but-shes-in-our-hearts-every-single-minute-of-every-single-day)
-- [Our rescue puppy Jupiter living it up with her new wardrobe and her stuffy. She was in a terrible house and got stuck in a fence when she was little so she has a huge scar across her side. We say it gives her character. But now she’s living her best life!!! 🐶❤️❤️❤️](https://news.puppy-snuggles.com/4699514/our-rescue-puppy-jupiter-living-it-up-with-her-new-wardrobe-and-her-stuffy-she-was-in-a-terrible-house-and-got-stuck-in-a-fence-when-she-was-little-so-she-has-a-huge-scar-across-her-side-we-say-it-gives-her-character-but-now-shes-living-her-best-life)
+- [Any suggestion of my new bag](https://news.puppy-snuggles.com/5744489/any-suggestion-of-my-new-bag)
+- [My boy Titan in his prime in Alaska around 3 or 4 years old, to now 10 years old retired in the south and sleeps all day ❤](https://news.puppy-snuggles.com/4147136/my-boy-titan-in-his-prime-in-alaska-around-3-or-4-years-old-to-now-10-years-old-retired-in-the-south-and-sleeps-all-day)
+- [My late dog, Charlie. He passed away in Oct, 2015. I still miss him even after all this time.](https://news.puppy-snuggles.com/3545739/my-late-dog-charlie-he-passed-away-in-oct-2015-i-still-miss-him-even-after-all-this-time)
+- [Since it’s my cake day, here’s a picture of my favorite girl who passed away a few months ago at the age of 18. She was with me for all of my childhood and never left my side. Miss you Patches](https://news.puppy-snuggles.com/4256089/since-its-my-cake-day-heres-a-picture-of-my-favorite-girl-who-passed-away-a-few-months-ago-at-the-age-of-18-she-was-with-me-for-all-of-my-childhood-and-never-left-my-side-miss-you-patches)
+- [we call him ROOFus](https://news.puppy-snuggles.com/5718485/we-call-him-roofus)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
