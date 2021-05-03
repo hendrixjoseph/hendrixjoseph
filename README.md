@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Any suggestion of my new bag](https://news.puppy-snuggles.com/5744489/any-suggestion-of-my-new-bag)
-- [My boy Titan in his prime in Alaska around 3 or 4 years old, to now 10 years old retired in the south and sleeps all day ❤](https://news.puppy-snuggles.com/4147136/my-boy-titan-in-his-prime-in-alaska-around-3-or-4-years-old-to-now-10-years-old-retired-in-the-south-and-sleeps-all-day)
-- [My late dog, Charlie. He passed away in Oct, 2015. I still miss him even after all this time.](https://news.puppy-snuggles.com/3545739/my-late-dog-charlie-he-passed-away-in-oct-2015-i-still-miss-him-even-after-all-this-time)
-- [Since it’s my cake day, here’s a picture of my favorite girl who passed away a few months ago at the age of 18. She was with me for all of my childhood and never left my side. Miss you Patches](https://news.puppy-snuggles.com/4256089/since-its-my-cake-day-heres-a-picture-of-my-favorite-girl-who-passed-away-a-few-months-ago-at-the-age-of-18-she-was-with-me-for-all-of-my-childhood-and-never-left-my-side-miss-you-patches)
-- [we call him ROOFus](https://news.puppy-snuggles.com/5718485/we-call-him-roofus)
+- [Take a seat, stay a while!](https://news.puppy-snuggles.com/4072201/take-a-seat-stay-a-while)
+- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
+- [&amp;quot;Have you tried the sprinkler?&amp;quot;](https://news.puppy-snuggles.com/5703058/quothave-you-tried-the-sprinklerquot)
+- [It’s hot today at the animal shelter! Brandy decides to take a dip, don’t mind me, I’m just chilling](https://news.puppy-snuggles.com/5749192/its-hot-today-at-the-animal-shelter-brandy-decides-to-take-a-dip-dont-mind-me-im-just-chilling)
+- [I took this picture of my dog at my grandparents house. Hope y'all like it!](https://news.puppy-snuggles.com/3521397/i-took-this-picture-of-my-dog-at-my-grandparents-house-hope-yall-like-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
