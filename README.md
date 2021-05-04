@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Take a seat, stay a while!](https://news.puppy-snuggles.com/4072201/take-a-seat-stay-a-while)
-- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
-- [&amp;quot;Have you tried the sprinkler?&amp;quot;](https://news.puppy-snuggles.com/5703058/quothave-you-tried-the-sprinklerquot)
-- [It’s hot today at the animal shelter! Brandy decides to take a dip, don’t mind me, I’m just chilling](https://news.puppy-snuggles.com/5749192/its-hot-today-at-the-animal-shelter-brandy-decides-to-take-a-dip-dont-mind-me-im-just-chilling)
-- [I took this picture of my dog at my grandparents house. Hope y'all like it!](https://news.puppy-snuggles.com/3521397/i-took-this-picture-of-my-dog-at-my-grandparents-house-hope-yall-like-it)
+- [Should I be concerned if my cat scratched my pit/husky mix in the eye and now the skin around his eye is hanging out a little and leaks juice or will it fix itself?](https://news.puppy-snuggles.com/4222040/should-i-be-concerned-if-my-cat-scratched-my-pithusky-mix-in-the-eye-and-now-the-skin-around-his-eye-is-hanging-out-a-little-and-leaks-juice-or-will-it-fix-itself)
+- [Car rides make him sleepy](https://news.puppy-snuggles.com/5765600/car-rides-make-him-sleepy)
+- [The happiest boy, especially when he has his favorite toys.](https://news.puppy-snuggles.com/5781202/the-happiest-boy-especially-when-he-has-his-favorite-toys)
+- [Louie and Twister are wishing you a happy Friday and a great weekend!](https://news.puppy-snuggles.com/5735852/louie-and-twister-are-wishing-you-a-happy-friday-and-a-great-weekend)
+- [When you have the opportunity to rescue a sweet Aussie Boi like this you obviously do it. Meet Anakin everyone.](https://news.puppy-snuggles.com/5765598/when-you-have-the-opportunity-to-rescue-a-sweet-aussie-boi-like-this-you-obviously-do-it-meet-anakin-everyone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
