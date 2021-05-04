@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [April 2021 Book Reading List](https://www.reddit.com/r/u_joehx/comments/n469wa/april_2021_book_reading_list/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfyozo/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfyfz8/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfm0h5/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfkhle/)
-- [Make Huber Heights City Emails Publicly Available](https://www.reddit.com/r/u_joehx/comments/n1jykp/make_huber_heights_city_emails_publicly_available/)
 <!-- REDDIT:END -->
