@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Should I be concerned if my cat scratched my pit/husky mix in the eye and now the skin around his eye is hanging out a little and leaks juice or will it fix itself?](https://news.puppy-snuggles.com/4222040/should-i-be-concerned-if-my-cat-scratched-my-pithusky-mix-in-the-eye-and-now-the-skin-around-his-eye-is-hanging-out-a-little-and-leaks-juice-or-will-it-fix-itself)
-- [Car rides make him sleepy](https://news.puppy-snuggles.com/5765600/car-rides-make-him-sleepy)
-- [The happiest boy, especially when he has his favorite toys.](https://news.puppy-snuggles.com/5781202/the-happiest-boy-especially-when-he-has-his-favorite-toys)
-- [Louie and Twister are wishing you a happy Friday and a great weekend!](https://news.puppy-snuggles.com/5735852/louie-and-twister-are-wishing-you-a-happy-friday-and-a-great-weekend)
-- [When you have the opportunity to rescue a sweet Aussie Boi like this you obviously do it. Meet Anakin everyone.](https://news.puppy-snuggles.com/5765598/when-you-have-the-opportunity-to-rescue-a-sweet-aussie-boi-like-this-you-obviously-do-it-meet-anakin-everyone)
+- [My shadow, Macy. She is my love. I don't know what I'd do without her.](https://news.puppy-snuggles.com/5787761/my-shadow-macy-she-is-my-love-i-dont-know-what-id-do-without-her)
+- [You won't catch me hooman](https://news.puppy-snuggles.com/5806939/you-wont-catch-me-hooman)
+- [My brother Ducky is my best friend](https://news.puppy-snuggles.com/5806940/my-brother-ducky-is-my-best-friend)
+- [He's 13 and his name is Smoky. Isn't he so distinguished.](https://news.puppy-snuggles.com/4574936/hes-13-and-his-name-is-smoky-isnt-he-so-distinguished)
+- [Daddy quit taking pictures and THROW THE BALL!! 🐕 👽](https://news.puppy-snuggles.com/5806941/daddy-quit-taking-pictures-and-throw-the-ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
