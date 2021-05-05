@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Select a muscle and this website will show you which exercise to train it.](https://www.reddit.com/r/InternetIsBeautiful/comments/n4sayb/select_a_muscle_and_this_website_will_show_you/gwxuxv3/)
 - [April 2021 Book Reading List](https://www.reddit.com/r/u_joehx/comments/n469wa/april_2021_book_reading_list/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfyozo/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfyfz8/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfm0h5/)
-- [/u/joehx on Daily FI discussion thread - Friday, April 30, 2021](https://www.reddit.com/r/financialindependence/comments/n1pwe1/daily_fi_discussion_thread_friday_april_30_2021/gwfkhle/)
 <!-- REDDIT:END -->
