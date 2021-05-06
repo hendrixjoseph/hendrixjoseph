@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My shadow, Macy. She is my love. I don't know what I'd do without her.](https://news.puppy-snuggles.com/5787761/my-shadow-macy-she-is-my-love-i-dont-know-what-id-do-without-her)
-- [You won't catch me hooman](https://news.puppy-snuggles.com/5806939/you-wont-catch-me-hooman)
-- [My brother Ducky is my best friend](https://news.puppy-snuggles.com/5806940/my-brother-ducky-is-my-best-friend)
-- [He's 13 and his name is Smoky. Isn't he so distinguished.](https://news.puppy-snuggles.com/4574936/hes-13-and-his-name-is-smoky-isnt-he-so-distinguished)
-- [Daddy quit taking pictures and THROW THE BALL!! 🐕 👽](https://news.puppy-snuggles.com/5806941/daddy-quit-taking-pictures-and-throw-the-ball)
+- [My boy Buckley!](https://news.puppy-snuggles.com/4251394/my-boy-buckley)
+- [my babe Dog](https://news.puppy-snuggles.com/5813657/my-babe-dog)
+- [Here is such a friendship)](https://news.puppy-snuggles.com/5806933/here-is-such-a-friendship)
+- [Making Sure My Dog Lives Forever, Even If He Passes.](https://news.puppy-snuggles.com/4600716/making-sure-my-dog-lives-forever-even-if-he-passes)
+- [A great shot whilst out with three of the gang this afternoon](https://news.puppy-snuggles.com/5825696/a-great-shot-whilst-out-with-three-of-the-gang-this-afternoon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
