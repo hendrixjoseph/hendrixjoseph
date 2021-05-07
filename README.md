@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Buckley!](https://news.puppy-snuggles.com/4251394/my-boy-buckley)
-- [my babe Dog](https://news.puppy-snuggles.com/5813657/my-babe-dog)
-- [Here is such a friendship)](https://news.puppy-snuggles.com/5806933/here-is-such-a-friendship)
-- [Making Sure My Dog Lives Forever, Even If He Passes.](https://news.puppy-snuggles.com/4600716/making-sure-my-dog-lives-forever-even-if-he-passes)
-- [A great shot whilst out with three of the gang this afternoon](https://news.puppy-snuggles.com/5825696/a-great-shot-whilst-out-with-three-of-the-gang-this-afternoon)
+- [Snuggle time with a dino.](https://news.puppy-snuggles.com/5852816/snuggle-time-with-a-dino)
+- [Tulip Fields + Shiba Inu = Best Combination!](https://news.puppy-snuggles.com/5852814/tulip-fields-shiba-inu-best-combination)
+- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
+- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
+- [Happiest good boi](https://news.puppy-snuggles.com/5839491/happiest-good-boi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
