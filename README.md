@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Snuggle time with a dino.](https://news.puppy-snuggles.com/5852816/snuggle-time-with-a-dino)
-- [Tulip Fields + Shiba Inu = Best Combination!](https://news.puppy-snuggles.com/5852814/tulip-fields-shiba-inu-best-combination)
-- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
-- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
-- [Happiest good boi](https://news.puppy-snuggles.com/5839491/happiest-good-boi)
+- [Love does not discriminate, a beautiful mind and a beautiful relationship is enough to love](https://news.puppy-snuggles.com/5644152/love-does-not-discriminate-a-beautiful-mind-and-a-beautiful-relationship-is-enough-to-love)
+- [Met this wonderful dog while working](https://news.puppy-snuggles.com/5680822/met-this-wonderful-dog-while-working)
+- [Meet my friend; a stray dog who comes to meet me every day in the morning for breakfast (:](https://news.puppy-snuggles.com/3753278/meet-my-friend-a-stray-dog-who-comes-to-meet-me-every-day-in-the-morning-for-breakfast)
+- [This is my little boy myles, he just turned one years old! Please wish him a happy birthday because himbs a goob boy](https://news.puppy-snuggles.com/4815343/this-is-my-little-boy-myles-he-just-turned-one-years-old-please-wish-him-a-happy-birthday-because-himbs-a-goob-boy)
+- [Kangal Shepherd Dog.](https://news.puppy-snuggles.com/5883710/kangal-shepherd-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
