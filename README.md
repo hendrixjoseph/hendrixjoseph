@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love does not discriminate, a beautiful mind and a beautiful relationship is enough to love](https://news.puppy-snuggles.com/5644152/love-does-not-discriminate-a-beautiful-mind-and-a-beautiful-relationship-is-enough-to-love)
-- [Met this wonderful dog while working](https://news.puppy-snuggles.com/5680822/met-this-wonderful-dog-while-working)
-- [Meet my friend; a stray dog who comes to meet me every day in the morning for breakfast (:](https://news.puppy-snuggles.com/3753278/meet-my-friend-a-stray-dog-who-comes-to-meet-me-every-day-in-the-morning-for-breakfast)
-- [This is my little boy myles, he just turned one years old! Please wish him a happy birthday because himbs a goob boy](https://news.puppy-snuggles.com/4815343/this-is-my-little-boy-myles-he-just-turned-one-years-old-please-wish-him-a-happy-birthday-because-himbs-a-goob-boy)
-- [Kangal Shepherd Dog.](https://news.puppy-snuggles.com/5883710/kangal-shepherd-dog)
+- [10 years old but still plays like a puppy](https://news.puppy-snuggles.com/4370996/10-years-old-but-still-plays-like-a-puppy)
+- [At the vet today with my best friend hoping to find out why he’s been having seizures.](https://news.puppy-snuggles.com/5907291/at-the-vet-today-with-my-best-friend-hoping-to-find-out-why-hes-been-having-seizures)
+- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
+- [Our final walk yesterday before she fell asleep for the last time in the sunshine, in my arms. Heartbroken beyond belief. 💔](https://news.puppy-snuggles.com/5907290/our-final-walk-yesterday-before-she-fell-asleep-for-the-last-time-in-the-sunshine-in-my-arms-heartbroken-beyond-belief)
+- [Sometimes you gotta stop and smell the flowers](https://news.puppy-snuggles.com/5907293/sometimes-you-gotta-stop-and-smell-the-flowers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
