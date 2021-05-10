@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [10 years old but still plays like a puppy](https://news.puppy-snuggles.com/4370996/10-years-old-but-still-plays-like-a-puppy)
-- [At the vet today with my best friend hoping to find out why he’s been having seizures.](https://news.puppy-snuggles.com/5907291/at-the-vet-today-with-my-best-friend-hoping-to-find-out-why-hes-been-having-seizures)
-- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
-- [Our final walk yesterday before she fell asleep for the last time in the sunshine, in my arms. Heartbroken beyond belief. 💔](https://news.puppy-snuggles.com/5907290/our-final-walk-yesterday-before-she-fell-asleep-for-the-last-time-in-the-sunshine-in-my-arms-heartbroken-beyond-belief)
-- [Sometimes you gotta stop and smell the flowers](https://news.puppy-snuggles.com/5907293/sometimes-you-gotta-stop-and-smell-the-flowers)
+- [Norkis has taken his bath today 😇](https://news.puppy-snuggles.com/5925993/norkis-has-taken-his-bath-today)
+- [She may be missing a leg, but as long as she has her ball she’s happy.](https://news.puppy-snuggles.com/5244651/she-may-be-missing-a-leg-but-as-long-as-she-has-her-ball-shes-happy)
+- [bunch of cuties](https://news.puppy-snuggles.com/5925995/bunch-of-cuties)
+- [Tracking some coyotes with my two favorite girls](https://news.puppy-snuggles.com/3822695/tracking-some-coyotes-with-my-two-favorite-girls)
+- [My Valentine turned 3 years old! Peanut Butter cake anyone?](https://news.puppy-snuggles.com/4125087/my-valentine-turned-3-years-old-peanut-butter-cake-anyone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
