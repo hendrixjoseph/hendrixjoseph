@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Norkis has taken his bath today 😇](https://news.puppy-snuggles.com/5925993/norkis-has-taken-his-bath-today)
-- [She may be missing a leg, but as long as she has her ball she’s happy.](https://news.puppy-snuggles.com/5244651/she-may-be-missing-a-leg-but-as-long-as-she-has-her-ball-shes-happy)
-- [bunch of cuties](https://news.puppy-snuggles.com/5925995/bunch-of-cuties)
-- [Tracking some coyotes with my two favorite girls](https://news.puppy-snuggles.com/3822695/tracking-some-coyotes-with-my-two-favorite-girls)
-- [My Valentine turned 3 years old! Peanut Butter cake anyone?](https://news.puppy-snuggles.com/4125087/my-valentine-turned-3-years-old-peanut-butter-cake-anyone)
+- [Waking up to this face.](https://news.puppy-snuggles.com/5948722/waking-up-to-this-face)
+- [Sweet mom dog found guarding her dead puppy tied in a plastic trash bag](https://news.puppy-snuggles.com/3718372/sweet-mom-dog-found-guarding-her-dead-puppy-tied-in-a-plastic-trash-bag)
+- [Does this qualify for those calendars with dogs and water](https://news.puppy-snuggles.com/5458426/does-this-qualify-for-those-calendars-with-dogs-and-water)
+- [My boy ♥️♥️](https://news.puppy-snuggles.com/5624393/my-boy)
+- [Just adopted this puppy 🖤 Mr. Pickles](https://news.puppy-snuggles.com/5501996/just-adopted-this-puppy-mr-pickles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
