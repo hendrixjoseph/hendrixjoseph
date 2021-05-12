@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Campaign Strategy Overview - Choosing This Website – Joseph Hendrix, Huber Heights Ward 3 Resident](https://www.reddit.com/r/u_joehx/comments/nac5en/campaign_strategy_overview_choosing_this_website/)
+- [My Exercise Routine](https://www.reddit.com/r/u_joehx/comments/nac4jt/my_exercise_routine/)
 - [Questions for those who've gotten promoted (vs going to another company)](https://www.reddit.com/r/ExperiencedDevs/comments/n93u97/questions_for_those_whove_gotten_promoted_vs/)
 - [/u/joehx on Daily FI discussion thread - Thursday, May 06, 2021](https://www.reddit.com/r/financialindependence/comments/n62ybf/daily_fi_discussion_thread_thursday_may_06_2021/gx5er2z/)
 - [/u/joehx on Weekly Self-Promotion Thread - May 05, 2021](https://www.reddit.com/r/financialindependence/comments/n5bh5c/weekly_selfpromotion_thread_may_05_2021/gx16kqg/)
-- [I Want to Want Something](https://www.reddit.com/r/u_joehx/comments/n53bkl/i_want_to_want_something/)
-- [/u/joehx on Select a muscle and this website will show you which exercise to train it.](https://www.reddit.com/r/InternetIsBeautiful/comments/n4sayb/select_a_muscle_and_this_website_will_show_you/gwxuxv3/)
 <!-- REDDIT:END -->
