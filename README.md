@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Waking up to this face.](https://news.puppy-snuggles.com/5948722/waking-up-to-this-face)
-- [Sweet mom dog found guarding her dead puppy tied in a plastic trash bag](https://news.puppy-snuggles.com/3718372/sweet-mom-dog-found-guarding-her-dead-puppy-tied-in-a-plastic-trash-bag)
-- [Does this qualify for those calendars with dogs and water](https://news.puppy-snuggles.com/5458426/does-this-qualify-for-those-calendars-with-dogs-and-water)
-- [My boy ♥️♥️](https://news.puppy-snuggles.com/5624393/my-boy)
-- [Just adopted this puppy 🖤 Mr. Pickles](https://news.puppy-snuggles.com/5501996/just-adopted-this-puppy-mr-pickles)
+- [I just saved this gremlin from traffic and got her safely home.](https://news.puppy-snuggles.com/4822139/i-just-saved-this-gremlin-from-traffic-and-got-her-safely-home)
+- [Dog pencil portrait.. commission work.. how's it give your valuable feedback](https://news.puppy-snuggles.com/5976426/dog-pencil-portrait-commission-work-hows-it-give-your-valuable-feedback)
+- [When mom takes too long to give you the treat](https://news.puppy-snuggles.com/5976425/when-mom-takes-too-long-to-give-you-the-treat)
+- [the one on the right of the screen, I call mister doggy. Loook at them](https://news.puppy-snuggles.com/5883708/the-one-on-the-right-of-the-screen-i-call-mister-doggy-loook-at-them)
+- [Saying goodbye to my best friend of 16 years is the hardest thing I’ve ever done](https://news.puppy-snuggles.com/5735855/saying-goodbye-to-my-best-friend-of-16-years-is-the-hardest-thing-ive-ever-done)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
