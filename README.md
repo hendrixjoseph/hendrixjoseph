@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I just saved this gremlin from traffic and got her safely home.](https://news.puppy-snuggles.com/4822139/i-just-saved-this-gremlin-from-traffic-and-got-her-safely-home)
-- [Dog pencil portrait.. commission work.. how's it give your valuable feedback](https://news.puppy-snuggles.com/5976426/dog-pencil-portrait-commission-work-hows-it-give-your-valuable-feedback)
-- [When mom takes too long to give you the treat](https://news.puppy-snuggles.com/5976425/when-mom-takes-too-long-to-give-you-the-treat)
-- [the one on the right of the screen, I call mister doggy. Loook at them](https://news.puppy-snuggles.com/5883708/the-one-on-the-right-of-the-screen-i-call-mister-doggy-loook-at-them)
-- [Saying goodbye to my best friend of 16 years is the hardest thing I’ve ever done](https://news.puppy-snuggles.com/5735855/saying-goodbye-to-my-best-friend-of-16-years-is-the-hardest-thing-ive-ever-done)
+- [An adorable stare from my Husky called Daryl! :D &amp;lt;3](https://news.puppy-snuggles.com/4410107/an-adorable-stare-from-my-husky-called-daryl-d-lt3)
+- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
+- [Met this wonderful dog while working](https://news.puppy-snuggles.com/5680822/met-this-wonderful-dog-while-working)
+- [My good old girl River sitting pretty](https://news.puppy-snuggles.com/6004367/my-good-old-girl-river-sitting-pretty)
+- [Meet Jenson (or bear), the five year old Samoyed](https://news.puppy-snuggles.com/4284858/meet-jenson-or-bear-the-five-year-old-samoyed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
