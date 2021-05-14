@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [An adorable stare from my Husky called Daryl! :D &amp;lt;3](https://news.puppy-snuggles.com/4410107/an-adorable-stare-from-my-husky-called-daryl-d-lt3)
-- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
-- [Met this wonderful dog while working](https://news.puppy-snuggles.com/5680822/met-this-wonderful-dog-while-working)
-- [My good old girl River sitting pretty](https://news.puppy-snuggles.com/6004367/my-good-old-girl-river-sitting-pretty)
-- [Meet Jenson (or bear), the five year old Samoyed](https://news.puppy-snuggles.com/4284858/meet-jenson-or-bear-the-five-year-old-samoyed)
+- [IM GETTING THE SHOTGUN](https://news.puppy-snuggles.com/5708823/im-getting-the-shotgun)
+- [I overslept and the kids are looking at me.](https://news.puppy-snuggles.com/5976423/i-overslept-and-the-kids-are-looking-at-me)
+- [Farewell to a King - Carter, June 9, 2006 - May 11, 2021](https://news.puppy-snuggles.com/5976424/farewell-to-a-king-carter-june-9-2006-may-11-2021)
+- [When you FaceTime your best friend](https://news.puppy-snuggles.com/5968923/when-you-facetime-your-best-friend)
+- [Cuddles every morning](https://news.puppy-snuggles.com/4519799/cuddles-every-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
