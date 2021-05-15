@@ -68,9 +68,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly FI Frugal Friday thread - May 14, 2021](https://www.reddit.com/r/financialindependence/comments/nc4307/weekly_fi_frugal_friday_thread_may_14_2021/gy4qq8r/)
 - [/u/joehx on Daily FI discussion thread - Thursday, May 13, 2021](https://www.reddit.com/r/financialindependence/comments/nbc8y2/daily_fi_discussion_thread_thursday_may_13_2021/gxz8wds/)
 - [/u/joehx on Daily FI discussion thread - Thursday, May 13, 2021](https://www.reddit.com/r/financialindependence/comments/nbc8y2/daily_fi_discussion_thread_thursday_may_13_2021/gxywit0/)
 - [Campaign Strategy Overview - Choosing This Website – Joseph Hendrix, Huber Heights Ward 3 Resident](https://www.reddit.com/r/u_joehx/comments/nac5en/campaign_strategy_overview_choosing_this_website/)
 - [My Exercise Routine](https://www.reddit.com/r/u_joehx/comments/nac4jt/my_exercise_routine/)
-- [Questions for those who've gotten promoted (vs going to another company)](https://www.reddit.com/r/ExperiencedDevs/comments/n93u97/questions_for_those_whove_gotten_promoted_vs/)
 <!-- REDDIT:END -->
