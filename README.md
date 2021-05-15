@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [IM GETTING THE SHOTGUN](https://news.puppy-snuggles.com/5708823/im-getting-the-shotgun)
-- [I overslept and the kids are looking at me.](https://news.puppy-snuggles.com/5976423/i-overslept-and-the-kids-are-looking-at-me)
-- [Farewell to a King - Carter, June 9, 2006 - May 11, 2021](https://news.puppy-snuggles.com/5976424/farewell-to-a-king-carter-june-9-2006-may-11-2021)
-- [When you FaceTime your best friend](https://news.puppy-snuggles.com/5968923/when-you-facetime-your-best-friend)
-- [Cuddles every morning](https://news.puppy-snuggles.com/4519799/cuddles-every-morning)
+- [Best friend](https://news.puppy-snuggles.com/6059648/best-friend)
+- [Already posted about Ginger and her mini pack. She has a snaggletooth and she looks either disgusted or judgmental with it](https://news.puppy-snuggles.com/6046065/already-posted-about-ginger-and-her-mini-pack-she-has-a-snaggletooth-and-she-looks-either-disgusted-or-judgmental-with-it)
+- [How was you day guys? Feeling like sleeping...](https://news.puppy-snuggles.com/6059645/how-was-you-day-guys-feeling-like-sleeping)
+- [Three different levels of excitement for bones](https://news.puppy-snuggles.com/6059647/three-different-levels-of-excitement-for-bones)
+- [My dog is just happy to exist and I love him](https://news.puppy-snuggles.com/6059646/my-dog-is-just-happy-to-exist-and-i-love-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
