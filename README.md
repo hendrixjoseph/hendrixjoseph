@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Best friend](https://news.puppy-snuggles.com/6059648/best-friend)
-- [Already posted about Ginger and her mini pack. She has a snaggletooth and she looks either disgusted or judgmental with it](https://news.puppy-snuggles.com/6046065/already-posted-about-ginger-and-her-mini-pack-she-has-a-snaggletooth-and-she-looks-either-disgusted-or-judgmental-with-it)
-- [How was you day guys? Feeling like sleeping...](https://news.puppy-snuggles.com/6059645/how-was-you-day-guys-feeling-like-sleeping)
-- [Three different levels of excitement for bones](https://news.puppy-snuggles.com/6059647/three-different-levels-of-excitement-for-bones)
-- [My dog is just happy to exist and I love him](https://news.puppy-snuggles.com/6059646/my-dog-is-just-happy-to-exist-and-i-love-him)
+- [Puppy Marley vs 1.5 year old Marley 🥺](https://news.puppy-snuggles.com/6083175/puppy-marley-vs-15-year-old-marley)
+- [She's enjoying her stick.](https://news.puppy-snuggles.com/5948721/shes-enjoying-her-stick)
+- [When you just want to be a dog](https://news.puppy-snuggles.com/5912216/when-you-just-want-to-be-a-dog)
+- [The newest member of the family, Rocco 🤧](https://news.puppy-snuggles.com/5956141/the-newest-member-of-the-family-rocco)
+- [#couplegoals](https://news.puppy-snuggles.com/6083176/couplegoals)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
