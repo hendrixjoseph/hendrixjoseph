@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy Marley vs 1.5 year old Marley 🥺](https://news.puppy-snuggles.com/6083175/puppy-marley-vs-15-year-old-marley)
 - [She's enjoying her stick.](https://news.puppy-snuggles.com/5948721/shes-enjoying-her-stick)
-- [When you just want to be a dog](https://news.puppy-snuggles.com/5912216/when-you-just-want-to-be-a-dog)
-- [The newest member of the family, Rocco 🤧](https://news.puppy-snuggles.com/5956141/the-newest-member-of-the-family-rocco)
-- [#couplegoals](https://news.puppy-snuggles.com/6083176/couplegoals)
+- [One very fluffy dude](https://news.puppy-snuggles.com/4809485/one-very-fluffy-dude)
+- [Looks like i’m not going anywhere for a while](https://news.puppy-snuggles.com/4828283/looks-like-im-not-going-anywhere-for-a-while)
+- [My doggo Lexi who is 12 years old and still as healthy as ever!](https://news.puppy-snuggles.com/5962637/my-doggo-lexi-who-is-12-years-old-and-still-as-healthy-as-ever)
+- [My life has gotten so much better since I got this guy](https://news.puppy-snuggles.com/6101441/my-life-has-gotten-so-much-better-since-i-got-this-guy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
