@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She's enjoying her stick.](https://news.puppy-snuggles.com/5948721/shes-enjoying-her-stick)
-- [One very fluffy dude](https://news.puppy-snuggles.com/4809485/one-very-fluffy-dude)
-- [Looks like i’m not going anywhere for a while](https://news.puppy-snuggles.com/4828283/looks-like-im-not-going-anywhere-for-a-while)
-- [My doggo Lexi who is 12 years old and still as healthy as ever!](https://news.puppy-snuggles.com/5962637/my-doggo-lexi-who-is-12-years-old-and-still-as-healthy-as-ever)
-- [My life has gotten so much better since I got this guy](https://news.puppy-snuggles.com/6101441/my-life-has-gotten-so-much-better-since-i-got-this-guy)
+- [Hi. My name is Shadow. I am so smart that I keep refusing to eat regular dog food so my mom gives me hamburger and cottage cheese. She even brings me a bowl of water to drink out of so I can be lazy and not get up. All I have to do is refuse my food and I get all of the special treatment.](https://news.puppy-snuggles.com/6127279/hi-my-name-is-shadow-i-am-so-smart-that-i-keep-refusing-to-eat-regular-dog-food-so-my-mom-gives-me-hamburger-and-cottage-cheese-she-even-brings-me-a-bowl-of-water-to-drink-out-of-so-i-can-be-lazy-and-not-get-up-all-i-have-to-do-is-refuse-my-food-and-i-get-all-of-the-special-treatment)
+- [Meet Starsky and Hutch (not their real names) - a 16&amp;quot;x12&amp;quot; pastel drawing of an adorable couple of dachshunds. Hope you like it, have a cracking week folks! :)](https://news.puppy-snuggles.com/6119716/meet-starsky-and-hutch-not-their-real-names-a-16quotx12quot-pastel-drawing-of-an-adorable-couple-of-dachshunds-hope-you-like-it-have-a-cracking-week-folks)
+- [Best enjoyed with the volume UP! My boy is 13 months](https://news.puppy-snuggles.com/6127275/best-enjoyed-with-the-volume-up-my-boy-is-13-months)
+- [My Dixie chick](https://news.puppy-snuggles.com/6127280/my-dixie-chick)
+- [Bed Time!](https://news.puppy-snuggles.com/6119714/bed-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
