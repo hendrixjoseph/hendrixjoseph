@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi. My name is Shadow. I am so smart that I keep refusing to eat regular dog food so my mom gives me hamburger and cottage cheese. She even brings me a bowl of water to drink out of so I can be lazy and not get up. All I have to do is refuse my food and I get all of the special treatment.](https://news.puppy-snuggles.com/6127279/hi-my-name-is-shadow-i-am-so-smart-that-i-keep-refusing-to-eat-regular-dog-food-so-my-mom-gives-me-hamburger-and-cottage-cheese-she-even-brings-me-a-bowl-of-water-to-drink-out-of-so-i-can-be-lazy-and-not-get-up-all-i-have-to-do-is-refuse-my-food-and-i-get-all-of-the-special-treatment)
-- [Meet Starsky and Hutch (not their real names) - a 16&amp;quot;x12&amp;quot; pastel drawing of an adorable couple of dachshunds. Hope you like it, have a cracking week folks! :)](https://news.puppy-snuggles.com/6119716/meet-starsky-and-hutch-not-their-real-names-a-16quotx12quot-pastel-drawing-of-an-adorable-couple-of-dachshunds-hope-you-like-it-have-a-cracking-week-folks)
-- [Best enjoyed with the volume UP! My boy is 13 months](https://news.puppy-snuggles.com/6127275/best-enjoyed-with-the-volume-up-my-boy-is-13-months)
-- [My Dixie chick](https://news.puppy-snuggles.com/6127280/my-dixie-chick)
-- [Bed Time!](https://news.puppy-snuggles.com/6119714/bed-time)
+- [So precious](https://news.puppy-snuggles.com/6107196/so-precious)
+- [Gotta keep the baby warm.](https://news.puppy-snuggles.com/5514678/gotta-keep-the-baby-warm)
+- [Did someone say picture day?](https://news.puppy-snuggles.com/6155727/did-someone-say-picture-day)
+- [Having a rest on her beanbag](https://news.puppy-snuggles.com/6025007/having-a-rest-on-her-beanbag)
+- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
