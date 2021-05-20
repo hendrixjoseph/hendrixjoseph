@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So precious](https://news.puppy-snuggles.com/6107196/so-precious)
-- [Gotta keep the baby warm.](https://news.puppy-snuggles.com/5514678/gotta-keep-the-baby-warm)
-- [Did someone say picture day?](https://news.puppy-snuggles.com/6155727/did-someone-say-picture-day)
-- [Having a rest on her beanbag](https://news.puppy-snuggles.com/6025007/having-a-rest-on-her-beanbag)
-- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
+- [King of the yard!](https://news.puppy-snuggles.com/5644150/king-of-the-yard)
+- [Had to say goodbye two days ago, he loved every living being so I'm sharing his pic with you all.](https://news.puppy-snuggles.com/6077517/had-to-say-goodbye-two-days-ago-he-loved-every-living-being-so-im-sharing-his-pic-with-you-all)
+- [Farewell to a King - Carter, June 9, 2006 - May 11, 2021](https://news.puppy-snuggles.com/5976424/farewell-to-a-king-carter-june-9-2006-may-11-2021)
+- [Please guys I want to identify his breed.](https://news.puppy-snuggles.com/6184242/please-guys-i-want-to-identify-his-breed)
+- [So cool.](https://news.puppy-snuggles.com/6176361/so-cool)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
