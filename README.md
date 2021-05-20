@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [King of the yard!](https://news.puppy-snuggles.com/5644150/king-of-the-yard)
+- [Does this count? We’re celebrating her 1 year adoption anniversary and she’s lookin cheeky as heck.](https://news.puppy-snuggles.com/5450531/does-this-count-were-celebrating-her-1-year-adoption-anniversary-and-shes-lookin-cheeky-as-heck)
+- [Boo turned 6 yesterday! 🥺💜](https://news.puppy-snuggles.com/5042873/boo-turned-6-yesterday)
+- [Boss the Shepherd ❤️](https://news.puppy-snuggles.com/6206058/boss-the-shepherd)
 - [Had to say goodbye two days ago, he loved every living being so I'm sharing his pic with you all.](https://news.puppy-snuggles.com/6077517/had-to-say-goodbye-two-days-ago-he-loved-every-living-being-so-im-sharing-his-pic-with-you-all)
-- [Farewell to a King - Carter, June 9, 2006 - May 11, 2021](https://news.puppy-snuggles.com/5976424/farewell-to-a-king-carter-june-9-2006-may-11-2021)
-- [Please guys I want to identify his breed.](https://news.puppy-snuggles.com/6184242/please-guys-i-want-to-identify-his-breed)
-- [So cool.](https://news.puppy-snuggles.com/6176361/so-cool)
+- [The path of the righteous pupper is beset on all sides by the heckin evil hoomans](https://news.puppy-snuggles.com/6206057/the-path-of-the-righteous-pupper-is-beset-on-all-sides-by-the-heckin-evil-hoomans)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
