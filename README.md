@@ -48,6 +48,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
 
 <!-- JOE4HUBERHEIGHTS:START -->
+- [Campaign Strategy Overview - My Facebook Strategy](https://www.joe4huberheights.com/my-facebook-strategy/)
+- [Campaign Strategy Overview - Choosing This Website](https://www.joe4huberheights.com/choosing-this-website/)
+- [2021 Huber Heights Ward 3 Primary Results](https://www.joe4huberheights.com/2021-huber-heights-primary-results/)
+- [Make Huber Heights City Emails Publicly Available](https://www.joe4huberheights.com/make-huber-heights-city-emails-publicly-available/)
+- [That Gate on Corby Way, Huber Heights](https://www.joe4huberheights.com/that-gate-on-corby-way/)
 <!-- JOE4HUBERHEIGHTS:END -->
 
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
