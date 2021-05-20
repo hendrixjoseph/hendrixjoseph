@@ -45,6 +45,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 - [April 2021 Blog Statistics](https://www.joehxblog.com/april-2021-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
+## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
+
+<!-- JOE4HUBERHEIGHTS:START -->
+<!-- JOE4HUBERHEIGHTS:END -->
+
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES:START -->
