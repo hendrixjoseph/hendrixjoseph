@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does this count? We’re celebrating her 1 year adoption anniversary and she’s lookin cheeky as heck.](https://news.puppy-snuggles.com/5450531/does-this-count-were-celebrating-her-1-year-adoption-anniversary-and-shes-lookin-cheeky-as-heck)
-- [Boo turned 6 yesterday! 🥺💜](https://news.puppy-snuggles.com/5042873/boo-turned-6-yesterday)
-- [Boss the Shepherd ❤️](https://news.puppy-snuggles.com/6206058/boss-the-shepherd)
-- [Had to say goodbye two days ago, he loved every living being so I'm sharing his pic with you all.](https://news.puppy-snuggles.com/6077517/had-to-say-goodbye-two-days-ago-he-loved-every-living-being-so-im-sharing-his-pic-with-you-all)
-- [The path of the righteous pupper is beset on all sides by the heckin evil hoomans](https://news.puppy-snuggles.com/6206057/the-path-of-the-righteous-pupper-is-beset-on-all-sides-by-the-heckin-evil-hoomans)
+- [Leonardo and Sheamus are the two best friends that anyone could ever have.](https://news.puppy-snuggles.com/6101442/leonardo-and-sheamus-are-the-two-best-friends-that-anyone-could-ever-have)
+- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
+- [When you just want to be a dog](https://news.puppy-snuggles.com/5912216/when-you-just-want-to-be-a-dog)
+- [Who said dogs and cats can't get along](https://news.puppy-snuggles.com/6039581/who-said-dogs-and-cats-cant-get-along)
+- [Our new puppy is here! She is called snickers and she had surgery a few days ago so she's kind tired](https://news.puppy-snuggles.com/4860536/our-new-puppy-is-here-she-is-called-snickers-and-she-had-surgery-a-few-days-ago-so-shes-kind-tired)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
