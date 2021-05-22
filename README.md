@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Leonardo and Sheamus are the two best friends that anyone could ever have.](https://news.puppy-snuggles.com/6101442/leonardo-and-sheamus-are-the-two-best-friends-that-anyone-could-ever-have)
+- [LoKy hugs no one except for his little uncle Tobby.](https://news.puppy-snuggles.com/6234136/loky-hugs-no-one-except-for-his-little-uncle-tobby)
+- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
+- [Built a new bed for her royal highness. I think she approves.](https://news.puppy-snuggles.com/6234137/built-a-new-bed-for-her-royal-highness-i-think-she-approves)
 - [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
-- [When you just want to be a dog](https://news.puppy-snuggles.com/5912216/when-you-just-want-to-be-a-dog)
-- [Who said dogs and cats can't get along](https://news.puppy-snuggles.com/6039581/who-said-dogs-and-cats-cant-get-along)
-- [Our new puppy is here! She is called snickers and she had surgery a few days ago so she's kind tired](https://news.puppy-snuggles.com/4860536/our-new-puppy-is-here-she-is-called-snickers-and-she-had-surgery-a-few-days-ago-so-shes-kind-tired)
+- [Chilling indoors on a hot sunny day.](https://news.puppy-snuggles.com/6012279/chilling-indoors-on-a-hot-sunny-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
