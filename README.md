@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [LoKy hugs no one except for his little uncle Tobby.](https://news.puppy-snuggles.com/6234136/loky-hugs-no-one-except-for-his-little-uncle-tobby)
-- [Moved away from home for the first time and I had to leave my dog with my parents. Miss you scooby.](https://news.puppy-snuggles.com/4892521/moved-away-from-home-for-the-first-time-and-i-had-to-leave-my-dog-with-my-parents-miss-you-scooby)
-- [Built a new bed for her royal highness. I think she approves.](https://news.puppy-snuggles.com/6234137/built-a-new-bed-for-her-royal-highness-i-think-she-approves)
-- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
 - [Chilling indoors on a hot sunny day.](https://news.puppy-snuggles.com/6012279/chilling-indoors-on-a-hot-sunny-day)
+- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
+- [Of course I brushed my teeth. Look:](https://news.puppy-snuggles.com/6004363/of-course-i-brushed-my-teeth-look)
+- [Frost was happy and tired boy after daycare](https://news.puppy-snuggles.com/5935919/frost-was-happy-and-tired-boy-after-daycare)
+- [Sailor of the day](https://news.puppy-snuggles.com/6257822/sailor-of-the-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
