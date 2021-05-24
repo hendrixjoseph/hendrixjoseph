@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chilling indoors on a hot sunny day.](https://news.puppy-snuggles.com/6012279/chilling-indoors-on-a-hot-sunny-day)
-- [Chuck turns nine today and I love him more and more each day!](https://news.puppy-snuggles.com/6025008/chuck-turns-nine-today-and-i-love-him-more-and-more-each-day)
-- [Of course I brushed my teeth. Look:](https://news.puppy-snuggles.com/6004363/of-course-i-brushed-my-teeth-look)
-- [Frost was happy and tired boy after daycare](https://news.puppy-snuggles.com/5935919/frost-was-happy-and-tired-boy-after-daycare)
-- [Sailor of the day](https://news.puppy-snuggles.com/6257822/sailor-of-the-day)
+- [How cute is this hidden puppy?](https://news.puppy-snuggles.com/6281213/how-cute-is-this-hidden-puppy)
+- [My first dog. Lulu. She has completely changed my life. Nothing is as it was before.](https://news.puppy-snuggles.com/5968918/my-first-dog-lulu-she-has-completely-changed-my-life-nothing-is-as-it-was-before)
+- [Eyebrows then and now](https://news.puppy-snuggles.com/6113169/eyebrows-then-and-now)
+- [That looks....comfortable?](https://news.puppy-snuggles.com/6281210/that-lookscomfortable)
+- [I love dogs. What are the places they love to be petted? Here is a handy-dandy chart.](https://news.puppy-snuggles.com/6155729/i-love-dogs-what-are-the-places-they-love-to-be-petted-here-is-a-handy-dandy-chart)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
