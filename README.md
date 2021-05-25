@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How cute is this hidden puppy?](https://news.puppy-snuggles.com/6281213/how-cute-is-this-hidden-puppy)
-- [My first dog. Lulu. She has completely changed my life. Nothing is as it was before.](https://news.puppy-snuggles.com/5968918/my-first-dog-lulu-she-has-completely-changed-my-life-nothing-is-as-it-was-before)
-- [Eyebrows then and now](https://news.puppy-snuggles.com/6113169/eyebrows-then-and-now)
-- [That looks....comfortable?](https://news.puppy-snuggles.com/6281210/that-lookscomfortable)
-- [I love dogs. What are the places they love to be petted? Here is a handy-dandy chart.](https://news.puppy-snuggles.com/6155729/i-love-dogs-what-are-the-places-they-love-to-be-petted-here-is-a-handy-dandy-chart)
+- [Puppy Sunday afternoon chest sleep... this also happens everyday when I have to work! 🤦🏻‍♂️](https://news.puppy-snuggles.com/4873297/puppy-sunday-afternoon-chest-sleep-this-also-happens-everyday-when-i-have-to-work)
+- [While playing a board game with my nephew when George decided I pulled out a belly rub card](https://news.puppy-snuggles.com/6292113/while-playing-a-board-game-with-my-nephew-when-george-decided-i-pulled-out-a-belly-rub-card)
+- [Marvin the Mastiff](https://news.puppy-snuggles.com/6305401/marvin-the-mastiff)
+- [She big mad she wasn't allowed any of my lunch.](https://news.puppy-snuggles.com/6305399/she-big-mad-she-wasnt-allowed-any-of-my-lunch)
+- [Excuse me you are too young for me](https://news.puppy-snuggles.com/6305396/excuse-me-you-are-too-young-for-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
