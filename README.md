@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Tuesday, May 25, 2021](https://www.reddit.com/r/financialindependence/comments/nkl62n/daily_fi_discussion_thread_tuesday_may_25_2021/gzexz5n/)
+- [Java Collections Framework - List Interface Method Examples](https://www.reddit.com/r/u_joehx/comments/nkqv4j/java_collections_framework_list_interface_method/)
 - [/u/joehx on Weekly FI Frugal Friday thread - May 14, 2021](https://www.reddit.com/r/financialindependence/comments/nc4307/weekly_fi_frugal_friday_thread_may_14_2021/gy4qq8r/)
 - [/u/joehx on Daily FI discussion thread - Thursday, May 13, 2021](https://www.reddit.com/r/financialindependence/comments/nbc8y2/daily_fi_discussion_thread_thursday_may_13_2021/gxz8wds/)
 - [/u/joehx on Daily FI discussion thread - Thursday, May 13, 2021](https://www.reddit.com/r/financialindependence/comments/nbc8y2/daily_fi_discussion_thread_thursday_may_13_2021/gxywit0/)
-- [Campaign Strategy Overview - Choosing This Website – Joseph Hendrix, Huber Heights Ward 3 Resident](https://www.reddit.com/r/u_joehx/comments/nac5en/campaign_strategy_overview_choosing_this_website/)
-- [My Exercise Routine](https://www.reddit.com/r/u_joehx/comments/nac4jt/my_exercise_routine/)
 <!-- REDDIT:END -->
