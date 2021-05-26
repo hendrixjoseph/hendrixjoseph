@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy Sunday afternoon chest sleep... this also happens everyday when I have to work! 🤦🏻‍♂️](https://news.puppy-snuggles.com/4873297/puppy-sunday-afternoon-chest-sleep-this-also-happens-everyday-when-i-have-to-work)
-- [While playing a board game with my nephew when George decided I pulled out a belly rub card](https://news.puppy-snuggles.com/6292113/while-playing-a-board-game-with-my-nephew-when-george-decided-i-pulled-out-a-belly-rub-card)
-- [Marvin the Mastiff](https://news.puppy-snuggles.com/6305401/marvin-the-mastiff)
-- [She big mad she wasn't allowed any of my lunch.](https://news.puppy-snuggles.com/6305399/she-big-mad-she-wasnt-allowed-any-of-my-lunch)
-- [Excuse me you are too young for me](https://news.puppy-snuggles.com/6305396/excuse-me-you-are-too-young-for-me)
+- [Played too hard with his new toys.](https://news.puppy-snuggles.com/6333245/played-too-hard-with-his-new-toys)
+- [Photo from a mere six months ago. He was a 15-pound little bundle of cuteness. Now he's a giant 75-pound monster. Still adorable, but now he's capable of dragging me down the street like a dogsled when a scary garbage truck goes by. (Labrador/boxer/sheepdog mutt)](https://news.puppy-snuggles.com/6325514/photo-from-a-mere-six-months-ago-he-was-a-15-pound-little-bundle-of-cuteness-now-hes-a-giant-75-pound-monster-still-adorable-but-now-hes-capable-of-dragging-me-down-the-street-like-a-dogsled-when-a-scary-garbage-truck-goes-by-labradorboxersheepdog-mutt)
+- [My chunky senior pup at the vet for a check up. (Time for a diet and some more exercise - for both of us lol)](https://news.puppy-snuggles.com/6184239/my-chunky-senior-pup-at-the-vet-for-a-check-up-time-for-a-diet-and-some-more-exercise-for-both-of-us-lol)
+- [We said goodbye to the family dog Reese last week. Cancer sucks 🐾](https://news.puppy-snuggles.com/5127609/we-said-goodbye-to-the-family-dog-reese-last-week-cancer-sucks)
+- [My 15 week old pup, smiling and proud, to finally be allowed to sit with our older dog.](https://news.puppy-snuggles.com/6333244/my-15-week-old-pup-smiling-and-proud-to-finally-be-allowed-to-sit-with-our-older-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
