@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It's a big world for a such a little dude](https://news.puppy-snuggles.com/5990177/its-a-big-world-for-a-such-a-little-dude)
+- [Anubis radiates chaos](https://news.puppy-snuggles.com/6390576/anubis-radiates-chaos)
+- [Hello everyone, first post here. This is Zephyr my Doberman. She is 1 year old. Love her to bits.](https://news.puppy-snuggles.com/6325517/hello-everyone-first-post-here-this-is-zephyr-my-doberman-she-is-1-year-old-love-her-to-bits)
 - [Daisy and Bronson trying to scrounge treats from our neighbour.](https://news.puppy-snuggles.com/6052327/daisy-and-bronson-trying-to-scrounge-treats-from-our-neighbour)
-- [Doggo Says hiii](https://news.puppy-snuggles.com/6340880/doggo-says-hiii)
-- [Bashful boy &amp;lt;3](https://news.puppy-snuggles.com/6361670/bashful-boy-lt3)
-- [The guilty look of &amp;quot;I didn't get you anything for mother's day&amp;quot;](https://news.puppy-snuggles.com/5925991/the-guilty-look-of-quoti-didnt-get-you-anything-for-mothers-dayquot)
+- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
+- [My Chihuahua-Teckel Sookie, from puppy to dog](https://news.puppy-snuggles.com/6192382/my-chihuahua-teckel-sookie-from-puppy-to-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
