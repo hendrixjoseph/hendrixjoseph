@@ -68,10 +68,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Anubis radiates chaos](https://news.puppy-snuggles.com/6390576/anubis-radiates-chaos)
-- [Hello everyone, first post here. This is Zephyr my Doberman. She is 1 year old. Love her to bits.](https://news.puppy-snuggles.com/6325517/hello-everyone-first-post-here-this-is-zephyr-my-doberman-she-is-1-year-old-love-her-to-bits)
+- [Here's your Sunday reminder to take a TON of pictures of your dog while they're a puppy - they grow up so fast!](https://news.puppy-snuggles.com/3545740/heres-your-sunday-reminder-to-take-a-ton-of-pictures-of-your-dog-while-theyre-a-puppy-they-grow-up-so-fast)
+- [Dude, I am trying to take a timed Spanish final. I appreciate the emotional support, but please stop drooling on my notes.](https://news.puppy-snuggles.com/4822141/dude-i-am-trying-to-take-a-timed-spanish-final-i-appreciate-the-emotional-support-but-please-stop-drooling-on-my-notes)
 - [Daisy and Bronson trying to scrounge treats from our neighbour.](https://news.puppy-snuggles.com/6052327/daisy-and-bronson-trying-to-scrounge-treats-from-our-neighbour)
-- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
+- [This is my American Bulldog cross Staffordshire Bull Terrier, Doofy. It's his 12th birthday today! Say happy birthday in the comments.](https://news.puppy-snuggles.com/6419171/this-is-my-american-bulldog-cross-staffordshire-bull-terrier-doofy-its-his-12th-birthday-today-say-happy-birthday-in-the-comments)
 - [My Chihuahua-Teckel Sookie, from puppy to dog](https://news.puppy-snuggles.com/6192382/my-chihuahua-teckel-sookie-from-puppy-to-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
