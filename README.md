@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here's your Sunday reminder to take a TON of pictures of your dog while they're a puppy - they grow up so fast!](https://news.puppy-snuggles.com/3545740/heres-your-sunday-reminder-to-take-a-ton-of-pictures-of-your-dog-while-theyre-a-puppy-they-grow-up-so-fast)
-- [Dude, I am trying to take a timed Spanish final. I appreciate the emotional support, but please stop drooling on my notes.](https://news.puppy-snuggles.com/4822141/dude-i-am-trying-to-take-a-timed-spanish-final-i-appreciate-the-emotional-support-but-please-stop-drooling-on-my-notes)
-- [Daisy and Bronson trying to scrounge treats from our neighbour.](https://news.puppy-snuggles.com/6052327/daisy-and-bronson-trying-to-scrounge-treats-from-our-neighbour)
-- [This is my American Bulldog cross Staffordshire Bull Terrier, Doofy. It's his 12th birthday today! Say happy birthday in the comments.](https://news.puppy-snuggles.com/6419171/this-is-my-american-bulldog-cross-staffordshire-bull-terrier-doofy-its-his-12th-birthday-today-say-happy-birthday-in-the-comments)
-- [My Chihuahua-Teckel Sookie, from puppy to dog](https://news.puppy-snuggles.com/6192382/my-chihuahua-teckel-sookie-from-puppy-to-dog)
+- [If you make a mistake, please come back and apologize too.](https://news.puppy-snuggles.com/4536639/if-you-make-a-mistake-please-come-back-and-apologize-too)
+- [World. Meet Elmo](https://news.puppy-snuggles.com/6442307/world-meet-elmo)
+- [This sweet boi Peeti, is always bringing the smiles](https://news.puppy-snuggles.com/6442310/this-sweet-boi-peeti-is-always-bringing-the-smiles)
+- [Abby is being so patient with the new puppy.](https://news.puppy-snuggles.com/6442309/abby-is-being-so-patient-with-the-new-puppy)
+- [Kevin smiles!](https://news.puppy-snuggles.com/6442308/kevin-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
