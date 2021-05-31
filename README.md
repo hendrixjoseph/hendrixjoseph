@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you make a mistake, please come back and apologize too.](https://news.puppy-snuggles.com/4536639/if-you-make-a-mistake-please-come-back-and-apologize-too)
-- [World. Meet Elmo](https://news.puppy-snuggles.com/6442307/world-meet-elmo)
-- [This sweet boi Peeti, is always bringing the smiles](https://news.puppy-snuggles.com/6442310/this-sweet-boi-peeti-is-always-bringing-the-smiles)
-- [Abby is being so patient with the new puppy.](https://news.puppy-snuggles.com/6442309/abby-is-being-so-patient-with-the-new-puppy)
-- [Kevin smiles!](https://news.puppy-snuggles.com/6442308/kevin-smiles)
+- [Dog says: I will protect my friends](https://news.puppy-snuggles.com/6297839/dog-says-i-will-protect-my-friends)
+- [Daisy and Bronson trying to scrounge treats from our neighbour.](https://news.puppy-snuggles.com/6052327/daisy-and-bronson-trying-to-scrounge-treats-from-our-neighbour)
+- [Murphy soaks in the beautiful afternoon](https://news.puppy-snuggles.com/6462541/murphy-soaks-in-the-beautiful-afternoon)
+- [I think he likes convincing me to throw his toy as much as he likes chasing it](https://news.puppy-snuggles.com/6312557/i-think-he-likes-convincing-me-to-throw-his-toy-as-much-as-he-likes-chasing-it)
+- [Giles is proud of his new bow tie](https://news.puppy-snuggles.com/5079110/giles-is-proud-of-his-new-bow-tie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
