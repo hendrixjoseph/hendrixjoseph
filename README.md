@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Java Collections Framework - Map Interface Method Examples](https://www.joehxblog.com/map-interface-method-examples/)
 - [Interesting Reads for the Week Ending May 28th](https://www.joehxblog.com/may-28-interesting-reads/)
 - [2021 Brood X Cicada Emergence](https://www.joehxblog.com/2021-brood-x-cicada-emergence/)
 - [Java Collections Framework - List Interface Method Examples](https://www.joehxblog.com/list-interface-method-examples/)
 - [May 2021 Blog Statistics](https://www.joehxblog.com/may-2021-blog-statistics/)
-- [My Exercise Routine](https://www.joehxblog.com/my-exercise-routine/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
