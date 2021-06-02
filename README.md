@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Java Collections Framework - Map Interface Method Examples](https://www.reddit.com/r/u_joehx/comments/npxfgb/java_collections_framework_map_interface_method/)
+- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/h070r8k/)
 - [Interesting Reads for the Week Ending May 28th](https://www.reddit.com/r/u_joehx/comments/nn65u3/interesting_reads_for_the_week_ending_may_28th/)
 - [2021 Brood X Cicada Emergence](https://www.reddit.com/r/u_joehx/comments/nmzofv/2021_brood_x_cicada_emergence/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, May 25, 2021](https://www.reddit.com/r/financialindependence/comments/nkl62n/daily_fi_discussion_thread_tuesday_may_25_2021/gzexz5n/)
-- [Java Collections Framework - List Interface Method Examples](https://www.reddit.com/r/u_joehx/comments/nkqv4j/java_collections_framework_list_interface_method/)
-- [/u/joehx on Weekly FI Frugal Friday thread - May 14, 2021](https://www.reddit.com/r/financialindependence/comments/nc4307/weekly_fi_frugal_friday_thread_may_14_2021/gy4qq8r/)
 <!-- REDDIT:END -->
