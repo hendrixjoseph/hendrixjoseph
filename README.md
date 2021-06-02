@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My friend's dog turned one this weekend and they threw a party with the neighbors](https://news.puppy-snuggles.com/4600717/my-friends-dog-turned-one-this-weekend-and-they-threw-a-party-with-the-neighbors)
-- [This face. This little face.](https://news.puppy-snuggles.com/6485354/this-face-this-little-face)
-- [Someone say bath time?](https://news.puppy-snuggles.com/6107199/someone-say-bath-time)
-- [My puppy' laugh when I came home hhehe. He is 8 years old and have been with me through ups and downs of my life.](https://news.puppy-snuggles.com/6119712/my-puppy-laugh-when-i-came-home-hhehe-he-is-8-years-old-and-have-been-with-me-through-ups-and-downs-of-my-life)
-- [For all of you who ask what kind your dog is ;)](https://news.puppy-snuggles.com/6092137/for-all-of-you-who-ask-what-kind-your-dog-is)
+- [Just two ex-racing Greyhounds enjoying that retired life together!](https://news.puppy-snuggles.com/6127278/just-two-ex-racing-greyhounds-enjoying-that-retired-life-together)
+- [Whenever I start vacuuming he will bring me a toy and just stare at it intensely. Normally he won't break eyecontact with the toy until I throw it.](https://news.puppy-snuggles.com/6513270/whenever-i-start-vacuuming-he-will-bring-me-a-toy-and-just-stare-at-it-intensely-normally-he-wont-break-eyecontact-with-the-toy-until-i-throw-it)
+- [Goodbye to Harry. My neighbor’s dog. He was 14 and visited me every day after my dog (his best friend passed) I love you so much you stick eating rascal. Sleep well](https://news.puppy-snuggles.com/6155728/goodbye-to-harry-my-neighbors-dog-he-was-14-and-visited-me-every-day-after-my-dog-his-best-friend-passed-i-love-you-so-much-you-stick-eating-rascal-sleep-well)
+- [It’s hot today at the animal shelter! Brandy decides to take a dip, don’t mind me, I’m just chilling](https://news.puppy-snuggles.com/5749192/its-hot-today-at-the-animal-shelter-brandy-decides-to-take-a-dip-dont-mind-me-im-just-chilling)
+- [This old man drives me crazy. I love this overgrown whiny baby though, even when he hides my shoes in the garden.](https://news.puppy-snuggles.com/6281212/this-old-man-drives-me-crazy-i-love-this-overgrown-whiny-baby-though-even-when-he-hides-my-shoes-in-the-garden)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
