@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Have you ever seen a German Shepherd smile? Rescued her little over 2 years ago and this is always what I wake up too 🥺🥰](https://news.puppy-snuggles.com/5875441/have-you-ever-seen-a-german-shepherd-smile-rescued-her-little-over-2-years-ago-and-this-is-always-what-i-wake-up-too)
-- [Six months old, a street mutt of unknown heritage from Greece. Now loving his new life in the Netherlands. Especially on the rare sunny days.](https://news.puppy-snuggles.com/6031870/six-months-old-a-street-mutt-of-unknown-heritage-from-greece-now-loving-his-new-life-in-the-netherlands-especially-on-the-rare-sunny-days)
-- [Dog says: I will protect my friends](https://news.puppy-snuggles.com/6297839/dog-says-i-will-protect-my-friends)
-- [What type of lab mix is my dog?](https://news.puppy-snuggles.com/6555618/what-type-of-lab-mix-is-my-dog)
-- [Happy doggos mid fetch session.](https://news.puppy-snuggles.com/5921344/happy-doggos-mid-fetch-session)
+- [Nice to meet you I'm Lily.](https://news.puppy-snuggles.com/6598696/nice-to-meet-you-im-lily)
+- [Our Best Boy](https://news.puppy-snuggles.com/5781198/our-best-boy)
+- [the sign is for our other dog but i thought this was funny](https://news.puppy-snuggles.com/6492081/the-sign-is-for-our-other-dog-but-i-thought-this-was-funny)
+- [Do you know?](https://news.puppy-snuggles.com/6598689/do-you-know)
+- [He doesn't like to stand one the floor of the boat, so he usually ends up in my lap](https://news.puppy-snuggles.com/6598692/he-doesnt-like-to-stand-one-the-floor-of-the-boat-so-he-usually-ends-up-in-my-lap)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
