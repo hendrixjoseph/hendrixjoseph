@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nice to meet you I'm Lily.](https://news.puppy-snuggles.com/6598696/nice-to-meet-you-im-lily)
-- [Our Best Boy](https://news.puppy-snuggles.com/5781198/our-best-boy)
-- [the sign is for our other dog but i thought this was funny](https://news.puppy-snuggles.com/6492081/the-sign-is-for-our-other-dog-but-i-thought-this-was-funny)
-- [Do you know?](https://news.puppy-snuggles.com/6598689/do-you-know)
-- [He doesn't like to stand one the floor of the boat, so he usually ends up in my lap](https://news.puppy-snuggles.com/6598692/he-doesnt-like-to-stand-one-the-floor-of-the-boat-so-he-usually-ends-up-in-my-lap)
+- [&amp;quot;Does your dog bite?&amp;quot; &amp;quot;No, it's worse. She judges&amp;quot;](https://news.puppy-snuggles.com/6621037/quotdoes-your-dog-bitequot-quotno-its-worse-she-judgesquot)
+- [What is more adorable than one dog? Two dogs, obviously!](https://news.puppy-snuggles.com/6155726/what-is-more-adorable-than-one-dog-two-dogs-obviously)
+- [Goodbye to Harry. My neighbor’s dog. He was 14 and visited me every day after my dog (his best friend passed) I love you so much you stick eating rascal. Sleep well](https://news.puppy-snuggles.com/6155728/goodbye-to-harry-my-neighbors-dog-he-was-14-and-visited-me-every-day-after-my-dog-his-best-friend-passed-i-love-you-so-much-you-stick-eating-rascal-sleep-well)
+- [Adopted a puppy today!](https://news.puppy-snuggles.com/6621035/adopted-a-puppy-today)
+- [When Togo was still a little pupper](https://news.puppy-snuggles.com/6621033/when-togo-was-still-a-little-pupper)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
