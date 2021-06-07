@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&amp;quot;Does your dog bite?&amp;quot; &amp;quot;No, it's worse. She judges&amp;quot;](https://news.puppy-snuggles.com/6621037/quotdoes-your-dog-bitequot-quotno-its-worse-she-judgesquot)
-- [What is more adorable than one dog? Two dogs, obviously!](https://news.puppy-snuggles.com/6155726/what-is-more-adorable-than-one-dog-two-dogs-obviously)
-- [Goodbye to Harry. My neighbor’s dog. He was 14 and visited me every day after my dog (his best friend passed) I love you so much you stick eating rascal. Sleep well](https://news.puppy-snuggles.com/6155728/goodbye-to-harry-my-neighbors-dog-he-was-14-and-visited-me-every-day-after-my-dog-his-best-friend-passed-i-love-you-so-much-you-stick-eating-rascal-sleep-well)
-- [Adopted a puppy today!](https://news.puppy-snuggles.com/6621035/adopted-a-puppy-today)
-- [When Togo was still a little pupper](https://news.puppy-snuggles.com/6621033/when-togo-was-still-a-little-pupper)
+- [My best buddy is spending the night in the ER. Just hoping she gets better.](https://news.puppy-snuggles.com/6267808/my-best-buddy-is-spending-the-night-in-the-er-just-hoping-she-gets-better)
+- [The sweetest dog I have EVER met!! (watching her while her hooman is in the hospital)](https://news.puppy-snuggles.com/5292802/the-sweetest-dog-i-have-ever-met-watching-her-while-her-hooman-is-in-the-hospital)
+- [This is Blue! Or Blu. Or Bleu. Don’t know which way to choose how to spell it yet lol](https://news.puppy-snuggles.com/3525961/this-is-blue-or-blu-or-bleu-dont-know-which-way-to-choose-how-to-spell-it-yet-lol)
+- [Special needs boi recovering from neck surgery ♥️🥺 Love him so much.](https://news.puppy-snuggles.com/4489791/special-needs-boi-recovering-from-neck-surgery-love-him-so-much)
+- [Handsome boy. (10 months)](https://news.puppy-snuggles.com/5890904/handsome-boy-10-months)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
