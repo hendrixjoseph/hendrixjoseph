@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best buddy is spending the night in the ER. Just hoping she gets better.](https://news.puppy-snuggles.com/6267808/my-best-buddy-is-spending-the-night-in-the-er-just-hoping-she-gets-better)
-- [The sweetest dog I have EVER met!! (watching her while her hooman is in the hospital)](https://news.puppy-snuggles.com/5292802/the-sweetest-dog-i-have-ever-met-watching-her-while-her-hooman-is-in-the-hospital)
-- [This is Blue! Or Blu. Or Bleu. Don’t know which way to choose how to spell it yet lol](https://news.puppy-snuggles.com/3525961/this-is-blue-or-blu-or-bleu-dont-know-which-way-to-choose-how-to-spell-it-yet-lol)
-- [Special needs boi recovering from neck surgery ♥️🥺 Love him so much.](https://news.puppy-snuggles.com/4489791/special-needs-boi-recovering-from-neck-surgery-love-him-so-much)
-- [Handsome boy. (10 months)](https://news.puppy-snuggles.com/5890904/handsome-boy-10-months)
+- [So pretty I was asked to draw her twice. Bella Bella, your face ain't a mess. (EMPHATICALLY not 😍.) Happy weekend to you!](https://news.puppy-snuggles.com/5718483/so-pretty-i-was-asked-to-draw-her-twice-bella-bella-your-face-aint-a-mess-emphatically-not-happy-weekend-to-you)
+- [vote for the cutie](https://news.puppy-snuggles.com/6646729/vote-for-the-cutie)
+- [Dog is happy to go on a walk](https://news.puppy-snuggles.com/6666345/dog-is-happy-to-go-on-a-walk)
+- [My babies are always together](https://news.puppy-snuggles.com/6666346/my-babies-are-always-together)
+- [My happy little dude 😄](https://news.puppy-snuggles.com/6666347/my-happy-little-dude)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
