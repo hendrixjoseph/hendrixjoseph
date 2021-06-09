@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So pretty I was asked to draw her twice. Bella Bella, your face ain't a mess. (EMPHATICALLY not 😍.) Happy weekend to you!](https://news.puppy-snuggles.com/5718483/so-pretty-i-was-asked-to-draw-her-twice-bella-bella-your-face-aint-a-mess-emphatically-not-happy-weekend-to-you)
-- [vote for the cutie](https://news.puppy-snuggles.com/6646729/vote-for-the-cutie)
-- [Dog is happy to go on a walk](https://news.puppy-snuggles.com/6666345/dog-is-happy-to-go-on-a-walk)
-- [My babies are always together](https://news.puppy-snuggles.com/6666346/my-babies-are-always-together)
-- [My happy little dude 😄](https://news.puppy-snuggles.com/6666347/my-happy-little-dude)
+- [baby Bean looks very happy when she’s laying in the bed and I’m in the floor](https://news.puppy-snuggles.com/6695801/baby-bean-looks-very-happy-when-shes-laying-in-the-bed-and-im-in-the-floor)
+- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
+- [My old boy, patrolling his property.](https://news.puppy-snuggles.com/6646723/my-old-boy-patrolling-his-property)
+- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
+- [Lucy smiles!](https://news.puppy-snuggles.com/6695800/lucy-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
