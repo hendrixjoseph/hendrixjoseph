@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [baby Bean looks very happy when she’s laying in the bed and I’m in the floor](https://news.puppy-snuggles.com/6695801/baby-bean-looks-very-happy-when-shes-laying-in-the-bed-and-im-in-the-floor)
-- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
-- [My old boy, patrolling his property.](https://news.puppy-snuggles.com/6646723/my-old-boy-patrolling-his-property)
-- [Meet Frank my American Bully](https://news.puppy-snuggles.com/5761185/meet-frank-my-american-bully)
-- [Lucy smiles!](https://news.puppy-snuggles.com/6695800/lucy-smiles)
+- [Meet my guy, Olaf the blue](https://news.puppy-snuggles.com/6726898/meet-my-guy-olaf-the-blue)
+- [Meet Vira the 9yo Beagle of the fjord.](https://news.puppy-snuggles.com/6718610/meet-vira-the-9yo-beagle-of-the-fjord)
+- [Petey (on the right) doesn’t like other dogs except his sister that recently passed, but here he is finally tolerating my new puppy Lucy that just wants to be his friend so bad](https://news.puppy-snuggles.com/5714178/petey-on-the-right-doesnt-like-other-dogs-except-his-sister-that-recently-passed-but-here-he-is-finally-tolerating-my-new-puppy-lucy-that-just-wants-to-be-his-friend-so-bad)
+- [My dog ADORES my dad, and he's always smiling when they're together](https://news.puppy-snuggles.com/6726899/my-dog-adores-my-dad-and-hes-always-smiling-when-theyre-together)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
