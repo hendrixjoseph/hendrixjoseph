@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on LPT: Any job listing available to Colorado workers must list a salary range by law](https://www.reddit.com/r/ExperiencedDevs/comments/nvj1xk/lpt_any_job_listing_available_to_colorado_workers/h16aekq/)
+- [/u/joehx on Anyone who purchased MoviePass stock "HMNY" between 8/15/17 & 7/26/18, is eligible for class action settlements of $4.00 per share (post reverse stock split). Claim deadline is 7/7/21.](https://www.reddit.com/r/personalfinance/comments/nvootw/anyone_who_purchased_moviepass_stock_hmny_between/h15voxu/)
+- [/u/joehx on Anyone who purchased MoviePass stock "HMNY" between 8/15/17 & 7/26/18, is eligible for class action settlements of $4.00 per share (post reverse stock split). Claim deadline is 7/7/21.](https://www.reddit.com/r/personalfinance/comments/nvootw/anyone_who_purchased_moviepass_stock_hmny_between/h15l0e2/)
 - [Interesting Reads for the Week Ending June 4th](https://www.reddit.com/r/Blogswap/comments/ns8hra/interesting_reads_for_the_week_ending_june_4th/)
 - [/u/joehx on How are we supposed to start a conversation with someone we want to be friends with?](https://www.reddit.com/r/AskReddit/comments/nre277/how_are_we_supposed_to_start_a_conversation_with/h0h21dm/)
-- [Java Collections Framework - Map Interface Method Examples](https://www.reddit.com/r/u_joehx/comments/npxfgb/java_collections_framework_map_interface_method/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2021](https://www.reddit.com/r/cscareerquestions/comments/m7l7z6/official_salary_sharing_thread_for_experienced/h070r8k/)
-- [Interesting Reads for the Week Ending May 28th](https://www.reddit.com/r/u_joehx/comments/nn65u3/interesting_reads_for_the_week_ending_may_28th/)
 <!-- REDDIT:END -->
