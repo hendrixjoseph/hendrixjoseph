@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [baby Bean looks very happy when she’s laying in the bed and I’m in the floor](https://news.puppy-snuggles.com/6695801/baby-bean-looks-very-happy-when-shes-laying-in-the-bed-and-im-in-the-floor)
-- [Meet my guy, Olaf the blue](https://news.puppy-snuggles.com/6726898/meet-my-guy-olaf-the-blue)
-- [Meet Vira the 9yo Beagle of the fjord.](https://news.puppy-snuggles.com/6718610/meet-vira-the-9yo-beagle-of-the-fjord)
-- [Petey (on the right) doesn’t like other dogs except his sister that recently passed, but here he is finally tolerating my new puppy Lucy that just wants to be his friend so bad](https://news.puppy-snuggles.com/5714178/petey-on-the-right-doesnt-like-other-dogs-except-his-sister-that-recently-passed-but-here-he-is-finally-tolerating-my-new-puppy-lucy-that-just-wants-to-be-his-friend-so-bad)
-- [My dog ADORES my dad, and he's always smiling when they're together](https://news.puppy-snuggles.com/6726899/my-dog-adores-my-dad-and-hes-always-smiling-when-theyre-together)
+- [Lola has finally gained a healthy weight. Other pics are her journey.](https://news.puppy-snuggles.com/6757304/lola-has-finally-gained-a-healthy-weight-other-pics-are-her-journey)
+- [Can anyone ID the breed of this dog? I used to have identical as a child](https://news.puppy-snuggles.com/6749337/can-anyone-id-the-breed-of-this-dog-i-used-to-have-identical-as-a-child)
+- [My little princess Olivia, seven months old](https://news.puppy-snuggles.com/6735400/my-little-princess-olivia-seven-months-old)
+- [Two dogs from very different backgrounds now living their best lives together.](https://news.puppy-snuggles.com/5608324/two-dogs-from-very-different-backgrounds-now-living-their-best-lives-together)
+- [Bruce trying to smile](https://news.puppy-snuggles.com/6749332/bruce-trying-to-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
