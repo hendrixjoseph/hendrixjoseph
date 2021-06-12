@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lola has finally gained a healthy weight. Other pics are her journey.](https://news.puppy-snuggles.com/6757304/lola-has-finally-gained-a-healthy-weight-other-pics-are-her-journey)
-- [Can anyone ID the breed of this dog? I used to have identical as a child](https://news.puppy-snuggles.com/6749337/can-anyone-id-the-breed-of-this-dog-i-used-to-have-identical-as-a-child)
-- [My little princess Olivia, seven months old](https://news.puppy-snuggles.com/6735400/my-little-princess-olivia-seven-months-old)
-- [Two dogs from very different backgrounds now living their best lives together.](https://news.puppy-snuggles.com/5608324/two-dogs-from-very-different-backgrounds-now-living-their-best-lives-together)
-- [Bruce trying to smile](https://news.puppy-snuggles.com/6749332/bruce-trying-to-smile)
+- [SNORING!](https://news.puppy-snuggles.com/6718609/snoring)
+- [wow i sure do love my momma ❤️](https://news.puppy-snuggles.com/6780489/wow-i-sure-do-love-my-momma)
+- [Anyone know what type of dog this is?](https://news.puppy-snuggles.com/6735399/anyone-know-what-type-of-dog-this-is)
+- [Theo couldn't be happier with his new bone!](https://news.puppy-snuggles.com/6766282/theo-couldnt-be-happier-with-his-new-bone)
+- [Hanging at the pier with Leia](https://news.puppy-snuggles.com/6780492/hanging-at-the-pier-with-leia)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
