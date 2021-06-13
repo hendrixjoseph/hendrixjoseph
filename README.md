@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [SNORING!](https://news.puppy-snuggles.com/6718609/snoring)
-- [wow i sure do love my momma ❤️](https://news.puppy-snuggles.com/6780489/wow-i-sure-do-love-my-momma)
-- [Anyone know what type of dog this is?](https://news.puppy-snuggles.com/6735399/anyone-know-what-type-of-dog-this-is)
-- [Theo couldn't be happier with his new bone!](https://news.puppy-snuggles.com/6766282/theo-couldnt-be-happier-with-his-new-bone)
-- [Hanging at the pier with Leia](https://news.puppy-snuggles.com/6780492/hanging-at-the-pier-with-leia)
+- [A freshly groomed pup](https://news.puppy-snuggles.com/6805634/a-freshly-groomed-pup)
+- [Happy boy](https://news.puppy-snuggles.com/6811365/happy-boy)
+- [Evie the sun bathing beauty](https://news.puppy-snuggles.com/5749197/evie-the-sun-bathing-beauty)
+- [Got so comfortable in her pile of stuffed toys, she took a nap.](https://news.puppy-snuggles.com/6659194/got-so-comfortable-in-her-pile-of-stuffed-toys-she-took-a-nap)
+- [The enthusiasm is there! The grace is not..](https://news.puppy-snuggles.com/4364812/the-enthusiasm-is-there-the-grace-is-not)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
