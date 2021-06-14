@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [My old good boy having a good time in his trailer because he used to get very tired walking](https://news.puppy-snuggles.com/6096525/my-old-good-boy-having-a-good-time-in-his-trailer-because-he-used-to-get-very-tired-walking)
+- [My great dane, Lurch, who is a year and a half, with my daughter's brand new Siberian Husky, Copper, who is 7 weeks old. I was a little concerned about the size difference, that Lurch would be a little too rough or that he might accidentally step on him, but he's oddly gentle with the little guy.](https://news.puppy-snuggles.com/6827254/my-great-dane-lurch-who-is-a-year-and-a-half-with-my-daughters-brand-new-siberian-husky-copper-who-is-7-weeks-old-i-was-a-little-concerned-about-the-size-difference-that-lurch-would-be-a-little-too-rough-or-that-he-might-accidentally-step-on-him-but-hes-oddly-gentle-with-the-little-guy)
+- [Puppy dab](https://news.puppy-snuggles.com/6827248/puppy-dab)
 - [A freshly groomed pup](https://news.puppy-snuggles.com/6805634/a-freshly-groomed-pup)
-- [Happy boy](https://news.puppy-snuggles.com/6811365/happy-boy)
-- [Evie the sun bathing beauty](https://news.puppy-snuggles.com/5749197/evie-the-sun-bathing-beauty)
-- [Got so comfortable in her pile of stuffed toys, she took a nap.](https://news.puppy-snuggles.com/6659194/got-so-comfortable-in-her-pile-of-stuffed-toys-she-took-a-nap)
-- [The enthusiasm is there! The grace is not..](https://news.puppy-snuggles.com/4364812/the-enthusiasm-is-there-the-grace-is-not)
+- [Party Time.](https://news.puppy-snuggles.com/6800111/party-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
