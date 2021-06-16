@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Invisibility scarf](https://news.puppy-snuggles.com/6646721/invisibility-scarf)
-- [Amber is a very happy girl](https://news.puppy-snuggles.com/6851455/amber-is-a-very-happy-girl)
-- [Waiting for a belly rub. Will not take no for an answer.](https://news.puppy-snuggles.com/6072270/waiting-for-a-belly-rub-will-not-take-no-for-an-answer)
-- [My sweet baby Willow relaxing in the garden 🥰](https://news.puppy-snuggles.com/6513271/my-sweet-baby-willow-relaxing-in-the-garden)
-- [Sporting a new bandana](https://news.puppy-snuggles.com/4260199/sporting-a-new-bandana)
+- [One month old Australian Shepard puppy.](https://news.puppy-snuggles.com/6800107/one-month-old-australian-shepard-puppy)
+- [Pls upvote this Dog image](https://news.puppy-snuggles.com/6881698/pls-upvote-this-dog-image)
+- [She likes to watch me](https://news.puppy-snuggles.com/6859473/she-likes-to-watch-me)
+- [When mom takes too long to give you the treat](https://news.puppy-snuggles.com/5976425/when-mom-takes-too-long-to-give-you-the-treat)
+- [This bestest boy turned 10! Happy Birthday Batman!](https://news.puppy-snuggles.com/6867315/this-bestest-boy-turned-10-happy-birthday-batman)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
