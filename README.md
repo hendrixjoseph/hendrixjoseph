@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One month old Australian Shepard puppy.](https://news.puppy-snuggles.com/6800107/one-month-old-australian-shepard-puppy)
-- [Pls upvote this Dog image](https://news.puppy-snuggles.com/6881698/pls-upvote-this-dog-image)
-- [She likes to watch me](https://news.puppy-snuggles.com/6859473/she-likes-to-watch-me)
-- [When mom takes too long to give you the treat](https://news.puppy-snuggles.com/5976425/when-mom-takes-too-long-to-give-you-the-treat)
-- [This bestest boy turned 10! Happy Birthday Batman!](https://news.puppy-snuggles.com/6867315/this-bestest-boy-turned-10-happy-birthday-batman)
+- [When he falls asleep on your leg](https://news.puppy-snuggles.com/6340875/when-he-falls-asleep-on-your-leg)
+- [Any ideas as to what breed of dog this is? My sister saw it in Paris and would like to know.](https://news.puppy-snuggles.com/3817905/any-ideas-as-to-what-breed-of-dog-this-is-my-sister-saw-it-in-paris-and-would-like-to-know)
+- [My boy blue](https://news.puppy-snuggles.com/6911521/my-boy-blue)
+- [My first dog. Lulu. She has completely changed my life. Nothing is as it was before.](https://news.puppy-snuggles.com/5968918/my-first-dog-lulu-she-has-completely-changed-my-life-nothing-is-as-it-was-before)
+- [My puppy' laugh when I came home hhehe. He is 8 years old and have been with me through ups and downs of my life.](https://news.puppy-snuggles.com/6119712/my-puppy-laugh-when-i-came-home-hhehe-he-is-8-years-old-and-have-been-with-me-through-ups-and-downs-of-my-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
