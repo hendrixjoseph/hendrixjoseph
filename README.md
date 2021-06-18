@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When he falls asleep on your leg](https://news.puppy-snuggles.com/6340875/when-he-falls-asleep-on-your-leg)
-- [Any ideas as to what breed of dog this is? My sister saw it in Paris and would like to know.](https://news.puppy-snuggles.com/3817905/any-ideas-as-to-what-breed-of-dog-this-is-my-sister-saw-it-in-paris-and-would-like-to-know)
-- [My boy blue](https://news.puppy-snuggles.com/6911521/my-boy-blue)
-- [My first dog. Lulu. She has completely changed my life. Nothing is as it was before.](https://news.puppy-snuggles.com/5968918/my-first-dog-lulu-she-has-completely-changed-my-life-nothing-is-as-it-was-before)
-- [My puppy' laugh when I came home hhehe. He is 8 years old and have been with me through ups and downs of my life.](https://news.puppy-snuggles.com/6119712/my-puppy-laugh-when-i-came-home-hhehe-he-is-8-years-old-and-have-been-with-me-through-ups-and-downs-of-my-life)
+- [Reddit, Meet Sadie. I rescued her and took her home today. My heart is full again.](https://news.puppy-snuggles.com/5749190/reddit-meet-sadie-i-rescued-her-and-took-her-home-today-my-heart-is-full-again)
+- [Enjoying the sun and her seagull shaped tounge](https://news.puppy-snuggles.com/6940675/enjoying-the-sun-and-her-seagull-shaped-tounge)
+- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
+- [Spoon likes to dump his toys out all over the floor so that he can chill in his toy box. Because who needs an expensive dog bed anyway...](https://news.puppy-snuggles.com/3582377/spoon-likes-to-dump-his-toys-out-all-over-the-floor-so-that-he-can-chill-in-his-toy-box-because-who-needs-an-expensive-dog-bed-anyway)
+- [My shadow, Macy. She is my love. I don't know what I'd do without her.](https://news.puppy-snuggles.com/5787761/my-shadow-macy-she-is-my-love-i-dont-know-what-id-do-without-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
