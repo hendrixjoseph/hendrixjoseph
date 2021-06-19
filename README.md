@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Reddit, Meet Sadie. I rescued her and took her home today. My heart is full again.](https://news.puppy-snuggles.com/5749190/reddit-meet-sadie-i-rescued-her-and-took-her-home-today-my-heart-is-full-again)
-- [Enjoying the sun and her seagull shaped tounge](https://news.puppy-snuggles.com/6940675/enjoying-the-sun-and-her-seagull-shaped-tounge)
-- [A Russian dog should have a Russian cap. Ronnie trying out the ушанка.](https://news.puppy-snuggles.com/4739333/a-russian-dog-should-have-a-russian-cap-ronnie-trying-out-the-usanka)
-- [Spoon likes to dump his toys out all over the floor so that he can chill in his toy box. Because who needs an expensive dog bed anyway...](https://news.puppy-snuggles.com/3582377/spoon-likes-to-dump-his-toys-out-all-over-the-floor-so-that-he-can-chill-in-his-toy-box-because-who-needs-an-expensive-dog-bed-anyway)
-- [My shadow, Macy. She is my love. I don't know what I'd do without her.](https://news.puppy-snuggles.com/5787761/my-shadow-macy-she-is-my-love-i-dont-know-what-id-do-without-her)
+- [I don't have a possibility to have a dog right now so every now and then I paint them.](https://news.puppy-snuggles.com/6398315/i-dont-have-a-possibility-to-have-a-dog-right-now-so-every-now-and-then-i-paint-them)
+- [Six months old, a street mutt of unknown heritage from Greece. Now loving his new life in the Netherlands. Especially on the rare sunny days.](https://news.puppy-snuggles.com/6031870/six-months-old-a-street-mutt-of-unknown-heritage-from-greece-now-loving-his-new-life-in-the-netherlands-especially-on-the-rare-sunny-days)
+- [Floor ballet, act 1](https://news.puppy-snuggles.com/6072269/floor-ballet-act-1)
+- [Cooper at 9wks then 3 years. What a good boy](https://news.puppy-snuggles.com/6968610/cooper-at-9wks-then-3-years-what-a-good-boy)
+- [His face when he sees his ball](https://news.puppy-snuggles.com/6859474/his-face-when-he-sees-his-ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
