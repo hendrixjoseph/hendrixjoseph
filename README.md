@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I don't have a possibility to have a dog right now so every now and then I paint them.](https://news.puppy-snuggles.com/6398315/i-dont-have-a-possibility-to-have-a-dog-right-now-so-every-now-and-then-i-paint-them)
-- [Six months old, a street mutt of unknown heritage from Greece. Now loving his new life in the Netherlands. Especially on the rare sunny days.](https://news.puppy-snuggles.com/6031870/six-months-old-a-street-mutt-of-unknown-heritage-from-greece-now-loving-his-new-life-in-the-netherlands-especially-on-the-rare-sunny-days)
-- [Floor ballet, act 1](https://news.puppy-snuggles.com/6072269/floor-ballet-act-1)
-- [Cooper at 9wks then 3 years. What a good boy](https://news.puppy-snuggles.com/6968610/cooper-at-9wks-then-3-years-what-a-good-boy)
-- [His face when he sees his ball](https://news.puppy-snuggles.com/6859474/his-face-when-he-sees-his-ball)
+- [I would like to introduce the picture: Beauty and the flowerpot](https://news.puppy-snuggles.com/6992946/i-would-like-to-introduce-the-picture-beauty-and-the-flowerpot)
+- [Hii everyone! New to the group! I love waving hello 🐶🐶](https://news.puppy-snuggles.com/6955624/hii-everyone-new-to-the-group-i-love-waving-hello)
+- [How boopable is my nose on a scale from 1-have to boop?](https://news.puppy-snuggles.com/6975366/how-boopable-is-my-nose-on-a-scale-from-1-have-to-boop)
+- [Sully off to help the students relax again](https://news.puppy-snuggles.com/6987707/sully-off-to-help-the-students-relax-again)
+- [LoKy hugs no one except for his little uncle Tobby.](https://news.puppy-snuggles.com/6234136/loky-hugs-no-one-except-for-his-little-uncle-tobby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
