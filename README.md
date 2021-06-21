@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I would like to introduce the picture: Beauty and the flowerpot](https://news.puppy-snuggles.com/6992946/i-would-like-to-introduce-the-picture-beauty-and-the-flowerpot)
-- [Hii everyone! New to the group! I love waving hello 🐶🐶](https://news.puppy-snuggles.com/6955624/hii-everyone-new-to-the-group-i-love-waving-hello)
-- [How boopable is my nose on a scale from 1-have to boop?](https://news.puppy-snuggles.com/6975366/how-boopable-is-my-nose-on-a-scale-from-1-have-to-boop)
-- [Sully off to help the students relax again](https://news.puppy-snuggles.com/6987707/sully-off-to-help-the-students-relax-again)
-- [LoKy hugs no one except for his little uncle Tobby.](https://news.puppy-snuggles.com/6234136/loky-hugs-no-one-except-for-his-little-uncle-tobby)
+- [I named the stray dog to the right Werewolf. Puddles on the left.](https://news.puppy-snuggles.com/6998162/i-named-the-stray-dog-to-the-right-werewolf-puddles-on-the-left)
+- [Meet Zoe, the clumsiest dog ever! 🐾🐾](https://news.puppy-snuggles.com/7003909/meet-zoe-the-clumsiest-dog-ever)
+- [Got so comfortable in her pile of stuffed toys, she took a nap.](https://news.puppy-snuggles.com/6659194/got-so-comfortable-in-her-pile-of-stuffed-toys-she-took-a-nap)
+- [My dog Thomas](https://news.puppy-snuggles.com/6305395/my-dog-thomas)
+- [saturday siesta](https://news.puppy-snuggles.com/6453054/saturday-siesta)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
