@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I named the stray dog to the right Werewolf. Puddles on the left.](https://news.puppy-snuggles.com/6998162/i-named-the-stray-dog-to-the-right-werewolf-puddles-on-the-left)
-- [Meet Zoe, the clumsiest dog ever! 🐾🐾](https://news.puppy-snuggles.com/7003909/meet-zoe-the-clumsiest-dog-ever)
-- [Got so comfortable in her pile of stuffed toys, she took a nap.](https://news.puppy-snuggles.com/6659194/got-so-comfortable-in-her-pile-of-stuffed-toys-she-took-a-nap)
-- [My dog Thomas](https://news.puppy-snuggles.com/6305395/my-dog-thomas)
-- [saturday siesta](https://news.puppy-snuggles.com/6453054/saturday-siesta)
+- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
+- [Lost And Soft](https://news.puppy-snuggles.com/6485356/lost-and-soft)
+- [Older one of my pup.](https://news.puppy-snuggles.com/5775016/older-one-of-my-pup)
+- [I'm so happy she can enjoy life on couches and beds instead of cages and rescue centres](https://news.puppy-snuggles.com/6425882/im-so-happy-she-can-enjoy-life-on-couches-and-beds-instead-of-cages-and-rescue-centres)
+- [Our sweet smiley bear, Gus Gus, will be 6 months old tomorrow! The happiest floof and best boy with a smile for days 🐾💙](https://news.puppy-snuggles.com/4939353/our-sweet-smiley-bear-gus-gus-will-be-6-months-old-tomorrow-the-happiest-floof-and-best-boy-with-a-smile-for-days)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
