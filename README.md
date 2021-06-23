@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My German shepherd Ares and my pitbull arwyn](https://news.puppy-snuggles.com/5399980/my-german-shepherd-ares-and-my-pitbull-arwyn)
-- [Lost And Soft](https://news.puppy-snuggles.com/6485356/lost-and-soft)
-- [Older one of my pup.](https://news.puppy-snuggles.com/5775016/older-one-of-my-pup)
-- [I'm so happy she can enjoy life on couches and beds instead of cages and rescue centres](https://news.puppy-snuggles.com/6425882/im-so-happy-she-can-enjoy-life-on-couches-and-beds-instead-of-cages-and-rescue-centres)
-- [Our sweet smiley bear, Gus Gus, will be 6 months old tomorrow! The happiest floof and best boy with a smile for days 🐾💙](https://news.puppy-snuggles.com/4939353/our-sweet-smiley-bear-gus-gus-will-be-6-months-old-tomorrow-the-happiest-floof-and-best-boy-with-a-smile-for-days)
+- [Meet Penny! My puppy.](https://news.puppy-snuggles.com/7025045/meet-penny-my-puppy)
+- [Rescued this guy last week, more like he rescued me.](https://news.puppy-snuggles.com/7069071/rescued-this-guy-last-week-more-like-he-rescued-me)
+- [Every day a few minutes before I punch out for lunch, Bella waits. She always knows what time to wait and that I’m about to take her for a walk](https://news.puppy-snuggles.com/6333239/every-day-a-few-minutes-before-i-punch-out-for-lunch-bella-waits-she-always-knows-what-time-to-wait-and-that-im-about-to-take-her-for-a-walk)
+- [Meet branch manager Terry](https://news.puppy-snuggles.com/6325510/meet-branch-manager-terry)
+- [Phoenix](https://news.puppy-snuggles.com/3460302/phoenix)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
