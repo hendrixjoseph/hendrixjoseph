@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Penny! My puppy.](https://news.puppy-snuggles.com/7025045/meet-penny-my-puppy)
-- [Rescued this guy last week, more like he rescued me.](https://news.puppy-snuggles.com/7069071/rescued-this-guy-last-week-more-like-he-rescued-me)
-- [Every day a few minutes before I punch out for lunch, Bella waits. She always knows what time to wait and that I’m about to take her for a walk](https://news.puppy-snuggles.com/6333239/every-day-a-few-minutes-before-i-punch-out-for-lunch-bella-waits-she-always-knows-what-time-to-wait-and-that-im-about-to-take-her-for-a-walk)
-- [Meet branch manager Terry](https://news.puppy-snuggles.com/6325510/meet-branch-manager-terry)
-- [Phoenix](https://news.puppy-snuggles.com/3460302/phoenix)
+- [When I adopted her, I made it my aim to see this smile as often as possible](https://news.puppy-snuggles.com/6398317/when-i-adopted-her-i-made-it-my-aim-to-see-this-smile-as-often-as-possible)
+- [Making Sure My Dog Lives Forever, Even If He Passes.](https://news.puppy-snuggles.com/4600716/making-sure-my-dog-lives-forever-even-if-he-passes)
+- [My aloof boy finally trying to ask for pets](https://news.puppy-snuggles.com/4125088/my-aloof-boy-finally-trying-to-ask-for-pets)
+- [German Shepherd (Ronin) enjoying the snow in Texas.](https://news.puppy-snuggles.com/4245381/german-shepherd-ronin-enjoying-the-snow-in-texas)
+- [Excuse hooman. Valentine’s Day is coming. Wish to taco ‘bout love with you.](https://news.puppy-snuggles.com/4072206/excuse-hooman-valentines-day-is-coming-wish-to-taco-bout-love-with-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
