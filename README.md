@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I adopted her, I made it my aim to see this smile as often as possible](https://news.puppy-snuggles.com/6398317/when-i-adopted-her-i-made-it-my-aim-to-see-this-smile-as-often-as-possible)
-- [Making Sure My Dog Lives Forever, Even If He Passes.](https://news.puppy-snuggles.com/4600716/making-sure-my-dog-lives-forever-even-if-he-passes)
-- [My aloof boy finally trying to ask for pets](https://news.puppy-snuggles.com/4125088/my-aloof-boy-finally-trying-to-ask-for-pets)
-- [German Shepherd (Ronin) enjoying the snow in Texas.](https://news.puppy-snuggles.com/4245381/german-shepherd-ronin-enjoying-the-snow-in-texas)
-- [Excuse hooman. Valentine’s Day is coming. Wish to taco ‘bout love with you.](https://news.puppy-snuggles.com/4072206/excuse-hooman-valentines-day-is-coming-wish-to-taco-bout-love-with-you)
+- [Already posted about Ginger and her mini pack. She has a snaggletooth and she looks either disgusted or judgmental with it](https://news.puppy-snuggles.com/6046065/already-posted-about-ginger-and-her-mini-pack-she-has-a-snaggletooth-and-she-looks-either-disgusted-or-judgmental-with-it)
+- [My Baby Graduated Her First Training! Love Her, Her name is Luna and she is all smiles!](https://news.puppy-snuggles.com/7130904/my-baby-graduated-her-first-training-love-her-her-name-is-luna-and-she-is-all-smiles)
+- [LMAO he caught me taking a picture of him](https://news.puppy-snuggles.com/7099522/lmao-he-caught-me-taking-a-picture-of-him)
+- [Her name is Xena. Her birthday is Valentine’s Day, which is ironic because of how much I love her.](https://news.puppy-snuggles.com/7116363/her-name-is-xena-her-birthday-is-valentines-day-which-is-ironic-because-of-how-much-i-love-her)
+- [Have a good day everyone](https://news.puppy-snuggles.com/7130906/have-a-good-day-everyone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
