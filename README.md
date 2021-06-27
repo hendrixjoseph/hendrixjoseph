@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Bernese mountain dog Luna at 10 weeks old vs almost 6 months old](https://news.puppy-snuggles.com/4584494/my-bernese-mountain-dog-luna-at-10-weeks-old-vs-almost-6-months-old)
-- [Food morning from the flying Shepherd!](https://news.puppy-snuggles.com/4293944/food-morning-from-the-flying-shepherd)
-- [10 years goes by fast with a good dog.](https://news.puppy-snuggles.com/6281206/10-years-goes-by-fast-with-a-good-dog)
-- [Had to let my little buddy go today. Here’s some of my favourite pics of him from better times.](https://news.puppy-snuggles.com/7138694/had-to-let-my-little-buddy-go-today-heres-some-of-my-favourite-pics-of-him-from-better-times)
-- [Meet Zoe, the clumsiest dog ever! 🐾🐾](https://news.puppy-snuggles.com/7003909/meet-zoe-the-clumsiest-dog-ever)
+- [Fenrir found a ball!](https://news.puppy-snuggles.com/7185037/fenrir-found-a-ball)
+- [My golden retriever likes to sits in a peculiar way](https://news.puppy-snuggles.com/4508470/my-golden-retriever-likes-to-sits-in-a-peculiar-way)
+- [Cooper running around my yard.](https://news.puppy-snuggles.com/7185038/cooper-running-around-my-yard)
+- [Meet Olla, Orca, and Oscar! They turned one month old today!](https://news.puppy-snuggles.com/7179961/meet-olla-orca-and-oscar-they-turned-one-month-old-today)
+- [Pic of one of my dogs](https://news.puppy-snuggles.com/7174422/pic-of-one-of-my-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
