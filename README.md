@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Fenrir found a ball!](https://news.puppy-snuggles.com/7185037/fenrir-found-a-ball)
-- [My golden retriever likes to sits in a peculiar way](https://news.puppy-snuggles.com/4508470/my-golden-retriever-likes-to-sits-in-a-peculiar-way)
-- [Cooper running around my yard.](https://news.puppy-snuggles.com/7185038/cooper-running-around-my-yard)
-- [Meet Olla, Orca, and Oscar! They turned one month old today!](https://news.puppy-snuggles.com/7179961/meet-olla-orca-and-oscar-they-turned-one-month-old-today)
-- [Pic of one of my dogs](https://news.puppy-snuggles.com/7174422/pic-of-one-of-my-dogs)
+- [Don't Mind Me, I Am Very Comfortable!](https://news.puppy-snuggles.com/7190424/dont-mind-me-i-am-very-comfortable)
+- [Biggest underbite y’all ever did see](https://news.puppy-snuggles.com/7130905/biggest-underbite-yall-ever-did-see)
+- [As you seemed to like the pictures I posted of my puppy earlier...here he is again, chomping on a plush mushroom. By the way, he has an Instagram! It’s @nori.thedoggo :-)](https://news.puppy-snuggles.com/4739334/as-you-seemed-to-like-the-pictures-i-posted-of-my-puppy-earlierhere-he-is-again-chomping-on-a-plush-mushroom-by-the-way-he-has-an-instagram-its-at-norithedoggo)
+- [Really like this shot from today](https://news.puppy-snuggles.com/7190426/really-like-this-shot-from-today)
+- [best picture in my gallery 🖤](https://news.puppy-snuggles.com/4264580/best-picture-in-my-gallery)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
