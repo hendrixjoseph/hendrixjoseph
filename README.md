@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Ready to the Garden.!!!](https://news.puppy-snuggles.com/7229137/ready-to-the-garden)
+- [Izzy- questions in comments!](https://news.puppy-snuggles.com/6832803/izzy-questions-in-comments)
+- [He must think my breath smells bad.](https://news.puppy-snuggles.com/4502812/he-must-think-my-breath-smells-bad)
 - [Don't Mind Me, I Am Very Comfortable!](https://news.puppy-snuggles.com/7190424/dont-mind-me-i-am-very-comfortable)
-- [Biggest underbite y’all ever did see](https://news.puppy-snuggles.com/7130905/biggest-underbite-yall-ever-did-see)
-- [As you seemed to like the pictures I posted of my puppy earlier...here he is again, chomping on a plush mushroom. By the way, he has an Instagram! It’s @nori.thedoggo :-)](https://news.puppy-snuggles.com/4739334/as-you-seemed-to-like-the-pictures-i-posted-of-my-puppy-earlierhere-he-is-again-chomping-on-a-plush-mushroom-by-the-way-he-has-an-instagram-its-at-norithedoggo)
-- [Really like this shot from today](https://news.puppy-snuggles.com/7190426/really-like-this-shot-from-today)
-- [best picture in my gallery 🖤](https://news.puppy-snuggles.com/4264580/best-picture-in-my-gallery)
+- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
