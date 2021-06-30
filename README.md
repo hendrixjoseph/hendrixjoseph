@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ready to the Garden.!!!](https://news.puppy-snuggles.com/7229137/ready-to-the-garden)
-- [Izzy- questions in comments!](https://news.puppy-snuggles.com/6832803/izzy-questions-in-comments)
-- [He must think my breath smells bad.](https://news.puppy-snuggles.com/4502812/he-must-think-my-breath-smells-bad)
-- [Don't Mind Me, I Am Very Comfortable!](https://news.puppy-snuggles.com/7190424/dont-mind-me-i-am-very-comfortable)
-- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
+- [Spending this Valentine’s Day just with my goldendoodle, Olive ✨❤️ she wanted to wish you all a happy Valentine’s Day 💘🐶](https://news.puppy-snuggles.com/4142566/spending-this-valentines-day-just-with-my-goldendoodle-olive-she-wanted-to-wish-you-all-a-happy-valentines-day)
+- [His favorite place to sleep](https://news.puppy-snuggles.com/7250875/his-favorite-place-to-sleep)
+- [Goodnight and goodbye for now, my beautiful girl. After 15 amazing years we had to say goodnight due to cancer. I will always love you Socks, I'll see you in another life.](https://news.puppy-snuggles.com/7244601/goodnight-and-goodbye-for-now-my-beautiful-girl-after-15-amazing-years-we-had-to-say-goodnight-due-to-cancer-i-will-always-love-you-socks-ill-see-you-in-another-life)
+- [Lemon anyone?](https://news.puppy-snuggles.com/7258389/lemon-anyone)
+- [Bahar met a potential foster brother today and they instantly became bffs 🥺](https://news.puppy-snuggles.com/6626751/bahar-met-a-potential-foster-brother-today-and-they-instantly-became-bffs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
