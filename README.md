@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Spending this Valentine’s Day just with my goldendoodle, Olive ✨❤️ she wanted to wish you all a happy Valentine’s Day 💘🐶](https://news.puppy-snuggles.com/4142566/spending-this-valentines-day-just-with-my-goldendoodle-olive-she-wanted-to-wish-you-all-a-happy-valentines-day)
-- [His favorite place to sleep](https://news.puppy-snuggles.com/7250875/his-favorite-place-to-sleep)
-- [Goodnight and goodbye for now, my beautiful girl. After 15 amazing years we had to say goodnight due to cancer. I will always love you Socks, I'll see you in another life.](https://news.puppy-snuggles.com/7244601/goodnight-and-goodbye-for-now-my-beautiful-girl-after-15-amazing-years-we-had-to-say-goodnight-due-to-cancer-i-will-always-love-you-socks-ill-see-you-in-another-life)
-- [Lemon anyone?](https://news.puppy-snuggles.com/7258389/lemon-anyone)
-- [Bahar met a potential foster brother today and they instantly became bffs 🥺](https://news.puppy-snuggles.com/6626751/bahar-met-a-potential-foster-brother-today-and-they-instantly-became-bffs)
+- [My puppy crossed the rainbow bridge today. I don’t remember being alive without him, I will miss him and love him for ever. Goodbye sweet Barak.](https://news.puppy-snuggles.com/7266335/my-puppy-crossed-the-rainbow-bridge-today-i-dont-remember-being-alive-without-him-i-will-miss-him-and-love-him-for-ever-goodbye-sweet-barak)
+- [Hey guys](https://news.puppy-snuggles.com/7287919/hey-guys)
+- [Cash, my Mastador. I can't recommend the breed enough...Lab Brains and temperment, but 120 lbs!!](https://news.puppy-snuggles.com/3926278/cash-my-mastador-i-cant-recommend-the-breed-enoughlab-brains-and-temperment-but-120-lbs)
+- [I only got this good pic in Exchange for treats](https://news.puppy-snuggles.com/7287921/i-only-got-this-good-pic-in-exchange-for-treats)
+- [Just rescued this pup last night! Still picking a name (thinking koda)](https://news.puppy-snuggles.com/7266332/just-rescued-this-pup-last-night-still-picking-a-name-thinking-koda)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
