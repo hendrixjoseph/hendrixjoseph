@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - June 30, 2021](https://www.reddit.com/r/financialindependence/comments/oatb4n/weekly_selfpromotion_thread_june_30_2021/h3kaim5/)
 - [The Murky Waters of Tax Deductions for Travel Bloggers](https://www.reddit.com/r/Blogswap/comments/oaeb83/the_murky_waters_of_tax_deductions_for_travel/)
 - [/u/joehx on Game freezes several seconds after claiming a message](https://www.reddit.com/r/StarTrekTimelines/comments/o9kuit/game_freezes_several_seconds_after_claiming_a/h3bu5kg/)
 - [Interesting Reads for the Week Ending June 18th](https://www.reddit.com/r/Blogswap/comments/o2rnez/interesting_reads_for_the_week_ending_june_18th/)
 - [What is your best (or worst) animal pun that only has a few words?](https://www.reddit.com/r/AskReddit/comments/o0gpfm/what_is_your_best_or_worst_animal_pun_that_only/)
-- [/u/joehx on DEAR PROFESSIONAL COMPUTER TOUCHERS -- FRIDAY RANT THREAD FOR June 11, 2021](https://www.reddit.com/r/cscareerquestions/comments/nx9o19/dear_professional_computer_touchers_friday_rant/h1ep9pe/)
 <!-- REDDIT:END -->
