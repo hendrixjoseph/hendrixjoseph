@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy crossed the rainbow bridge today. I don’t remember being alive without him, I will miss him and love him for ever. Goodbye sweet Barak.](https://news.puppy-snuggles.com/7266335/my-puppy-crossed-the-rainbow-bridge-today-i-dont-remember-being-alive-without-him-i-will-miss-him-and-love-him-for-ever-goodbye-sweet-barak)
-- [Hey guys](https://news.puppy-snuggles.com/7287919/hey-guys)
-- [Cash, my Mastador. I can't recommend the breed enough...Lab Brains and temperment, but 120 lbs!!](https://news.puppy-snuggles.com/3926278/cash-my-mastador-i-cant-recommend-the-breed-enoughlab-brains-and-temperment-but-120-lbs)
-- [I only got this good pic in Exchange for treats](https://news.puppy-snuggles.com/7287921/i-only-got-this-good-pic-in-exchange-for-treats)
-- [Just rescued this pup last night! Still picking a name (thinking koda)](https://news.puppy-snuggles.com/7266332/just-rescued-this-pup-last-night-still-picking-a-name-thinking-koda)
+- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
+- [got a tattoo of my dog pearl a while back in memory of her. tattoo is made by memlena_tattoo.](https://news.puppy-snuggles.com/7318102/got-a-tattoo-of-my-dog-pearl-a-while-back-in-memory-of-her-tattoo-is-made-by-memlena-tattoo)
+- [This was my dog Chico when he was a puppy. After 15 years, he passed three days after my bday in 2019. I will always have him in my heart.](https://news.puppy-snuggles.com/7318100/this-was-my-dog-chico-when-he-was-a-puppy-after-15-years-he-passed-three-days-after-my-bday-in-2019-i-will-always-have-him-in-my-heart)
+- [Will you help me say goodbye to my Willy dog? He was the very best boy.](https://news.puppy-snuggles.com/6354121/will-you-help-me-say-goodbye-to-my-willy-dog-he-was-the-very-best-boy)
+- [Our puppy Louie](https://news.puppy-snuggles.com/7303638/our-puppy-louie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
