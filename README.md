@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
-- [got a tattoo of my dog pearl a while back in memory of her. tattoo is made by memlena_tattoo.](https://news.puppy-snuggles.com/7318102/got-a-tattoo-of-my-dog-pearl-a-while-back-in-memory-of-her-tattoo-is-made-by-memlena-tattoo)
-- [This was my dog Chico when he was a puppy. After 15 years, he passed three days after my bday in 2019. I will always have him in my heart.](https://news.puppy-snuggles.com/7318100/this-was-my-dog-chico-when-he-was-a-puppy-after-15-years-he-passed-three-days-after-my-bday-in-2019-i-will-always-have-him-in-my-heart)
-- [Will you help me say goodbye to my Willy dog? He was the very best boy.](https://news.puppy-snuggles.com/6354121/will-you-help-me-say-goodbye-to-my-willy-dog-he-was-the-very-best-boy)
-- [Our puppy Louie](https://news.puppy-snuggles.com/7303638/our-puppy-louie)
+- [Lucky’s reaction when I told him I got him his very own chickie nuggies.](https://news.puppy-snuggles.com/7347201/luckys-reaction-when-i-told-him-i-got-him-his-very-own-chickie-nuggies)
+- [A great way of celebrating International Dog Day which was yesterday](https://news.puppy-snuggles.com/7339836/a-great-way-of-celebrating-international-dog-day-which-was-yesterday)
+- [Found out today my beautiful girl has bone cancer. She’s only 8. We have to lay her to rest Saturday and I’m a mess. My heart just hurts.](https://news.puppy-snuggles.com/7146339/found-out-today-my-beautiful-girl-has-bone-cancer-shes-only-8-we-have-to-lay-her-to-rest-saturday-and-im-a-mess-my-heart-just-hurts)
+- [My friend's dog turned one this weekend and they threw a party with the neighbors](https://news.puppy-snuggles.com/4600717/my-friends-dog-turned-one-this-weekend-and-they-threw-a-party-with-the-neighbors)
+- [Assistants with identifying breed](https://news.puppy-snuggles.com/7326227/assistants-with-identifying-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
