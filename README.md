@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lucky’s reaction when I told him I got him his very own chickie nuggies.](https://news.puppy-snuggles.com/7347201/luckys-reaction-when-i-told-him-i-got-him-his-very-own-chickie-nuggies)
-- [A great way of celebrating International Dog Day which was yesterday](https://news.puppy-snuggles.com/7339836/a-great-way-of-celebrating-international-dog-day-which-was-yesterday)
-- [Found out today my beautiful girl has bone cancer. She’s only 8. We have to lay her to rest Saturday and I’m a mess. My heart just hurts.](https://news.puppy-snuggles.com/7146339/found-out-today-my-beautiful-girl-has-bone-cancer-shes-only-8-we-have-to-lay-her-to-rest-saturday-and-im-a-mess-my-heart-just-hurts)
-- [My friend's dog turned one this weekend and they threw a party with the neighbors](https://news.puppy-snuggles.com/4600717/my-friends-dog-turned-one-this-weekend-and-they-threw-a-party-with-the-neighbors)
-- [Assistants with identifying breed](https://news.puppy-snuggles.com/7326227/assistants-with-identifying-breed)
+- [Not only is today my 20th birthday, this week I got a new best friend in the whole world. Good time:)](https://news.puppy-snuggles.com/7369729/not-only-is-today-my-20th-birthday-this-week-i-got-a-new-best-friend-in-the-whole-world-good-time)
+- [This is Sung. His adoption day was 4/1/17. Yesterday was his 10th birthday!](https://news.puppy-snuggles.com/5143820/this-is-sung-his-adoption-day-was-4117-yesterday-was-his-10th-birthday)
+- [This Dog is the hunting partner of one of the last Hunter and Gatherer tribes on the planet, the Hadzabe. Here is a view of world from the Dog's perspective.](https://news.puppy-snuggles.com/7369732/this-dog-is-the-hunting-partner-of-one-of-the-last-hunter-and-gatherer-tribes-on-the-planet-the-hadzabe-here-is-a-view-of-world-from-the-dogs-perspective)
+- [Throwback to when I was tiny... 3 weeks ago.](https://news.puppy-snuggles.com/5157885/throwback-to-when-i-was-tiny-3-weeks-ago)
+- [Look at this tongue.. adorable](https://news.puppy-snuggles.com/7369723/look-at-this-tongue-adorable)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
