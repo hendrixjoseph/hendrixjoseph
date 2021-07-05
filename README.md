@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Not only is today my 20th birthday, this week I got a new best friend in the whole world. Good time:)](https://news.puppy-snuggles.com/7369729/not-only-is-today-my-20th-birthday-this-week-i-got-a-new-best-friend-in-the-whole-world-good-time)
-- [This is Sung. His adoption day was 4/1/17. Yesterday was his 10th birthday!](https://news.puppy-snuggles.com/5143820/this-is-sung-his-adoption-day-was-4117-yesterday-was-his-10th-birthday)
-- [This Dog is the hunting partner of one of the last Hunter and Gatherer tribes on the planet, the Hadzabe. Here is a view of world from the Dog's perspective.](https://news.puppy-snuggles.com/7369732/this-dog-is-the-hunting-partner-of-one-of-the-last-hunter-and-gatherer-tribes-on-the-planet-the-hadzabe-here-is-a-view-of-world-from-the-dogs-perspective)
-- [Throwback to when I was tiny... 3 weeks ago.](https://news.puppy-snuggles.com/5157885/throwback-to-when-i-was-tiny-3-weeks-ago)
-- [Look at this tongue.. adorable](https://news.puppy-snuggles.com/7369723/look-at-this-tongue-adorable)
+- [Elsa’s always very sleepy during the day and overly energetic during the evening ❤️](https://news.puppy-snuggles.com/4276440/elsas-always-very-sleepy-during-the-day-and-overly-energetic-during-the-evening)
+- [These are Loki and Thor. My boyfriend’s dogs. I love them so much. 💖](https://news.puppy-snuggles.com/7384080/these-are-loki-and-thor-my-boyfriends-dogs-i-love-them-so-much)
+- [The best bud ever](https://news.puppy-snuggles.com/7388519/the-best-bud-ever)
+- [Too cute to be mad](https://news.puppy-snuggles.com/5157888/too-cute-to-be-mad)
+- [Hmmm...I wonder why some of my plants got ruined? Any idea buddy?](https://news.puppy-snuggles.com/7379924/hmmmi-wonder-why-some-of-my-plants-got-ruined-any-idea-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
