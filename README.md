@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Elsa’s always very sleepy during the day and overly energetic during the evening ❤️](https://news.puppy-snuggles.com/4276440/elsas-always-very-sleepy-during-the-day-and-overly-energetic-during-the-evening)
-- [These are Loki and Thor. My boyfriend’s dogs. I love them so much. 💖](https://news.puppy-snuggles.com/7384080/these-are-loki-and-thor-my-boyfriends-dogs-i-love-them-so-much)
-- [The best bud ever](https://news.puppy-snuggles.com/7388519/the-best-bud-ever)
-- [Too cute to be mad](https://news.puppy-snuggles.com/5157888/too-cute-to-be-mad)
-- [Hmmm...I wonder why some of my plants got ruined? Any idea buddy?](https://news.puppy-snuggles.com/7379924/hmmmi-wonder-why-some-of-my-plants-got-ruined-any-idea-buddy)
+- [Happy wild child 😇](https://news.puppy-snuggles.com/3703830/happy-wild-child)
+- [This is my best friend Thunder](https://news.puppy-snuggles.com/6772723/this-is-my-best-friend-thunder)
+- [My digital portrait](https://news.puppy-snuggles.com/7393695/my-digital-portrait)
+- [Happy fourth!!](https://news.puppy-snuggles.com/7410619/happy-fourth)
+- [Happy 14th birthday Sammy boy! His birthday is the 12th of July!](https://news.puppy-snuggles.com/7404998/happy-14th-birthday-sammy-boy-his-birthday-is-the-12th-of-july)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
