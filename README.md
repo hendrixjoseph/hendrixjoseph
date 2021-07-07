@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy wild child 😇](https://news.puppy-snuggles.com/3703830/happy-wild-child)
-- [This is my best friend Thunder](https://news.puppy-snuggles.com/6772723/this-is-my-best-friend-thunder)
-- [My digital portrait](https://news.puppy-snuggles.com/7393695/my-digital-portrait)
-- [Happy fourth!!](https://news.puppy-snuggles.com/7410619/happy-fourth)
-- [Happy 14th birthday Sammy boy! His birthday is the 12th of July!](https://news.puppy-snuggles.com/7404998/happy-14th-birthday-sammy-boy-his-birthday-is-the-12th-of-july)
+- [Gus Smile](https://news.puppy-snuggles.com/7438122/gus-smile)
+- [This is Koda today at his last chemo! At the end of the month we will run some test to confirm but he is cancer free!!](https://news.puppy-snuggles.com/7416691/this-is-koda-today-at-his-last-chemo-at-the-end-of-the-month-we-will-run-some-test-to-confirm-but-he-is-cancer-free)
+- [This good boi was proud of his fresh cut](https://news.puppy-snuggles.com/7430089/this-good-boi-was-proud-of-his-fresh-cut)
+- [Sebastian, koda and moon, the best of friends❤️ keeping guard at the door for us!](https://news.puppy-snuggles.com/7438125/sebastian-koda-and-moon-the-best-of-friends-keeping-guard-at-the-door-for-us)
+- [First day this little one entered our life v. a recent pic taken almost 13 years later. He’s still our little puppy-prince!](https://news.puppy-snuggles.com/7430087/first-day-this-little-one-entered-our-life-v-a-recent-pic-taken-almost-13-years-later-hes-still-our-little-puppy-prince)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
