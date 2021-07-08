@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [June 2021 Book Reading List](https://www.joehxblog.com/june-2021-book-reading-list/)
 - [Interesting Reads for the Week Ending July 2nd](https://www.joehxblog.com/july-2-2021-interesting-reads/)
 - [The Murky Waters of Tax Deductions for Travel Bloggers](https://www.joehxblog.com/tax-deductions-for-travel-bloggers/)
 - [June 2021 Blog Statistics](https://www.joehxblog.com/june-2021-blog-statistics/)
 - [Interesting Reads for the Week Ending June 18th](https://www.joehxblog.com/june-18-2021-interesting-reads/)
-- [Java Collections Framework - Set Interface Method Examples](https://www.joehxblog.com/set-interface-method-examples/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
