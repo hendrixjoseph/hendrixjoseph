@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Gus Smile](https://news.puppy-snuggles.com/7438122/gus-smile)
-- [This is Koda today at his last chemo! At the end of the month we will run some test to confirm but he is cancer free!!](https://news.puppy-snuggles.com/7416691/this-is-koda-today-at-his-last-chemo-at-the-end-of-the-month-we-will-run-some-test-to-confirm-but-he-is-cancer-free)
-- [This good boi was proud of his fresh cut](https://news.puppy-snuggles.com/7430089/this-good-boi-was-proud-of-his-fresh-cut)
-- [Sebastian, koda and moon, the best of friends❤️ keeping guard at the door for us!](https://news.puppy-snuggles.com/7438125/sebastian-koda-and-moon-the-best-of-friends-keeping-guard-at-the-door-for-us)
-- [First day this little one entered our life v. a recent pic taken almost 13 years later. He’s still our little puppy-prince!](https://news.puppy-snuggles.com/7430087/first-day-this-little-one-entered-our-life-v-a-recent-pic-taken-almost-13-years-later-hes-still-our-little-puppy-prince)
+- [I was so proud of this braid. She was NOT amused. I miss her.](https://news.puppy-snuggles.com/4382884/i-was-so-proud-of-this-braid-she-was-not-amused-i-miss-her)
+- [New little Bean](https://news.puppy-snuggles.com/7467782/new-little-bean)
+- [My first post here. She always smiles during our cuddle sessions!](https://news.puppy-snuggles.com/5225099/my-first-post-here-she-always-smiles-during-our-cuddle-sessions)
+- [My mom sent me this the other day](https://news.puppy-snuggles.com/7467784/my-mom-sent-me-this-the-other-day)
+- [Otto - this tough good boy is back home from emergency vet after a day long battle with cluster seizures 💪🏻](https://news.puppy-snuggles.com/3902866/otto-this-tough-good-boy-is-back-home-from-emergency-vet-after-a-day-long-battle-with-cluster-seizures)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
