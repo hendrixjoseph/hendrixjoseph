@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I was so proud of this braid. She was NOT amused. I miss her.](https://news.puppy-snuggles.com/4382884/i-was-so-proud-of-this-braid-she-was-not-amused-i-miss-her)
-- [New little Bean](https://news.puppy-snuggles.com/7467782/new-little-bean)
-- [My first post here. She always smiles during our cuddle sessions!](https://news.puppy-snuggles.com/5225099/my-first-post-here-she-always-smiles-during-our-cuddle-sessions)
-- [My mom sent me this the other day](https://news.puppy-snuggles.com/7467784/my-mom-sent-me-this-the-other-day)
-- [Otto - this tough good boy is back home from emergency vet after a day long battle with cluster seizures 💪🏻](https://news.puppy-snuggles.com/3902866/otto-this-tough-good-boy-is-back-home-from-emergency-vet-after-a-day-long-battle-with-cluster-seizures)
+- [Just my doggo on the beach](https://news.puppy-snuggles.com/7498713/just-my-doggo-on-the-beach)
+- [Hugo and Otis (father and son)](https://news.puppy-snuggles.com/5149143/hugo-and-otis-father-and-son)
+- [My Brother's dog, Odessa enjoying a bone in Algonquin Provincial Park](https://news.puppy-snuggles.com/7491070/my-brothers-dog-odessa-enjoying-a-bone-in-algonquin-provincial-park)
+- [Took this on my phone and had to share, my favourite girl!](https://news.puppy-snuggles.com/7491073/took-this-on-my-phone-and-had-to-share-my-favourite-girl)
+- [Big cheese](https://news.puppy-snuggles.com/7498715/big-cheese)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
