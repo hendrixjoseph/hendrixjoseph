@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [A Quick and Objective Review of Arcadia Power's Community Solar Program](https://www.reddit.com/r/Blogswap/comments/og8w0e/a_quick_and_objective_review_of_arcadia_powers/)
 - [/u/joehx on What is your opinion on crypto staking? How much money do you make from staking?](https://www.reddit.com/r/passive_income/comments/oev57v/what_is_your_opinion_on_crypto_staking_how_much/h49hdzk/)
 - [/u/joehx on Weekly Self-Promotion Thread - June 30, 2021](https://www.reddit.com/r/financialindependence/comments/oatb4n/weekly_selfpromotion_thread_june_30_2021/h3kaim5/)
 - [The Murky Waters of Tax Deductions for Travel Bloggers](https://www.reddit.com/r/Blogswap/comments/oaeb83/the_murky_waters_of_tax_deductions_for_travel/)
 - [/u/joehx on Game freezes several seconds after claiming a message](https://www.reddit.com/r/StarTrekTimelines/comments/o9kuit/game_freezes_several_seconds_after_claiming_a/h3bu5kg/)
-- [Interesting Reads for the Week Ending June 18th](https://www.reddit.com/r/Blogswap/comments/o2rnez/interesting_reads_for_the_week_ending_june_18th/)
 <!-- REDDIT:END -->
