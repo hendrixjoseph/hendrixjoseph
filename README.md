@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just my doggo on the beach](https://news.puppy-snuggles.com/7498713/just-my-doggo-on-the-beach)
-- [Hugo and Otis (father and son)](https://news.puppy-snuggles.com/5149143/hugo-and-otis-father-and-son)
-- [My Brother's dog, Odessa enjoying a bone in Algonquin Provincial Park](https://news.puppy-snuggles.com/7491070/my-brothers-dog-odessa-enjoying-a-bone-in-algonquin-provincial-park)
-- [Took this on my phone and had to share, my favourite girl!](https://news.puppy-snuggles.com/7491073/took-this-on-my-phone-and-had-to-share-my-favourite-girl)
-- [Big cheese](https://news.puppy-snuggles.com/7498715/big-cheese)
+- [Absolutely zonked after a long day of play at doggy daycare](https://news.puppy-snuggles.com/7529051/absolutely-zonked-after-a-long-day-of-play-at-doggy-daycare)
+- [Woofessor Winnie.](https://news.puppy-snuggles.com/7529052/woofessor-winnie)
+- [Having fun at the dunes🐕](https://news.puppy-snuggles.com/7521481/having-fun-at-the-dunes)
+- [After literal months of being rejected by various adoption agencies, my parents are finally getting a dog! Reddit, meet Ella!](https://news.puppy-snuggles.com/6961282/after-literal-months-of-being-rejected-by-various-adoption-agencies-my-parents-are-finally-getting-a-dog-reddit-meet-ella)
+- [Those birds are up to no good...I know it!](https://news.puppy-snuggles.com/7521483/those-birds-are-up-to-no-goodi-know-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
