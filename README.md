@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Absolutely zonked after a long day of play at doggy daycare](https://news.puppy-snuggles.com/7529051/absolutely-zonked-after-a-long-day-of-play-at-doggy-daycare)
-- [Woofessor Winnie.](https://news.puppy-snuggles.com/7529052/woofessor-winnie)
-- [Having fun at the dunes🐕](https://news.puppy-snuggles.com/7521481/having-fun-at-the-dunes)
-- [After literal months of being rejected by various adoption agencies, my parents are finally getting a dog! Reddit, meet Ella!](https://news.puppy-snuggles.com/6961282/after-literal-months-of-being-rejected-by-various-adoption-agencies-my-parents-are-finally-getting-a-dog-reddit-meet-ella)
-- [Those birds are up to no good...I know it!](https://news.puppy-snuggles.com/7521483/those-birds-are-up-to-no-goodi-know-it)
+- [New bed, happy old dog. Love you, Vira!](https://news.puppy-snuggles.com/7107920/new-bed-happy-old-dog-love-you-vira)
+- [When someone asks you to sit like a lady 👀](https://news.puppy-snuggles.com/7553671/when-someone-asks-you-to-sit-like-a-lady)
+- [This is Blue! Or Blu. Or Bleu. Don’t know which way to choose how to spell it yet lol](https://news.puppy-snuggles.com/3525961/this-is-blue-or-blu-or-bleu-dont-know-which-way-to-choose-how-to-spell-it-yet-lol)
+- [Me and my dog haha](https://news.puppy-snuggles.com/7553670/me-and-my-dog-haha)
+- [This is Peanut. He goes by nut for short. Today we went on a small hike and he got a mini photoshoot.](https://news.puppy-snuggles.com/6497961/this-is-peanut-he-goes-by-nut-for-short-today-we-went-on-a-small-hike-and-he-got-a-mini-photoshoot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
