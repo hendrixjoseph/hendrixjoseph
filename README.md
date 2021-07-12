@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New bed, happy old dog. Love you, Vira!](https://news.puppy-snuggles.com/7107920/new-bed-happy-old-dog-love-you-vira)
-- [When someone asks you to sit like a lady 👀](https://news.puppy-snuggles.com/7553671/when-someone-asks-you-to-sit-like-a-lady)
-- [This is Blue! Or Blu. Or Bleu. Don’t know which way to choose how to spell it yet lol](https://news.puppy-snuggles.com/3525961/this-is-blue-or-blu-or-bleu-dont-know-which-way-to-choose-how-to-spell-it-yet-lol)
-- [Me and my dog haha](https://news.puppy-snuggles.com/7553670/me-and-my-dog-haha)
-- [This is Peanut. He goes by nut for short. Today we went on a small hike and he got a mini photoshoot.](https://news.puppy-snuggles.com/6497961/this-is-peanut-he-goes-by-nut-for-short-today-we-went-on-a-small-hike-and-he-got-a-mini-photoshoot)
+- [Sun kissed but let me sleep- Happy the Pug Dog](https://news.puppy-snuggles.com/7571377/sun-kissed-but-let-me-sleep-happy-the-pug-dog)
+- [Reese my recently departed best friend for 15 year. I stayed with her during her euthanasia, drank beer &amp;amp; slept with her night before taking her. I had to carry her into the vet. She really was a member of the family.](https://news.puppy-snuggles.com/7562437/reese-my-recently-departed-best-friend-for-15-year-i-stayed-with-her-during-her-euthanasia-drank-beer-amp-slept-with-her-night-before-taking-her-i-had-to-carry-her-into-the-vet-she-really-was-a-member-of-the-family)
+- [&amp;quot;Alright... I let you put this stupid hat on me and take a picture. There better be a treat in it for me or your shoes are going to regretit later...&amp;quot;](https://news.puppy-snuggles.com/7571376/quotalright-i-let-you-put-this-stupid-hat-on-me-and-take-a-picture-there-better-be-a-treat-in-it-for-me-or-your-shoes-are-going-to-regretit-laterquot)
+- [After a few years of neglect, Zita is in the best shape she ever was and the happiest she has ever been.](https://news.puppy-snuggles.com/4536633/after-a-few-years-of-neglect-zita-is-in-the-best-shape-she-ever-was-and-the-happiest-she-has-ever-been)
+- [Doggo miss his mammy. It has only been TEN minutes](https://news.puppy-snuggles.com/7566772/doggo-miss-his-mammy-it-has-only-been-ten-minutes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
