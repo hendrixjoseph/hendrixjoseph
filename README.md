@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sun kissed but let me sleep- Happy the Pug Dog](https://news.puppy-snuggles.com/7571377/sun-kissed-but-let-me-sleep-happy-the-pug-dog)
-- [Reese my recently departed best friend for 15 year. I stayed with her during her euthanasia, drank beer &amp;amp; slept with her night before taking her. I had to carry her into the vet. She really was a member of the family.](https://news.puppy-snuggles.com/7562437/reese-my-recently-departed-best-friend-for-15-year-i-stayed-with-her-during-her-euthanasia-drank-beer-amp-slept-with-her-night-before-taking-her-i-had-to-carry-her-into-the-vet-she-really-was-a-member-of-the-family)
-- [&amp;quot;Alright... I let you put this stupid hat on me and take a picture. There better be a treat in it for me or your shoes are going to regretit later...&amp;quot;](https://news.puppy-snuggles.com/7571376/quotalright-i-let-you-put-this-stupid-hat-on-me-and-take-a-picture-there-better-be-a-treat-in-it-for-me-or-your-shoes-are-going-to-regretit-laterquot)
-- [After a few years of neglect, Zita is in the best shape she ever was and the happiest she has ever been.](https://news.puppy-snuggles.com/4536633/after-a-few-years-of-neglect-zita-is-in-the-best-shape-she-ever-was-and-the-happiest-she-has-ever-been)
-- [Doggo miss his mammy. It has only been TEN minutes](https://news.puppy-snuggles.com/7566772/doggo-miss-his-mammy-it-has-only-been-ten-minutes)
+- [My boy turns 9 today!](https://news.puppy-snuggles.com/7592471/my-boy-turns-9-today)
+- [Rosencrantz, My First Dog](https://news.puppy-snuggles.com/3349990/rosencrantz-my-first-dog)
+- [Buckley loves sharing Piper's bed. Piper, on the other hand...not as excited.](https://news.puppy-snuggles.com/7592473/buckley-loves-sharing-pipers-bed-piper-on-the-other-handnot-as-excited)
+- [My doggy sleeping like baby last night](https://news.puppy-snuggles.com/7592472/my-doggy-sleeping-like-baby-last-night)
+- [Yes, I did bribe Moose with a treat for this perfect shot. Happy Friday to all!](https://news.puppy-snuggles.com/5286807/yes-i-did-bribe-moose-with-a-treat-for-this-perfect-shot-happy-friday-to-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
