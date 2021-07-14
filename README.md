@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy turns 9 today!](https://news.puppy-snuggles.com/7592471/my-boy-turns-9-today)
-- [Rosencrantz, My First Dog](https://news.puppy-snuggles.com/3349990/rosencrantz-my-first-dog)
-- [Buckley loves sharing Piper's bed. Piper, on the other hand...not as excited.](https://news.puppy-snuggles.com/7592473/buckley-loves-sharing-pipers-bed-piper-on-the-other-handnot-as-excited)
-- [My doggy sleeping like baby last night](https://news.puppy-snuggles.com/7592472/my-doggy-sleeping-like-baby-last-night)
-- [Yes, I did bribe Moose with a treat for this perfect shot. Happy Friday to all!](https://news.puppy-snuggles.com/5286807/yes-i-did-bribe-moose-with-a-treat-for-this-perfect-shot-happy-friday-to-all)
+- [Don’t forget to stop and smell the flowers on your walk today.](https://news.puppy-snuggles.com/7258390/dont-forget-to-stop-and-smell-the-flowers-on-your-walk-today)
+- [I’m hoping you have a treat for me!](https://news.puppy-snuggles.com/7611010/im-hoping-you-have-a-treat-for-me)
+- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
+- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
+- [A year ago, Bella became part of our family. Happy Bellabration Day!](https://news.puppy-snuggles.com/7611012/a-year-ago-bella-became-part-of-our-family-happy-bellabration-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
