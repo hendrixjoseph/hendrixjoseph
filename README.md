@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Don’t forget to stop and smell the flowers on your walk today.](https://news.puppy-snuggles.com/7258390/dont-forget-to-stop-and-smell-the-flowers-on-your-walk-today)
-- [I’m hoping you have a treat for me!](https://news.puppy-snuggles.com/7611010/im-hoping-you-have-a-treat-for-me)
-- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
-- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
-- [A year ago, Bella became part of our family. Happy Bellabration Day!](https://news.puppy-snuggles.com/7611012/a-year-ago-bella-became-part-of-our-family-happy-bellabration-day)
+- [This was the moment moment when she realized we were going to the vet to see Uncle Rob and not to the park.](https://news.puppy-snuggles.com/7160410/this-was-the-moment-moment-when-she-realized-we-were-going-to-the-vet-to-see-uncle-rob-and-not-to-the-park)
+- [Big cheese](https://news.puppy-snuggles.com/7498715/big-cheese)
+- [My shorkie is having trouble adjusting to his new brother and environment. Any advice?](https://news.puppy-snuggles.com/7644261/my-shorkie-is-having-trouble-adjusting-to-his-new-brother-and-environment-any-advice)
+- [this spoiled butt](https://news.puppy-snuggles.com/7625228/this-spoiled-butt)
+- [Hello everybody](https://news.puppy-snuggles.com/7644257/hello-everybody)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
