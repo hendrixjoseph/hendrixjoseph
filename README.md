@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This was the moment moment when she realized we were going to the vet to see Uncle Rob and not to the park.](https://news.puppy-snuggles.com/7160410/this-was-the-moment-moment-when-she-realized-we-were-going-to-the-vet-to-see-uncle-rob-and-not-to-the-park)
-- [Big cheese](https://news.puppy-snuggles.com/7498715/big-cheese)
-- [My shorkie is having trouble adjusting to his new brother and environment. Any advice?](https://news.puppy-snuggles.com/7644261/my-shorkie-is-having-trouble-adjusting-to-his-new-brother-and-environment-any-advice)
-- [this spoiled butt](https://news.puppy-snuggles.com/7625228/this-spoiled-butt)
-- [Hello everybody](https://news.puppy-snuggles.com/7644257/hello-everybody)
+- [Brand new: Chihuahua pillow! Only 19.99 if you call now](https://news.puppy-snuggles.com/7672474/brand-new-chihuahua-pillow-only-1999-if-you-call-now)
+- [Good girl in her happy place!](https://news.puppy-snuggles.com/3776601/good-girl-in-her-happy-place)
+- [I want my balls!](https://news.puppy-snuggles.com/7657950/i-want-my-balls)
+- [What is her coloring referred to or called?](https://news.puppy-snuggles.com/7672472/what-is-her-coloring-referred-to-or-called)
+- [❤️ RIP Mr Mid ❤️ thank you for being the best pal I could ever wish for. Life won’t be the same without you. I’ll love you forever, until we meet again ❤️](https://news.puppy-snuggles.com/7672473/rip-mr-mid-thank-you-for-being-the-best-pal-i-could-ever-wish-for-life-wont-be-the-same-without-you-ill-love-you-forever-until-we-meet-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
