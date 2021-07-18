@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Best site for custom stuffed animals? His breed isn't recognized by AKC or pet stores](https://news.puppy-snuggles.com/7701294/best-site-for-custom-stuffed-animals-his-breed-isnt-recognized-by-akc-or-pet-stores)
-- [Orion so happy to be going a golf cart ride with dad 😍](https://news.puppy-snuggles.com/7507165/orion-so-happy-to-be-going-a-golf-cart-ride-with-dad)
-- [This little pup made my day :)](https://news.puppy-snuggles.com/7701295/this-little-pup-made-my-day)
-- [Did someone say walkies?](https://news.puppy-snuggles.com/5654340/did-someone-say-walkies)
-- [All I need](https://news.puppy-snuggles.com/7701291/all-i-need)
+- [These dogs have been my biggest support the past year, I owe them everything](https://news.puppy-snuggles.com/5450534/these-dogs-have-been-my-biggest-support-the-past-year-i-owe-them-everything)
+- [He may have not been the brightest marble in the bag, but he was a bright spot in our lives. Our boy, Gandalf, went to sleep last night and never woke up. He gave us 9 years of the best hugs and kisses. He will be dearly missed.](https://news.puppy-snuggles.com/7038555/he-may-have-not-been-the-brightest-marble-in-the-bag-but-he-was-a-bright-spot-in-our-lives-our-boy-gandalf-went-to-sleep-last-night-and-never-woke-up-he-gave-us-9-years-of-the-best-hugs-and-kisses-he-will-be-dearly-missed)
+- [He was not a fan of this hat](https://news.puppy-snuggles.com/7714903/he-was-not-a-fan-of-this-hat)
+- [Some terrifying pictures of my low quality dog](https://news.puppy-snuggles.com/7724992/some-terrifying-pictures-of-my-low-quality-dog)
+- [How is she even a Jack Russell!?](https://news.puppy-snuggles.com/7724993/how-is-she-even-a-jack-russell)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
