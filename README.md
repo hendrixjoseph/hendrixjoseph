@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [These dogs have been my biggest support the past year, I owe them everything](https://news.puppy-snuggles.com/5450534/these-dogs-have-been-my-biggest-support-the-past-year-i-owe-them-everything)
-- [He may have not been the brightest marble in the bag, but he was a bright spot in our lives. Our boy, Gandalf, went to sleep last night and never woke up. He gave us 9 years of the best hugs and kisses. He will be dearly missed.](https://news.puppy-snuggles.com/7038555/he-may-have-not-been-the-brightest-marble-in-the-bag-but-he-was-a-bright-spot-in-our-lives-our-boy-gandalf-went-to-sleep-last-night-and-never-woke-up-he-gave-us-9-years-of-the-best-hugs-and-kisses-he-will-be-dearly-missed)
-- [He was not a fan of this hat](https://news.puppy-snuggles.com/7714903/he-was-not-a-fan-of-this-hat)
-- [Some terrifying pictures of my low quality dog](https://news.puppy-snuggles.com/7724992/some-terrifying-pictures-of-my-low-quality-dog)
-- [How is she even a Jack Russell!?](https://news.puppy-snuggles.com/7724993/how-is-she-even-a-jack-russell)
+- [Cute dog video](https://news.puppy-snuggles.com/7744339/cute-dog-video)
+- [Snuggy Rail](https://news.puppy-snuggles.com/7744337/snuggy-rail)
+- [Our first ever dog a rescue named shadow](https://news.puppy-snuggles.com/7739702/our-first-ever-dog-a-rescue-named-shadow)
+- [A rare animal spotted: the bunnydog](https://news.puppy-snuggles.com/7739704/a-rare-animal-spotted-the-bunnydog)
+- [Meet the Dude. Sweetest, smelliest, most loyal rescue pup I've ever had.](https://news.puppy-snuggles.com/7744338/meet-the-dude-sweetest-smelliest-most-loyal-rescue-pup-ive-ever-had)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
