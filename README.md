@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cute dog video](https://news.puppy-snuggles.com/7744339/cute-dog-video)
-- [Snuggy Rail](https://news.puppy-snuggles.com/7744337/snuggy-rail)
-- [Our first ever dog a rescue named shadow](https://news.puppy-snuggles.com/7739702/our-first-ever-dog-a-rescue-named-shadow)
-- [A rare animal spotted: the bunnydog](https://news.puppy-snuggles.com/7739704/a-rare-animal-spotted-the-bunnydog)
-- [Meet the Dude. Sweetest, smelliest, most loyal rescue pup I've ever had.](https://news.puppy-snuggles.com/7744338/meet-the-dude-sweetest-smelliest-most-loyal-rescue-pup-ive-ever-had)
+- [Old girl walkie smile (:](https://news.puppy-snuggles.com/3493017/old-girl-walkie-smile)
+- [Can't handle the heat, but still insists on frying her brains out](https://news.puppy-snuggles.com/7770682/cant-handle-the-heat-but-still-insists-on-frying-her-brains-out)
+- [Such a tolerant good boy 😂](https://news.puppy-snuggles.com/7762934/such-a-tolerant-good-boy)
+- [Fiiinally got a pic of my neighbor’s pup curled up chillin in her giant kettle! Took 2 yrs bc she knows I always have pocket treats so she bolts to the fence.](https://news.puppy-snuggles.com/7210118/fiiinally-got-a-pic-of-my-neighbors-pup-curled-up-chillin-in-her-giant-kettle-took-2-yrs-bc-she-knows-i-always-have-pocket-treats-so-she-bolts-to-the-fence)
+- [She sleepin (low quality because she's a light sleeper so I couldn't go outside to take the picture)](https://news.puppy-snuggles.com/7770683/she-sleepin-low-quality-because-shes-a-light-sleeper-so-i-couldnt-go-outside-to-take-the-picture)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
