@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Old girl walkie smile (:](https://news.puppy-snuggles.com/3493017/old-girl-walkie-smile)
-- [Can't handle the heat, but still insists on frying her brains out](https://news.puppy-snuggles.com/7770682/cant-handle-the-heat-but-still-insists-on-frying-her-brains-out)
-- [Such a tolerant good boy 😂](https://news.puppy-snuggles.com/7762934/such-a-tolerant-good-boy)
-- [Fiiinally got a pic of my neighbor’s pup curled up chillin in her giant kettle! Took 2 yrs bc she knows I always have pocket treats so she bolts to the fence.](https://news.puppy-snuggles.com/7210118/fiiinally-got-a-pic-of-my-neighbors-pup-curled-up-chillin-in-her-giant-kettle-took-2-yrs-bc-she-knows-i-always-have-pocket-treats-so-she-bolts-to-the-fence)
-- [She sleepin (low quality because she's a light sleeper so I couldn't go outside to take the picture)](https://news.puppy-snuggles.com/7770683/she-sleepin-low-quality-because-shes-a-light-sleeper-so-i-couldnt-go-outside-to-take-the-picture)
+- [Some times, on a hot day, Emmy comes out of the brush to accept treats of ice cream.](https://news.puppy-snuggles.com/7800521/some-times-on-a-hot-day-emmy-comes-out-of-the-brush-to-accept-treats-of-ice-cream)
+- [What do you call this? Isn’t blem or bloop or something?](https://news.puppy-snuggles.com/6726900/what-do-you-call-this-isnt-blem-or-bloop-or-something)
+- [Snoozing...](https://news.puppy-snuggles.com/5429042/snoozing)
+- [brought the pup to the dog park :) looks like she’s having a good time](https://news.puppy-snuggles.com/7800522/brought-the-pup-to-the-dog-park-looks-like-shes-having-a-good-time)
+- [Sunshine](https://news.puppy-snuggles.com/7714904/sunshine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
