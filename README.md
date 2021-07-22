@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Some times, on a hot day, Emmy comes out of the brush to accept treats of ice cream.](https://news.puppy-snuggles.com/7800521/some-times-on-a-hot-day-emmy-comes-out-of-the-brush-to-accept-treats-of-ice-cream)
-- [What do you call this? Isn’t blem or bloop or something?](https://news.puppy-snuggles.com/6726900/what-do-you-call-this-isnt-blem-or-bloop-or-something)
-- [Snoozing...](https://news.puppy-snuggles.com/5429042/snoozing)
-- [brought the pup to the dog park :) looks like she’s having a good time](https://news.puppy-snuggles.com/7800522/brought-the-pup-to-the-dog-park-looks-like-shes-having-a-good-time)
-- [Sunshine](https://news.puppy-snuggles.com/7714904/sunshine)
+- [“Whatever it is, I didn’t do it.”](https://news.puppy-snuggles.com/5501995/whatever-it-is-i-didnt-do-it)
+- [“You are more powerful than you know; you are beautiful just as you are.” --Melissa Etheridge 🐾](https://news.puppy-snuggles.com/3400220/you-are-more-powerful-than-you-know-you-are-beautiful-just-as-you-are-melissa-etheridge)
+- [Not my meme but this is pretty wholesome so I thought I should post it here](https://news.puppy-snuggles.com/5466225/not-my-meme-but-this-is-pretty-wholesome-so-i-thought-i-should-post-it-here)
+- [He wanted to play hes so cute swipe lift for more photographs](https://news.puppy-snuggles.com/7830626/he-wanted-to-play-hes-so-cute-swipe-lift-for-more-photographs)
+- [So i found this dope ass life jacket and I cannot wait to really use it 😂😂😂](https://news.puppy-snuggles.com/7800520/so-i-found-this-dope-ass-life-jacket-and-i-cannot-wait-to-really-use-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
