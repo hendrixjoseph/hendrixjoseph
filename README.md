@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Whatever it is, I didn’t do it.”](https://news.puppy-snuggles.com/5501995/whatever-it-is-i-didnt-do-it)
-- [“You are more powerful than you know; you are beautiful just as you are.” --Melissa Etheridge 🐾](https://news.puppy-snuggles.com/3400220/you-are-more-powerful-than-you-know-you-are-beautiful-just-as-you-are-melissa-etheridge)
-- [Not my meme but this is pretty wholesome so I thought I should post it here](https://news.puppy-snuggles.com/5466225/not-my-meme-but-this-is-pretty-wholesome-so-i-thought-i-should-post-it-here)
-- [He wanted to play hes so cute swipe lift for more photographs](https://news.puppy-snuggles.com/7830626/he-wanted-to-play-hes-so-cute-swipe-lift-for-more-photographs)
-- [So i found this dope ass life jacket and I cannot wait to really use it 😂😂😂](https://news.puppy-snuggles.com/7800520/so-i-found-this-dope-ass-life-jacket-and-i-cannot-wait-to-really-use-it)
+- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
+- [A happy boi](https://news.puppy-snuggles.com/3613617/a-happy-boi)
+- [The sweetest soul that this universe has ever materialized crossed the rainbow bridge today. Bailey was the bestest girl you could ever ask for.](https://news.puppy-snuggles.com/7837919/the-sweetest-soul-that-this-universe-has-ever-materialized-crossed-the-rainbow-bridge-today-bailey-was-the-bestest-girl-you-could-ever-ask-for)
+- [Lucky hasn't bought a new toy in a long time, so Lucky seems very happy. Look at the way he smiles](https://news.puppy-snuggles.com/7850737/lucky-hasnt-bought-a-new-toy-in-a-long-time-so-lucky-seems-very-happy-look-at-the-way-he-smiles)
+- [Don't let them fool you, one is a total ass and the other is the sweetest in the world.](https://news.puppy-snuggles.com/7850736/dont-let-them-fool-you-one-is-a-total-ass-and-the-other-is-the-sweetest-in-the-world)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
