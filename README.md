@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
-- [A happy boi](https://news.puppy-snuggles.com/3613617/a-happy-boi)
-- [The sweetest soul that this universe has ever materialized crossed the rainbow bridge today. Bailey was the bestest girl you could ever ask for.](https://news.puppy-snuggles.com/7837919/the-sweetest-soul-that-this-universe-has-ever-materialized-crossed-the-rainbow-bridge-today-bailey-was-the-bestest-girl-you-could-ever-ask-for)
-- [Lucky hasn't bought a new toy in a long time, so Lucky seems very happy. Look at the way he smiles](https://news.puppy-snuggles.com/7850737/lucky-hasnt-bought-a-new-toy-in-a-long-time-so-lucky-seems-very-happy-look-at-the-way-he-smiles)
-- [Don't let them fool you, one is a total ass and the other is the sweetest in the world.](https://news.puppy-snuggles.com/7850736/dont-let-them-fool-you-one-is-a-total-ass-and-the-other-is-the-sweetest-in-the-world)
+- [That one annoying sibling](https://news.puppy-snuggles.com/5190630/that-one-annoying-sibling)
+- [My GF and I going to adopt this little guy in a few days and we need a ridiculous name. What is the best you can think of?](https://news.puppy-snuggles.com/7770677/my-gf-and-i-going-to-adopt-this-little-guy-in-a-few-days-and-we-need-a-ridiculous-name-what-is-the-best-you-can-think-of)
+- [Close up of moose](https://news.puppy-snuggles.com/5496323/close-up-of-moose)
+- [My dog got tired of camping.](https://news.puppy-snuggles.com/7770678/my-dog-got-tired-of-camping)
+- [Just discovered this sub, and thought I’d share the first picture I took of Tony smirking on our couch!](https://news.puppy-snuggles.com/7860960/just-discovered-this-sub-and-thought-id-share-the-first-picture-i-took-of-tony-smirking-on-our-couch)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
