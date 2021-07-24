@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Searching trademarks](https://www.reddit.com/r/AmazonMerch/comments/oq303b/searching_trademarks/h69o8na/)
 - [/u/joehx on Finished 400th in this week’s event and excitedly open my two polestar rewards and got two of these. C’mon!](https://www.reddit.com/r/StarTrekTimelines/comments/onhl9h/finished_400th_in_this_weeks_event_and_excitedly/h5sbr09/)
 - [/u/joehx on Daily FI discussion thread - Monday, July 19, 2021](https://www.reddit.com/r/financialindependence/comments/onaahx/daily_fi_discussion_thread_monday_july_19_2021/h5rmnob/)
 - [/u/joehx on Daily FI discussion thread - Monday, July 19, 2021](https://www.reddit.com/r/financialindependence/comments/onaahx/daily_fi_discussion_thread_monday_july_19_2021/h5rmdcg/)
 - [/u/joehx on Official referral thread](https://www.reddit.com/r/Webull/comments/o3sa7q/official_referral_thread/h5a67cx/)
-- [/u/joehx on Weekly Self-Promotion Thread - July 14, 2021](https://www.reddit.com/r/financialindependence/comments/ok0f05/weekly_selfpromotion_thread_july_14_2021/h55qy6o/)
 <!-- REDDIT:END -->
