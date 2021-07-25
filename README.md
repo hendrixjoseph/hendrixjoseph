@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [This is Ruby’s smile, she’s trying her best! Full Boxer no mix (just a wonderful underbite)](https://news.puppy-snuggles.com/7897435/this-is-rubys-smile-shes-trying-her-best-full-boxer-no-mix-just-a-wonderful-underbite)
+- [Just adopted Jenny two days ago. I think she’s settling in just fine.](https://news.puppy-snuggles.com/7897436/just-adopted-jenny-two-days-ago-i-think-shes-settling-in-just-fine)
 - [That one annoying sibling](https://news.puppy-snuggles.com/5190630/that-one-annoying-sibling)
-- [My GF and I going to adopt this little guy in a few days and we need a ridiculous name. What is the best you can think of?](https://news.puppy-snuggles.com/7770677/my-gf-and-i-going-to-adopt-this-little-guy-in-a-few-days-and-we-need-a-ridiculous-name-what-is-the-best-you-can-think-of)
-- [Close up of moose](https://news.puppy-snuggles.com/5496323/close-up-of-moose)
-- [My dog got tired of camping.](https://news.puppy-snuggles.com/7770678/my-dog-got-tired-of-camping)
-- [Just discovered this sub, and thought I’d share the first picture I took of Tony smirking on our couch!](https://news.puppy-snuggles.com/7860960/just-discovered-this-sub-and-thought-id-share-the-first-picture-i-took-of-tony-smirking-on-our-couch)
+- [August is a very serious girl.](https://news.puppy-snuggles.com/5411689/august-is-a-very-serious-girl)
+- [New bed who this.](https://news.puppy-snuggles.com/3465399/new-bed-who-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
