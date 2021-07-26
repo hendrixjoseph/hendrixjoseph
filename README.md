@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Ruby’s smile, she’s trying her best! Full Boxer no mix (just a wonderful underbite)](https://news.puppy-snuggles.com/7897435/this-is-rubys-smile-shes-trying-her-best-full-boxer-no-mix-just-a-wonderful-underbite)
-- [Just adopted Jenny two days ago. I think she’s settling in just fine.](https://news.puppy-snuggles.com/7897436/just-adopted-jenny-two-days-ago-i-think-shes-settling-in-just-fine)
-- [That one annoying sibling](https://news.puppy-snuggles.com/5190630/that-one-annoying-sibling)
-- [August is a very serious girl.](https://news.puppy-snuggles.com/5411689/august-is-a-very-serious-girl)
-- [New bed who this.](https://news.puppy-snuggles.com/3465399/new-bed-who-this)
+- [Meet Lui, the newest member of our house](https://news.puppy-snuggles.com/7837913/meet-lui-the-newest-member-of-our-house)
+- [This is Jet. He passed away peacefully from old age on March 10th 2021. I miss his smiles.](https://news.puppy-snuggles.com/4693529/this-is-jet-he-passed-away-peacefully-from-old-age-on-march-10th-2021-i-miss-his-smiles)
+- [This is my dog he has a nerve disease and he's recovering well](https://news.puppy-snuggles.com/7687995/this-is-my-dog-he-has-a-nerve-disease-and-hes-recovering-well)
+- [Fun at the river.](https://news.puppy-snuggles.com/7910984/fun-at-the-river)
+- [Smiles from Then &amp;amp; Now](https://news.puppy-snuggles.com/6096528/smiles-from-then-amp-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
