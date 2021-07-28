@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My squishiest babies 🐕🐾🐕🐾❤️❤️](https://news.puppy-snuggles.com/7937688/my-squishiest-babies)
-- [TFW mom makes you take a picture with your new present but you are dying to get at it](https://news.puppy-snuggles.com/7925035/tfw-mom-makes-you-take-a-picture-with-your-new-present-but-you-are-dying-to-get-at-it)
-- [Camo thinks that there is always time to play tennis ball](https://news.puppy-snuggles.com/7937689/camo-thinks-that-there-is-always-time-to-play-tennis-ball)
-- [Meet Sammy! She's been my best pal since I adopted her 3 years ago. Though most people assume she's a puppy due to her short stature, she's actually 7 years old! She's loving, loyal, and full of energy and I don't know where I'd be without her!](https://news.puppy-snuggles.com/7930495/meet-sammy-shes-been-my-best-pal-since-i-adopted-her-3-years-ago-though-most-people-assume-shes-a-puppy-due-to-her-short-stature-shes-actually-7-years-old-shes-loving-loyal-and-full-of-energy-and-i-dont-know-where-id-be-without-her)
-- [Raise your hand ! You were arrested for being too cute](https://news.puppy-snuggles.com/7910980/raise-your-hand-you-were-arrested-for-being-too-cute)
+- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
+- [He loves to lay on feet](https://news.puppy-snuggles.com/7966431/he-loves-to-lay-on-feet)
+- [My sweet and goofy boys! Hank the goldendoodle and Cash the blue tick coon hound](https://news.puppy-snuggles.com/7920412/my-sweet-and-goofy-boys-hank-the-goldendoodle-and-cash-the-blue-tick-coon-hound)
+- [Adopted this 11 Y/O grumpy looking dog, when I gave him a trim I found a happy puppy.](https://news.puppy-snuggles.com/7966434/adopted-this-11-yo-grumpy-looking-dog-when-i-gave-him-a-trim-i-found-a-happy-puppy)
+- [You were an incredible dog, Poppy. 15 years of joyful, friendly, humble companionship. I learned a lot from you! Can't believe you stuck around for 2 more years until I got back to say goodbye. I'm heart broken.](https://news.puppy-snuggles.com/7945205/you-were-an-incredible-dog-poppy-15-years-of-joyful-friendly-humble-companionship-i-learned-a-lot-from-you-cant-believe-you-stuck-around-for-2-more-years-until-i-got-back-to-say-goodbye-im-heart-broken)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
