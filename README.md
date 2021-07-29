@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
-- [He loves to lay on feet](https://news.puppy-snuggles.com/7966431/he-loves-to-lay-on-feet)
-- [My sweet and goofy boys! Hank the goldendoodle and Cash the blue tick coon hound](https://news.puppy-snuggles.com/7920412/my-sweet-and-goofy-boys-hank-the-goldendoodle-and-cash-the-blue-tick-coon-hound)
-- [Adopted this 11 Y/O grumpy looking dog, when I gave him a trim I found a happy puppy.](https://news.puppy-snuggles.com/7966434/adopted-this-11-yo-grumpy-looking-dog-when-i-gave-him-a-trim-i-found-a-happy-puppy)
-- [You were an incredible dog, Poppy. 15 years of joyful, friendly, humble companionship. I learned a lot from you! Can't believe you stuck around for 2 more years until I got back to say goodbye. I'm heart broken.](https://news.puppy-snuggles.com/7945205/you-were-an-incredible-dog-poppy-15-years-of-joyful-friendly-humble-companionship-i-learned-a-lot-from-you-cant-believe-you-stuck-around-for-2-more-years-until-i-got-back-to-say-goodbye-im-heart-broken)
+- [Is it still considered a &amp;quot;blep&amp;quot; when it's a sleeping dog?](https://news.puppy-snuggles.com/7994948/is-it-still-considered-a-quotblepquot-when-its-a-sleeping-dog)
+- [It’s my 1st cake day. I’m no longer a puppysmile, but here’s a compilation of my smiles that has my momma in tears. Fear not frends - we are all, and will always be, pups at heart.](https://news.puppy-snuggles.com/7951908/its-my-1st-cake-day-im-no-longer-a-puppysmile-but-heres-a-compilation-of-my-smiles-that-has-my-momma-in-tears-fear-not-frends-we-are-all-and-will-always-be-pups-at-heart)
+- [This is how looks best friend to all people,my little baby :)](https://news.puppy-snuggles.com/7850738/this-is-how-looks-best-friend-to-all-peoplemy-little-baby)
+- [Cooper is living his best life.](https://news.puppy-snuggles.com/7994950/cooper-is-living-his-best-life)
+- [It’s called FASHION.](https://news.puppy-snuggles.com/7994949/its-called-fashion)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
