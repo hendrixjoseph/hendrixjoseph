@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is it still considered a &amp;quot;blep&amp;quot; when it's a sleeping dog?](https://news.puppy-snuggles.com/7994948/is-it-still-considered-a-quotblepquot-when-its-a-sleeping-dog)
-- [It’s my 1st cake day. I’m no longer a puppysmile, but here’s a compilation of my smiles that has my momma in tears. Fear not frends - we are all, and will always be, pups at heart.](https://news.puppy-snuggles.com/7951908/its-my-1st-cake-day-im-no-longer-a-puppysmile-but-heres-a-compilation-of-my-smiles-that-has-my-momma-in-tears-fear-not-frends-we-are-all-and-will-always-be-pups-at-heart)
-- [This is how looks best friend to all people,my little baby :)](https://news.puppy-snuggles.com/7850738/this-is-how-looks-best-friend-to-all-peoplemy-little-baby)
-- [Cooper is living his best life.](https://news.puppy-snuggles.com/7994950/cooper-is-living-his-best-life)
-- [It’s called FASHION.](https://news.puppy-snuggles.com/7994949/its-called-fashion)
+- [Border Collie Keeping watch](https://news.puppy-snuggles.com/8023096/border-collie-keeping-watch)
+- [Good boy crossed the rainbow bridge yesterday 🌈 Only three legs but he could zoom with the best of them. I just wanted people to see how handsome he is](https://news.puppy-snuggles.com/4995532/good-boy-crossed-the-rainbow-bridge-yesterday-only-three-legs-but-he-could-zoom-with-the-best-of-them-i-just-wanted-people-to-see-how-handsome-he-is)
+- [My boy duke has been different for sometime since I traveled due to my job.. I got informed that he's been feeling so lonely and tends to fall sick . I've been so worried after I got the news and I don't know what to do right now](https://news.puppy-snuggles.com/7681072/my-boy-duke-has-been-different-for-sometime-since-i-traveled-due-to-my-job-i-got-informed-that-hes-been-feeling-so-lonely-and-tends-to-fall-sick-ive-been-so-worried-after-i-got-the-news-and-i-dont-know-what-to-do-right-now)
+- [Ignore the human… but enjoy the 10 year old beast of a dog who just had bladder stone surgery! Such a good girl!](https://news.puppy-snuggles.com/8023097/ignore-the-human-but-enjoy-the-10-year-old-beast-of-a-dog-who-just-had-bladder-stone-surgery-such-a-good-girl)
+- [Goodest girl is so proud of my new sticker.](https://news.puppy-snuggles.com/7837922/goodest-girl-is-so-proud-of-my-new-sticker)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
