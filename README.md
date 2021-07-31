@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Border Collie Keeping watch](https://news.puppy-snuggles.com/8023096/border-collie-keeping-watch)
-- [Good boy crossed the rainbow bridge yesterday 🌈 Only three legs but he could zoom with the best of them. I just wanted people to see how handsome he is](https://news.puppy-snuggles.com/4995532/good-boy-crossed-the-rainbow-bridge-yesterday-only-three-legs-but-he-could-zoom-with-the-best-of-them-i-just-wanted-people-to-see-how-handsome-he-is)
-- [My boy duke has been different for sometime since I traveled due to my job.. I got informed that he's been feeling so lonely and tends to fall sick . I've been so worried after I got the news and I don't know what to do right now](https://news.puppy-snuggles.com/7681072/my-boy-duke-has-been-different-for-sometime-since-i-traveled-due-to-my-job-i-got-informed-that-hes-been-feeling-so-lonely-and-tends-to-fall-sick-ive-been-so-worried-after-i-got-the-news-and-i-dont-know-what-to-do-right-now)
-- [Ignore the human… but enjoy the 10 year old beast of a dog who just had bladder stone surgery! Such a good girl!](https://news.puppy-snuggles.com/8023097/ignore-the-human-but-enjoy-the-10-year-old-beast-of-a-dog-who-just-had-bladder-stone-surgery-such-a-good-girl)
-- [Goodest girl is so proud of my new sticker.](https://news.puppy-snuggles.com/7837922/goodest-girl-is-so-proud-of-my-new-sticker)
+- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
+- [she was playing around with my pillow then she fell over and looked like this. Cutest picture i have of her](https://news.puppy-snuggles.com/7822577/she-was-playing-around-with-my-pillow-then-she-fell-over-and-looked-like-this-cutest-picture-i-have-of-her)
+- [hello! first time posting here, this my dog, she is called Minnie. She is very silly, and cute, (and a bit crazy).](https://news.puppy-snuggles.com/8044296/hello-first-time-posting-here-this-my-dog-she-is-called-minnie-she-is-very-silly-and-cute-and-a-bit-crazy)
+- [My best buddy. He is such a oddball.](https://news.puppy-snuggles.com/8051472/my-best-buddy-he-is-such-a-oddball)
+- [My old girl Pillage](https://news.puppy-snuggles.com/8044299/my-old-girl-pillage)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
