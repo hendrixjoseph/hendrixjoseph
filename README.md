@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
-- [she was playing around with my pillow then she fell over and looked like this. Cutest picture i have of her](https://news.puppy-snuggles.com/7822577/she-was-playing-around-with-my-pillow-then-she-fell-over-and-looked-like-this-cutest-picture-i-have-of-her)
-- [hello! first time posting here, this my dog, she is called Minnie. She is very silly, and cute, (and a bit crazy).](https://news.puppy-snuggles.com/8044296/hello-first-time-posting-here-this-my-dog-she-is-called-minnie-she-is-very-silly-and-cute-and-a-bit-crazy)
-- [My best buddy. He is such a oddball.](https://news.puppy-snuggles.com/8051472/my-best-buddy-he-is-such-a-oddball)
-- [My old girl Pillage](https://news.puppy-snuggles.com/8044299/my-old-girl-pillage)
+- [Little Lulu disguised as a Bunny.](https://news.puppy-snuggles.com/8074703/little-lulu-disguised-as-a-bunny)
+- [I couldn't decide on just one 💕](https://news.puppy-snuggles.com/8059065/i-couldnt-decide-on-just-one)
+- [From having Raptor teeth to having the best smile ever! Swipe to see!](https://news.puppy-snuggles.com/7994947/from-having-raptor-teeth-to-having-the-best-smile-ever-swipe-to-see)
+- [I'm going to find my mom!](https://news.puppy-snuggles.com/8008756/im-going-to-find-my-mom)
+- [My about 3 month old baby boy Moose](https://news.puppy-snuggles.com/8064908/my-about-3-month-old-baby-boy-moose)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
