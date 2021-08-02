@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Little Lulu disguised as a Bunny.](https://news.puppy-snuggles.com/8074703/little-lulu-disguised-as-a-bunny)
-- [I couldn't decide on just one 💕](https://news.puppy-snuggles.com/8059065/i-couldnt-decide-on-just-one)
-- [From having Raptor teeth to having the best smile ever! Swipe to see!](https://news.puppy-snuggles.com/7994947/from-having-raptor-teeth-to-having-the-best-smile-ever-swipe-to-see)
-- [I'm going to find my mom!](https://news.puppy-snuggles.com/8008756/im-going-to-find-my-mom)
-- [My about 3 month old baby boy Moose](https://news.puppy-snuggles.com/8064908/my-about-3-month-old-baby-boy-moose)
+- [My boy turns 9 today!](https://news.puppy-snuggles.com/7592471/my-boy-turns-9-today)
+- [Live fast, die young. Please read Diego's full story posted in the comments.](https://news.puppy-snuggles.com/8096201/live-fast-die-young-please-read-diegos-full-story-posted-in-the-comments)
+- [my art commissions dog portrait](https://news.puppy-snuggles.com/7030647/my-art-commissions-dog-portrait)
+- [One week after bringing our second rescue home our big brindle boi is now inseparable from his big sister.](https://news.puppy-snuggles.com/6940676/one-week-after-bringing-our-second-rescue-home-our-big-brindle-boi-is-now-inseparable-from-his-big-sister)
+- [Visions of doggie treats danced in her head](https://news.puppy-snuggles.com/7708967/visions-of-doggie-treats-danced-in-her-head)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
