@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy turns 9 today!](https://news.puppy-snuggles.com/7592471/my-boy-turns-9-today)
-- [Live fast, die young. Please read Diego's full story posted in the comments.](https://news.puppy-snuggles.com/8096201/live-fast-die-young-please-read-diegos-full-story-posted-in-the-comments)
-- [my art commissions dog portrait](https://news.puppy-snuggles.com/7030647/my-art-commissions-dog-portrait)
-- [One week after bringing our second rescue home our big brindle boi is now inseparable from his big sister.](https://news.puppy-snuggles.com/6940676/one-week-after-bringing-our-second-rescue-home-our-big-brindle-boi-is-now-inseparable-from-his-big-sister)
-- [Visions of doggie treats danced in her head](https://news.puppy-snuggles.com/7708967/visions-of-doggie-treats-danced-in-her-head)
+- [So happy!](https://news.puppy-snuggles.com/8051466/so-happy)
+- [Dog reveal, she hates doing the bath](https://news.puppy-snuggles.com/8044295/dog-reveal-she-hates-doing-the-bath)
+- [Need a good caption, if anyone nose any 😉](https://news.puppy-snuggles.com/7902141/need-a-good-caption-if-anyone-nose-any)
+- [Some dogs go outside and find a nice stick to carry around. Mine found a severed Barbie head. I don’t have the heart to take it away](https://news.puppy-snuggles.com/7185040/some-dogs-go-outside-and-find-a-nice-stick-to-carry-around-mine-found-a-severed-barbie-head-i-dont-have-the-heart-to-take-it-away)
+- [Forever accompanied by these cuties!](https://news.puppy-snuggles.com/5629448/forever-accompanied-by-these-cuties)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
