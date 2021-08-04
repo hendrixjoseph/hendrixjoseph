@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So happy!](https://news.puppy-snuggles.com/8051466/so-happy)
-- [Dog reveal, she hates doing the bath](https://news.puppy-snuggles.com/8044295/dog-reveal-she-hates-doing-the-bath)
-- [Need a good caption, if anyone nose any 😉](https://news.puppy-snuggles.com/7902141/need-a-good-caption-if-anyone-nose-any)
-- [Some dogs go outside and find a nice stick to carry around. Mine found a severed Barbie head. I don’t have the heart to take it away](https://news.puppy-snuggles.com/7185040/some-dogs-go-outside-and-find-a-nice-stick-to-carry-around-mine-found-a-severed-barbie-head-i-dont-have-the-heart-to-take-it-away)
-- [Forever accompanied by these cuties!](https://news.puppy-snuggles.com/5629448/forever-accompanied-by-these-cuties)
+- [She is got such a Pretty Smile](https://news.puppy-snuggles.com/7333748/she-is-got-such-a-pretty-smile)
+- [Petsitting for my neighbor! This is Naya, a former laboratory beagle](https://news.puppy-snuggles.com/7762939/petsitting-for-my-neighbor-this-is-naya-a-former-laboratory-beagle)
+- [Is she a dachshund?](https://news.puppy-snuggles.com/8044301/is-she-a-dachshund)
+- [My niece lost her best friend Lu Lu last night. Best dog ever. God speed sweet girl! ❤️](https://news.puppy-snuggles.com/5718482/my-niece-lost-her-best-friend-lu-lu-last-night-best-dog-ever-god-speed-sweet-girl)
+- [My best buddy. He is such a oddball.](https://news.puppy-snuggles.com/8051472/my-best-buddy-he-is-such-a-oddball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
