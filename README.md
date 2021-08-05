@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She is got such a Pretty Smile](https://news.puppy-snuggles.com/7333748/she-is-got-such-a-pretty-smile)
-- [Petsitting for my neighbor! This is Naya, a former laboratory beagle](https://news.puppy-snuggles.com/7762939/petsitting-for-my-neighbor-this-is-naya-a-former-laboratory-beagle)
-- [Is she a dachshund?](https://news.puppy-snuggles.com/8044301/is-she-a-dachshund)
-- [My niece lost her best friend Lu Lu last night. Best dog ever. God speed sweet girl! ❤️](https://news.puppy-snuggles.com/5718482/my-niece-lost-her-best-friend-lu-lu-last-night-best-dog-ever-god-speed-sweet-girl)
-- [My best buddy. He is such a oddball.](https://news.puppy-snuggles.com/8051472/my-best-buddy-he-is-such-a-oddball)
+- [I’m hoping you have a treat for me!](https://news.puppy-snuggles.com/7611010/im-hoping-you-have-a-treat-for-me)
+- [After 12 days of being missing in 90 heat and rain storms, my little old man was found. About 10 lbs lighter, but well. Trip to the vet tomorrow to check him out](https://news.puppy-snuggles.com/8161758/after-12-days-of-being-missing-in-90-heat-and-rain-storms-my-little-old-man-was-found-about-10-lbs-lighter-but-well-trip-to-the-vet-tomorrow-to-check-him-out)
+- [Meet Shiba! The most majestic dog you ever saw](https://news.puppy-snuggles.com/6127273/meet-shiba-the-most-majestic-dog-you-ever-saw)
+- [Lil’ Buddy was really excited to come see me!](https://news.puppy-snuggles.com/6867313/lil-buddy-was-really-excited-to-come-see-me)
+- [Best cushion ever!!!❤️](https://news.puppy-snuggles.com/8175947/best-cushion-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
