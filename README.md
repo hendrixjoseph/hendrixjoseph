@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m hoping you have a treat for me!](https://news.puppy-snuggles.com/7611010/im-hoping-you-have-a-treat-for-me)
-- [After 12 days of being missing in 90 heat and rain storms, my little old man was found. About 10 lbs lighter, but well. Trip to the vet tomorrow to check him out](https://news.puppy-snuggles.com/8161758/after-12-days-of-being-missing-in-90-heat-and-rain-storms-my-little-old-man-was-found-about-10-lbs-lighter-but-well-trip-to-the-vet-tomorrow-to-check-him-out)
-- [Meet Shiba! The most majestic dog you ever saw](https://news.puppy-snuggles.com/6127273/meet-shiba-the-most-majestic-dog-you-ever-saw)
-- [Lil’ Buddy was really excited to come see me!](https://news.puppy-snuggles.com/6867313/lil-buddy-was-really-excited-to-come-see-me)
-- [Best cushion ever!!!❤️](https://news.puppy-snuggles.com/8175947/best-cushion-ever)
+- [Enjoying the forest](https://news.puppy-snuggles.com/8203100/enjoying-the-forest)
+- [I love her weird little smile](https://news.puppy-snuggles.com/7644259/i-love-her-weird-little-smile)
+- [12 weeks to 12 months. Happy Birthday Kingsley!](https://news.puppy-snuggles.com/7542960/12-weeks-to-12-months-happy-birthday-kingsley)
+- [Her name is Cora. We call her “Happy Cora”.](https://news.puppy-snuggles.com/4489796/her-name-is-cora-we-call-her-happy-cora)
+- [I adopted Maximus about 8 weeks ago. His previous owner was mentally ill and forced to surrender him. I am working on building his confidence. Here he is, sitting on a picnic table. Four weeks ago, a park bench was Mt. Everest to him.](https://news.puppy-snuggles.com/8155756/i-adopted-maximus-about-8-weeks-ago-his-previous-owner-was-mentally-ill-and-forced-to-surrender-him-i-am-working-on-building-his-confidence-here-he-is-sitting-on-a-picnic-table-four-weeks-ago-a-park-bench-was-mt-everest-to-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
