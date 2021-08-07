@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Enjoying the forest](https://news.puppy-snuggles.com/8203100/enjoying-the-forest)
-- [I love her weird little smile](https://news.puppy-snuggles.com/7644259/i-love-her-weird-little-smile)
-- [12 weeks to 12 months. Happy Birthday Kingsley!](https://news.puppy-snuggles.com/7542960/12-weeks-to-12-months-happy-birthday-kingsley)
-- [Her name is Cora. We call her “Happy Cora”.](https://news.puppy-snuggles.com/4489796/her-name-is-cora-we-call-her-happy-cora)
-- [I adopted Maximus about 8 weeks ago. His previous owner was mentally ill and forced to surrender him. I am working on building his confidence. Here he is, sitting on a picnic table. Four weeks ago, a park bench was Mt. Everest to him.](https://news.puppy-snuggles.com/8155756/i-adopted-maximus-about-8-weeks-ago-his-previous-owner-was-mentally-ill-and-forced-to-surrender-him-i-am-working-on-building-his-confidence-here-he-is-sitting-on-a-picnic-table-four-weeks-ago-a-park-bench-was-mt-everest-to-him)
+- [Happy groomed boi (parents dog)](https://news.puppy-snuggles.com/6704399/happy-groomed-boi-parents-dog)
+- [My sweet girl crossed the Rainbow Bridge two days ago. Here’s one of my favorite pictures of her. I miss you, Auggie.](https://news.puppy-snuggles.com/8106838/my-sweet-girl-crossed-the-rainbow-bridge-two-days-ago-heres-one-of-my-favorite-pictures-of-her-i-miss-you-auggie)
+- [Linde &amp;amp; Faun, our loves and cottage farm dogs.](https://news.puppy-snuggles.com/3966025/linde-amp-faun-our-loves-and-cottage-farm-dogs)
+- [My best friend turned 11. She is quite the lady.](https://news.puppy-snuggles.com/8120405/my-best-friend-turned-11-she-is-quite-the-lady)
+- [Meet Frodo :)](https://news.puppy-snuggles.com/6325516/meet-frodo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
