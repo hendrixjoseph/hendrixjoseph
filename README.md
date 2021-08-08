@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Interesting Reads for the Week Ending August 6th](https://www.joehxblog.com/august-6-2021-interesting-reads/)
+- [July 2021 Book Reading List](https://www.joehxblog.com/july-2021-book-reading-list/)
 - [Interesting Reads for the Week Ending July 30th](https://www.joehxblog.com/july-30-2021-interesting-reads/)
 - [2021 Goal Check-In](https://www.joehxblog.com/2021-goal-check-in/)
 - [Interesting Reads for the Week Ending July 23rd](https://www.joehxblog.com/july-23-2021-interesting-reads/)
-- [13 Tips to Overcome Challenges in Business and Life](https://www.joehxblog.com/tips-to-overcome-challenges-in-business-and-life/)
-- [July 2021 Blog Statistics](https://www.joehxblog.com/july-2021-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
