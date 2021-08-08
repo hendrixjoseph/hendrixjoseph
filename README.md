@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy groomed boi (parents dog)](https://news.puppy-snuggles.com/6704399/happy-groomed-boi-parents-dog)
-- [My sweet girl crossed the Rainbow Bridge two days ago. Here’s one of my favorite pictures of her. I miss you, Auggie.](https://news.puppy-snuggles.com/8106838/my-sweet-girl-crossed-the-rainbow-bridge-two-days-ago-heres-one-of-my-favorite-pictures-of-her-i-miss-you-auggie)
-- [Linde &amp;amp; Faun, our loves and cottage farm dogs.](https://news.puppy-snuggles.com/3966025/linde-amp-faun-our-loves-and-cottage-farm-dogs)
-- [My best friend turned 11. She is quite the lady.](https://news.puppy-snuggles.com/8120405/my-best-friend-turned-11-she-is-quite-the-lady)
-- [Meet Frodo :)](https://news.puppy-snuggles.com/6325516/meet-frodo)
+- [Molly :,)](https://news.puppy-snuggles.com/8249896/molly)
+- [Look at this tongue.. adorable](https://news.puppy-snuggles.com/7369723/look-at-this-tongue-adorable)
+- [just my 9 months old boy](https://news.puppy-snuggles.com/8254754/just-my-9-months-old-boy)
+- [I never *don't* want pictures of your dog. It is never a bad or inappropriate time for dog pictures. I will never be displeased when receiving a dog picture. At no point in my life, will I ever say, &amp;quot;No, thank you. I don't want to see dog pictures right now.&amp;quot;](https://news.puppy-snuggles.com/5983977/i-never-dont-want-pictures-of-your-dog-it-is-never-a-bad-or-inappropriate-time-for-dog-pictures-i-will-never-be-displeased-when-receiving-a-dog-picture-at-no-point-in-my-life-will-i-ever-say-quotno-thank-you-i-dont-want-to-see-dog-pictures-right-nowquot)
+- [Check Out These Three Easter Doggy Traditions!](https://news.puppy-snuggles.com/3349992/check-out-these-three-easter-doggy-traditions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
