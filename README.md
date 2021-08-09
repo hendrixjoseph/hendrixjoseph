@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Molly :,)](https://news.puppy-snuggles.com/8249896/molly)
-- [Look at this tongue.. adorable](https://news.puppy-snuggles.com/7369723/look-at-this-tongue-adorable)
-- [just my 9 months old boy](https://news.puppy-snuggles.com/8254754/just-my-9-months-old-boy)
-- [I never *don't* want pictures of your dog. It is never a bad or inappropriate time for dog pictures. I will never be displeased when receiving a dog picture. At no point in my life, will I ever say, &amp;quot;No, thank you. I don't want to see dog pictures right now.&amp;quot;](https://news.puppy-snuggles.com/5983977/i-never-dont-want-pictures-of-your-dog-it-is-never-a-bad-or-inappropriate-time-for-dog-pictures-i-will-never-be-displeased-when-receiving-a-dog-picture-at-no-point-in-my-life-will-i-ever-say-quotno-thank-you-i-dont-want-to-see-dog-pictures-right-nowquot)
-- [Check Out These Three Easter Doggy Traditions!](https://news.puppy-snuggles.com/3349992/check-out-these-three-easter-doggy-traditions)
+- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
+- [My boy Judo loves the park](https://news.puppy-snuggles.com/8274679/my-boy-judo-loves-the-park)
+- [The newest addition to our family - Nala](https://news.puppy-snuggles.com/3839647/the-newest-addition-to-our-family-nala)
+- [When that one freind thinks their smile is cute but in reality-](https://news.puppy-snuggles.com/5935920/when-that-one-freind-thinks-their-smile-is-cute-but-in-reality)
+- [Brave kid!](https://news.puppy-snuggles.com/8238975/brave-kid)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
