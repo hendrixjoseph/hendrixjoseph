@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
-- [My boy Judo loves the park](https://news.puppy-snuggles.com/8274679/my-boy-judo-loves-the-park)
-- [The newest addition to our family - Nala](https://news.puppy-snuggles.com/3839647/the-newest-addition-to-our-family-nala)
-- [When that one freind thinks their smile is cute but in reality-](https://news.puppy-snuggles.com/5935920/when-that-one-freind-thinks-their-smile-is-cute-but-in-reality)
-- [Brave kid!](https://news.puppy-snuggles.com/8238975/brave-kid)
+- [Pup out for his first walk!](https://news.puppy-snuggles.com/8299834/pup-out-for-his-first-walk)
+- [Sweet girl Bailey will be 9 next month. 🥺🖤](https://news.puppy-snuggles.com/7625224/sweet-girl-bailey-will-be-9-next-month)
+- [335 days ago my Milo passed away and I had this tattooe yesterday to commemorate my old lad, LOVE YOU BOY!!](https://news.puppy-snuggles.com/6066697/335-days-ago-my-milo-passed-away-and-i-had-this-tattooe-yesterday-to-commemorate-my-old-lad-love-you-boy)
+- [The happy boy 🤩](https://news.puppy-snuggles.com/7374390/the-happy-boy)
+- [bunch of cuties](https://news.puppy-snuggles.com/5925995/bunch-of-cuties)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
