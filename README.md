@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pup out for his first walk!](https://news.puppy-snuggles.com/8299834/pup-out-for-his-first-walk)
-- [Sweet girl Bailey will be 9 next month. 🥺🖤](https://news.puppy-snuggles.com/7625224/sweet-girl-bailey-will-be-9-next-month)
-- [335 days ago my Milo passed away and I had this tattooe yesterday to commemorate my old lad, LOVE YOU BOY!!](https://news.puppy-snuggles.com/6066697/335-days-ago-my-milo-passed-away-and-i-had-this-tattooe-yesterday-to-commemorate-my-old-lad-love-you-boy)
-- [The happy boy 🤩](https://news.puppy-snuggles.com/7374390/the-happy-boy)
-- [bunch of cuties](https://news.puppy-snuggles.com/5925995/bunch-of-cuties)
+- [My babies are always together](https://news.puppy-snuggles.com/6666346/my-babies-are-always-together)
+- [a pack of puppies](https://news.puppy-snuggles.com/7229140/a-pack-of-puppies)
+- [this spoiled butt](https://news.puppy-snuggles.com/7625228/this-spoiled-butt)
+- [Celebrating 5 years with Ziggy Stardust today! 💙](https://news.puppy-snuggles.com/4293942/celebrating-5-years-with-ziggy-stardust-today)
+- [When you take your school photo](https://news.puppy-snuggles.com/8314289/when-you-take-your-school-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
