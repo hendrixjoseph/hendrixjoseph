@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My babies are always together](https://news.puppy-snuggles.com/6666346/my-babies-are-always-together)
-- [a pack of puppies](https://news.puppy-snuggles.com/7229140/a-pack-of-puppies)
-- [this spoiled butt](https://news.puppy-snuggles.com/7625228/this-spoiled-butt)
-- [Celebrating 5 years with Ziggy Stardust today! 💙](https://news.puppy-snuggles.com/4293942/celebrating-5-years-with-ziggy-stardust-today)
-- [When you take your school photo](https://news.puppy-snuggles.com/8314289/when-you-take-your-school-photo)
+- [She's a real beauty!](https://news.puppy-snuggles.com/5161661/shes-a-real-beauty)
+- [Someone just wants to play](https://news.puppy-snuggles.com/8127100/someone-just-wants-to-play)
+- [When the void smiles back…](https://news.puppy-snuggles.com/7966430/when-the-void-smiles-back)
+- [Liloves](https://news.puppy-snuggles.com/8090825/liloves)
+- [Really smart](https://news.puppy-snuggles.com/8329451/really-smart)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
