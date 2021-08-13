@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She's a real beauty!](https://news.puppy-snuggles.com/5161661/shes-a-real-beauty)
-- [Someone just wants to play](https://news.puppy-snuggles.com/8127100/someone-just-wants-to-play)
-- [When the void smiles back…](https://news.puppy-snuggles.com/7966430/when-the-void-smiles-back)
-- [Liloves](https://news.puppy-snuggles.com/8090825/liloves)
-- [Really smart](https://news.puppy-snuggles.com/8329451/really-smart)
+- [Dog pencil portrait.. commission work.. how's it give your valuable feedback](https://news.puppy-snuggles.com/5976426/dog-pencil-portrait-commission-work-hows-it-give-your-valuable-feedback)
+- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
+- [my old doggo o how I miss you](https://news.puppy-snuggles.com/8391602/my-old-doggo-o-how-i-miss-you)
+- [I could not say goodbye when my dog got euthanized. I feel so guilty and heartbroken.](https://news.puppy-snuggles.com/7778967/i-could-not-say-goodbye-when-my-dog-got-euthanized-i-feel-so-guilty-and-heartbroken)
+- [Goodnight and goodbye for now, my beautiful girl. After 15 amazing years we had to say goodnight due to cancer. I will always love you Socks, I'll see you in another life.](https://news.puppy-snuggles.com/7244601/goodnight-and-goodbye-for-now-my-beautiful-girl-after-15-amazing-years-we-had-to-say-goodnight-due-to-cancer-i-will-always-love-you-socks-ill-see-you-in-another-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
