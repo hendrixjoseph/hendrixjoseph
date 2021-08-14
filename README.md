@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog pencil portrait.. commission work.. how's it give your valuable feedback](https://news.puppy-snuggles.com/5976426/dog-pencil-portrait-commission-work-hows-it-give-your-valuable-feedback)
-- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
-- [my old doggo o how I miss you](https://news.puppy-snuggles.com/8391602/my-old-doggo-o-how-i-miss-you)
-- [I could not say goodbye when my dog got euthanized. I feel so guilty and heartbroken.](https://news.puppy-snuggles.com/7778967/i-could-not-say-goodbye-when-my-dog-got-euthanized-i-feel-so-guilty-and-heartbroken)
-- [Goodnight and goodbye for now, my beautiful girl. After 15 amazing years we had to say goodnight due to cancer. I will always love you Socks, I'll see you in another life.](https://news.puppy-snuggles.com/7244601/goodnight-and-goodbye-for-now-my-beautiful-girl-after-15-amazing-years-we-had-to-say-goodnight-due-to-cancer-i-will-always-love-you-socks-ill-see-you-in-another-life)
+- [My cute doge](https://news.puppy-snuggles.com/8381533/my-cute-doge)
+- [We Found This Precious Dog, Now He Is Family!](https://news.puppy-snuggles.com/7844209/we-found-this-precious-dog-now-he-is-family)
+- [A well-deserved break during our evening walk. Beautiful view, perfect companion!](https://news.puppy-snuggles.com/7708972/a-well-deserved-break-during-our-evening-walk-beautiful-view-perfect-companion)
+- [Had a great day at the beach with my lover girl.](https://news.puppy-snuggles.com/8417890/had-a-great-day-at-the-beach-with-my-lover-girl)
+- [Hiding in the long grass…can you see me?! 😜](https://news.puppy-snuggles.com/8417888/hiding-in-the-long-grasscan-you-see-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
