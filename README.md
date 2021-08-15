@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My cute doge](https://news.puppy-snuggles.com/8381533/my-cute-doge)
-- [We Found This Precious Dog, Now He Is Family!](https://news.puppy-snuggles.com/7844209/we-found-this-precious-dog-now-he-is-family)
-- [A well-deserved break during our evening walk. Beautiful view, perfect companion!](https://news.puppy-snuggles.com/7708972/a-well-deserved-break-during-our-evening-walk-beautiful-view-perfect-companion)
-- [Had a great day at the beach with my lover girl.](https://news.puppy-snuggles.com/8417890/had-a-great-day-at-the-beach-with-my-lover-girl)
-- [Hiding in the long grass…can you see me?! 😜](https://news.puppy-snuggles.com/8417888/hiding-in-the-long-grasscan-you-see-me)
+- [my doggos just relaxing!](https://news.puppy-snuggles.com/5479802/my-doggos-just-relaxing)
+- [Cash, my Mastador. I can't recommend the breed enough...Lab Brains and temperment, but 120 lbs!!](https://news.puppy-snuggles.com/3926278/cash-my-mastador-i-cant-recommend-the-breed-enoughlab-brains-and-temperment-but-120-lbs)
+- [I found this boy all skin and bones today. His collar was bolted on, I had to cut it off. He is now cuddled up with me :)](https://news.puppy-snuggles.com/4566544/i-found-this-boy-all-skin-and-bones-today-his-collar-was-bolted-on-i-had-to-cut-it-off-he-is-now-cuddled-up-with-me)
+- [Those birds are up to no good...I know it!](https://news.puppy-snuggles.com/7521483/those-birds-are-up-to-no-goodi-know-it)
+- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
