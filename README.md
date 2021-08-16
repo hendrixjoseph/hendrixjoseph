@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my doggos just relaxing!](https://news.puppy-snuggles.com/5479802/my-doggos-just-relaxing)
-- [Cash, my Mastador. I can't recommend the breed enough...Lab Brains and temperment, but 120 lbs!!](https://news.puppy-snuggles.com/3926278/cash-my-mastador-i-cant-recommend-the-breed-enoughlab-brains-and-temperment-but-120-lbs)
-- [I found this boy all skin and bones today. His collar was bolted on, I had to cut it off. He is now cuddled up with me :)](https://news.puppy-snuggles.com/4566544/i-found-this-boy-all-skin-and-bones-today-his-collar-was-bolted-on-i-had-to-cut-it-off-he-is-now-cuddled-up-with-me)
-- [Those birds are up to no good...I know it!](https://news.puppy-snuggles.com/7521483/those-birds-are-up-to-no-goodi-know-it)
-- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
+- [This messed up beyond belief](https://news.puppy-snuggles.com/8471194/this-messed-up-beyond-belief)
+- [I wanted to share this demonic picture of my dog… she’s actually a sweetheart.](https://news.puppy-snuggles.com/8465369/i-wanted-to-share-this-demonic-picture-of-my-dog-shes-actually-a-sweetheart)
+- [Watch the face get more derpy through each slide](https://news.puppy-snuggles.com/7987117/watch-the-face-get-more-derpy-through-each-slide)
+- [Laaadyybird](https://news.puppy-snuggles.com/8483306/laaadyybird)
+- [The face of betray](https://news.puppy-snuggles.com/8044294/the-face-of-betray)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
