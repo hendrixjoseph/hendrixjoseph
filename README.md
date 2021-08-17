@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This messed up beyond belief](https://news.puppy-snuggles.com/8471194/this-messed-up-beyond-belief)
-- [I wanted to share this demonic picture of my dog… she’s actually a sweetheart.](https://news.puppy-snuggles.com/8465369/i-wanted-to-share-this-demonic-picture-of-my-dog-shes-actually-a-sweetheart)
-- [Watch the face get more derpy through each slide](https://news.puppy-snuggles.com/7987117/watch-the-face-get-more-derpy-through-each-slide)
-- [Laaadyybird](https://news.puppy-snuggles.com/8483306/laaadyybird)
-- [The face of betray](https://news.puppy-snuggles.com/8044294/the-face-of-betray)
+- [My puppy a week or so after coming home:)](https://news.puppy-snuggles.com/8517642/my-puppy-a-week-or-so-after-coming-home)
+- [This is our new son, Dodger! We’re officially foster failures.](https://news.puppy-snuggles.com/8477060/this-is-our-new-son-dodger-were-officially-foster-failures)
+- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
+- [Chunk found the garbage bag with the old markers in it… 😬🤦🏼‍♀️🤦🏼‍♀️](https://news.puppy-snuggles.com/8490758/chunk-found-the-garbage-bag-with-the-old-markers-in-it)
+- [He looks so proud of his little bow.](https://news.puppy-snuggles.com/7160409/he-looks-so-proud-of-his-little-bow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
