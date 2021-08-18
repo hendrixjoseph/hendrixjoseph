@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy a week or so after coming home:)](https://news.puppy-snuggles.com/8517642/my-puppy-a-week-or-so-after-coming-home)
-- [This is our new son, Dodger! We’re officially foster failures.](https://news.puppy-snuggles.com/8477060/this-is-our-new-son-dodger-were-officially-foster-failures)
-- [Had An amazing (last) weekend with my dogs, the misses and some friends's dogs before getting pretty heavy surgery (next friday). Wouldnt be able to imagine a better way to spend it!](https://news.puppy-snuggles.com/7221803/had-an-amazing-last-weekend-with-my-dogs-the-misses-and-some-friendss-dogs-before-getting-pretty-heavy-surgery-next-friday-wouldnt-be-able-to-imagine-a-better-way-to-spend-it)
-- [Chunk found the garbage bag with the old markers in it… 😬🤦🏼‍♀️🤦🏼‍♀️](https://news.puppy-snuggles.com/8490758/chunk-found-the-garbage-bag-with-the-old-markers-in-it)
-- [He looks so proud of his little bow.](https://news.puppy-snuggles.com/7160409/he-looks-so-proud-of-his-little-bow)
+- [I fed her every day for 2 weeks about 2 miles away from my house and she showed up on my front porch last Saturday. Picked her up Friday morning.](https://news.puppy-snuggles.com/7364887/i-fed-her-every-day-for-2-weeks-about-2-miles-away-from-my-house-and-she-showed-up-on-my-front-porch-last-saturday-picked-her-up-friday-morning)
+- [This fine gentleman turned 1 today!](https://news.puppy-snuggles.com/8436673/this-fine-gentleman-turned-1-today)
+- [The other night my girlfriend and I adopted a puppy from Texas. Welcome home Taylor ❤️](https://news.puppy-snuggles.com/5756965/the-other-night-my-girlfriend-and-i-adopted-a-puppy-from-texas-welcome-home-taylor)
+- [Took this Picture of my boy Sven](https://news.puppy-snuggles.com/7599085/took-this-picture-of-my-boy-sven)
+- [my bf has the cutest dog ever ToT](https://news.puppy-snuggles.com/8555293/my-bf-has-the-cutest-dog-ever-tot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
