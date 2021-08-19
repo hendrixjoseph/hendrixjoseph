@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I fed her every day for 2 weeks about 2 miles away from my house and she showed up on my front porch last Saturday. Picked her up Friday morning.](https://news.puppy-snuggles.com/7364887/i-fed-her-every-day-for-2-weeks-about-2-miles-away-from-my-house-and-she-showed-up-on-my-front-porch-last-saturday-picked-her-up-friday-morning)
-- [This fine gentleman turned 1 today!](https://news.puppy-snuggles.com/8436673/this-fine-gentleman-turned-1-today)
-- [The other night my girlfriend and I adopted a puppy from Texas. Welcome home Taylor ❤️](https://news.puppy-snuggles.com/5756965/the-other-night-my-girlfriend-and-i-adopted-a-puppy-from-texas-welcome-home-taylor)
-- [Took this Picture of my boy Sven](https://news.puppy-snuggles.com/7599085/took-this-picture-of-my-boy-sven)
-- [my bf has the cutest dog ever ToT](https://news.puppy-snuggles.com/8555293/my-bf-has-the-cutest-dog-ever-tot)
+- [My best friend Max, patiently waiting to go to the park](https://news.puppy-snuggles.com/8564307/my-best-friend-max-patiently-waiting-to-go-to-the-park)
+- [My border collie Ivy comes to work with me everyday. Here she is with her best friend and coworker Forest!](https://news.puppy-snuggles.com/8564303/my-border-collie-ivy-comes-to-work-with-me-everyday-here-she-is-with-her-best-friend-and-coworker-forest)
+- [One very fluffy dude](https://news.puppy-snuggles.com/4809485/one-very-fluffy-dude)
+- [Yummy Ice cream](https://news.puppy-snuggles.com/8580513/yummy-ice-cream)
+- [Harry not too sure about Angus.](https://news.puppy-snuggles.com/4359655/harry-not-too-sure-about-angus)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
