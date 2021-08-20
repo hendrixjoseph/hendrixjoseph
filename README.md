@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best friend Max, patiently waiting to go to the park](https://news.puppy-snuggles.com/8564307/my-best-friend-max-patiently-waiting-to-go-to-the-park)
-- [My border collie Ivy comes to work with me everyday. Here she is with her best friend and coworker Forest!](https://news.puppy-snuggles.com/8564303/my-border-collie-ivy-comes-to-work-with-me-everyday-here-she-is-with-her-best-friend-and-coworker-forest)
-- [One very fluffy dude](https://news.puppy-snuggles.com/4809485/one-very-fluffy-dude)
-- [Yummy Ice cream](https://news.puppy-snuggles.com/8580513/yummy-ice-cream)
-- [Harry not too sure about Angus.](https://news.puppy-snuggles.com/4359655/harry-not-too-sure-about-angus)
+- [Odie is an 11 year old puppy, but still full of smiles](https://news.puppy-snuggles.com/8517634/odie-is-an-11-year-old-puppy-but-still-full-of-smiles)
+- [Happy first birthday baby 😇](https://news.puppy-snuggles.com/6087961/happy-first-birthday-baby)
+- [My little corgi](https://news.puppy-snuggles.com/8623146/my-little-corgi)
+- [All 5 of my hooligans in one photo.](https://news.puppy-snuggles.com/8623145/all-5-of-my-hooligans-in-one-photo)
+- [Evening walks ☘️☀️](https://news.puppy-snuggles.com/8623144/evening-walks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
