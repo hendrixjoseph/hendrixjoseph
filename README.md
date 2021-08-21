@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Odie is an 11 year old puppy, but still full of smiles](https://news.puppy-snuggles.com/8517634/odie-is-an-11-year-old-puppy-but-still-full-of-smiles)
-- [Happy first birthday baby 😇](https://news.puppy-snuggles.com/6087961/happy-first-birthday-baby)
-- [My little corgi](https://news.puppy-snuggles.com/8623146/my-little-corgi)
-- [All 5 of my hooligans in one photo.](https://news.puppy-snuggles.com/8623145/all-5-of-my-hooligans-in-one-photo)
-- [Evening walks ☘️☀️](https://news.puppy-snuggles.com/8623144/evening-walks)
+- [My half blind dog realising there is salmon on the floor](https://news.puppy-snuggles.com/8654382/my-half-blind-dog-realising-there-is-salmon-on-the-floor)
+- [My family cut my dogs hair,](https://news.puppy-snuggles.com/4860542/my-family-cut-my-dogs-hair)
+- [Two dogs rescued from area scorched by Cache fire in Lake County](https://news.puppy-snuggles.com/8651897/two-dogs-rescued-from-area-scorched-by-cache-fire-in-lake-county)
+- [Day care round three!!!](https://news.puppy-snuggles.com/8654373/day-care-round-three)
+- [Just a dog after a long day of walking](https://news.puppy-snuggles.com/7013555/just-a-dog-after-a-long-day-of-walking)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
