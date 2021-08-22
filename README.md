@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My half blind dog realising there is salmon on the floor](https://news.puppy-snuggles.com/8654382/my-half-blind-dog-realising-there-is-salmon-on-the-floor)
-- [My family cut my dogs hair,](https://news.puppy-snuggles.com/4860542/my-family-cut-my-dogs-hair)
-- [Two dogs rescued from area scorched by Cache fire in Lake County](https://news.puppy-snuggles.com/8651897/two-dogs-rescued-from-area-scorched-by-cache-fire-in-lake-county)
-- [Day care round three!!!](https://news.puppy-snuggles.com/8654373/day-care-round-three)
-- [Just a dog after a long day of walking](https://news.puppy-snuggles.com/7013555/just-a-dog-after-a-long-day-of-walking)
+- [Sweet boy Felix](https://news.puppy-snuggles.com/8682106/sweet-boy-felix)
+- [Chunk is soooo excited that he no longer has (much) marker on his face, AND his mom made him an IG all his own. Woo!](https://news.puppy-snuggles.com/8662839/chunk-is-soooo-excited-that-he-no-longer-has-much-marker-on-his-face-and-his-mom-made-him-an-ig-all-his-own-woo)
+- [Our 6 week old German Shepard pup, name ideas?](https://news.puppy-snuggles.com/8682100/our-6-week-old-german-shepard-pup-name-ideas)
+- [Weasel doing his amazing sad eyes routine](https://news.puppy-snuggles.com/8682103/weasel-doing-his-amazing-sad-eyes-routine)
+- [Dog.png](https://news.puppy-snuggles.com/8682101/dogpng)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
