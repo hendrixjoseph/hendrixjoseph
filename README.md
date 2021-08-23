@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Sunday, August 22, 2021](https://www.reddit.com/r/financialindependence/comments/p9989d/daily_fi_discussion_thread_sunday_august_22_2021/h9yokeq/)
 - [/u/joehx on Is Scotty giving Dr. Nichols the formula for transparent aluminum an example of the bootstrap paradox?](https://www.reddit.com/r/DaystromInstitute/comments/p87cgf/is_scotty_giving_dr_nichols_the_formula_for/h9p2xc6/)
 - [/u/joehx on Weekly Self-Promotion Thread - August 18, 2021](https://www.reddit.com/r/financialindependence/comments/p6nep0/weekly_selfpromotion_thread_august_18_2021/h9g6hsp/)
 - [Upgrading My Wife's Laptop Hard Drive to an SSD.](https://www.reddit.com/r/u_joehx/comments/p6hy42/upgrading_my_wifes_laptop_hard_drive_to_an_ssd/)
 - [/u/joehx on Do people actually confess to gluttony?](https://www.reddit.com/r/AskAPriest/comments/p4q6jx/do_people_actually_confess_to_gluttony/h92a94i/)
-- [/u/joehx on Searching trademarks](https://www.reddit.com/r/AmazonMerch/comments/oq303b/searching_trademarks/h69o8na/)
 <!-- REDDIT:END -->
