@@ -68,10 +68,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sweet boy Felix](https://news.puppy-snuggles.com/8682106/sweet-boy-felix)
-- [Chunk is soooo excited that he no longer has (much) marker on his face, AND his mom made him an IG all his own. Woo!](https://news.puppy-snuggles.com/8662839/chunk-is-soooo-excited-that-he-no-longer-has-much-marker-on-his-face-and-his-mom-made-him-an-ig-all-his-own-woo)
-- [Our 6 week old German Shepard pup, name ideas?](https://news.puppy-snuggles.com/8682100/our-6-week-old-german-shepard-pup-name-ideas)
-- [Weasel doing his amazing sad eyes routine](https://news.puppy-snuggles.com/8682103/weasel-doing-his-amazing-sad-eyes-routine)
+- [How would you call our newest family member?](https://news.puppy-snuggles.com/8675771/how-would-you-call-our-newest-family-member)
+- [Excuse me, is this trunk taken?](https://news.puppy-snuggles.com/8675774/excuse-me-is-this-trunk-taken)
+- [the king of dogs](https://news.puppy-snuggles.com/8707847/the-king-of-dogs)
+- [Such a sweet girl…except she ate a whole piece of corn 🌽](https://news.puppy-snuggles.com/8707842/such-a-sweet-girlexcept-she-ate-a-whole-piece-of-corn)
 - [Dog.png](https://news.puppy-snuggles.com/8682101/dogpng)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
