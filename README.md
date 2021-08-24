@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How would you call our newest family member?](https://news.puppy-snuggles.com/8675771/how-would-you-call-our-newest-family-member)
-- [Excuse me, is this trunk taken?](https://news.puppy-snuggles.com/8675774/excuse-me-is-this-trunk-taken)
-- [the king of dogs](https://news.puppy-snuggles.com/8707847/the-king-of-dogs)
-- [Such a sweet girl…except she ate a whole piece of corn 🌽](https://news.puppy-snuggles.com/8707842/such-a-sweet-girlexcept-she-ate-a-whole-piece-of-corn)
-- [Dog.png](https://news.puppy-snuggles.com/8682101/dogpng)
+- [Double The Love](https://news.puppy-snuggles.com/8740311/double-the-love)
+- [Taking a puppy nap](https://news.puppy-snuggles.com/8381538/taking-a-puppy-nap)
+- [my grandparents dog (10 or 11 not sure though because my grandad took him inside after noticing he was just wandering the road for 3 days](https://news.puppy-snuggles.com/8740314/my-grandparents-dog-10-or-11-not-sure-though-because-my-grandad-took-him-inside-after-noticing-he-was-just-wandering-the-road-for-3-days)
+- [Mr. Isaac looking dapper after his haircut (and also like a bit of a goober)](https://news.puppy-snuggles.com/7837917/mr-isaac-looking-dapper-after-his-haircut-and-also-like-a-bit-of-a-goober)
+- [14 years old after an hour of bunny hunting.](https://news.puppy-snuggles.com/8444207/14-years-old-after-an-hour-of-bunny-hunting)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
