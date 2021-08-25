@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What non-mainstream meat have you eaten?](https://www.reddit.com/r/AskReddit/comments/paydxi/what_nonmainstream_meat_have_you_eaten/ha84oqb/)
+- [/u/joehx on Without saying what you’re category is, what are your top 5?](https://www.reddit.com/r/AskReddit/comments/payi56/without_saying_what_youre_category_is_what_are/ha81xa8/)
+- [Here's What Books These 5 Influential Libertarians Recommend](https://www.reddit.com/r/u_joehx/comments/patq0t/heres_what_books_these_5_influential_libertarians/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, August 24, 2021](https://www.reddit.com/r/financialindependence/comments/pajkpm/daily_fi_discussion_thread_tuesday_august_24_2021/ha5l0cd/)
 - [/u/joehx on Does anyone else's children's school mark them as tardy, if the bus is late?](https://www.reddit.com/r/Parenting/comments/p9zipy/does_anyone_elses_childrens_school_mark_them_as/ha3bx01/)
-- [/u/joehx on Daily FI discussion thread - Sunday, August 22, 2021](https://www.reddit.com/r/financialindependence/comments/p9989d/daily_fi_discussion_thread_sunday_august_22_2021/h9yokeq/)
-- [/u/joehx on Is Scotty giving Dr. Nichols the formula for transparent aluminum an example of the bootstrap paradox?](https://www.reddit.com/r/DaystromInstitute/comments/p87cgf/is_scotty_giving_dr_nichols_the_formula_for/h9p2xc6/)
-- [/u/joehx on Weekly Self-Promotion Thread - August 18, 2021](https://www.reddit.com/r/financialindependence/comments/p6nep0/weekly_selfpromotion_thread_august_18_2021/h9g6hsp/)
-- [Upgrading My Wife's Laptop Hard Drive to an SSD.](https://www.reddit.com/r/u_joehx/comments/p6hy42/upgrading_my_wifes_laptop_hard_drive_to_an_ssd/)
 <!-- REDDIT:END -->
