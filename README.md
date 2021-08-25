@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Double The Love](https://news.puppy-snuggles.com/8740311/double-the-love)
-- [Taking a puppy nap](https://news.puppy-snuggles.com/8381538/taking-a-puppy-nap)
-- [my grandparents dog (10 or 11 not sure though because my grandad took him inside after noticing he was just wandering the road for 3 days](https://news.puppy-snuggles.com/8740314/my-grandparents-dog-10-or-11-not-sure-though-because-my-grandad-took-him-inside-after-noticing-he-was-just-wandering-the-road-for-3-days)
-- [Mr. Isaac looking dapper after his haircut (and also like a bit of a goober)](https://news.puppy-snuggles.com/7837917/mr-isaac-looking-dapper-after-his-haircut-and-also-like-a-bit-of-a-goober)
-- [14 years old after an hour of bunny hunting.](https://news.puppy-snuggles.com/8444207/14-years-old-after-an-hour-of-bunny-hunting)
+- [This is Boon. One of the Goodest of boys. We had to say goodbye this weekend. Miss you buddy. RIP](https://news.puppy-snuggles.com/8740308/this-is-boon-one-of-the-goodest-of-boys-we-had-to-say-goodbye-this-weekend-miss-you-buddy-rip)
+- [Job decription professional zoomer](https://news.puppy-snuggles.com/8773927/job-decription-professional-zoomer)
+- [We were hoping for a photo of Bowie catching the ball](https://news.puppy-snuggles.com/8748908/we-were-hoping-for-a-photo-of-bowie-catching-the-ball)
+- [Golden smile has been mastered.](https://news.puppy-snuggles.com/8748909/golden-smile-has-been-mastered)
+- [Noodle girl plays with herself](https://news.puppy-snuggles.com/8773928/noodle-girl-plays-with-herself)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
