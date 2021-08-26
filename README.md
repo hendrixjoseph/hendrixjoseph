@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Boon. One of the Goodest of boys. We had to say goodbye this weekend. Miss you buddy. RIP](https://news.puppy-snuggles.com/8740308/this-is-boon-one-of-the-goodest-of-boys-we-had-to-say-goodbye-this-weekend-miss-you-buddy-rip)
-- [Job decription professional zoomer](https://news.puppy-snuggles.com/8773927/job-decription-professional-zoomer)
-- [We were hoping for a photo of Bowie catching the ball](https://news.puppy-snuggles.com/8748908/we-were-hoping-for-a-photo-of-bowie-catching-the-ball)
-- [Golden smile has been mastered.](https://news.puppy-snuggles.com/8748909/golden-smile-has-been-mastered)
-- [Noodle girl plays with herself](https://news.puppy-snuggles.com/8773928/noodle-girl-plays-with-herself)
+- [Henlo I am SQUISH](https://news.puppy-snuggles.com/8810311/henlo-i-am-squish)
+- [Zelda’s favorite activity is going to the dog park to sit in front of Mom and stare at her while blissfully ignoring any attempt at play.](https://news.puppy-snuggles.com/8765320/zeldas-favorite-activity-is-going-to-the-dog-park-to-sit-in-front-of-mom-and-stare-at-her-while-blissfully-ignoring-any-attempt-at-play)
+- [Any clue what breed this guy is?](https://news.puppy-snuggles.com/8810303/any-clue-what-breed-this-guy-is)
+- [So cute &amp;lt;3](https://news.puppy-snuggles.com/8810310/so-cute-lt3)
+- [Made this silver coin pendant in memory of Baxter.](https://news.puppy-snuggles.com/8605876/made-this-silver-coin-pendant-in-memory-of-baxter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
