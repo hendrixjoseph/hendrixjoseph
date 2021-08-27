@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Henlo I am SQUISH](https://news.puppy-snuggles.com/8810311/henlo-i-am-squish)
-- [Zelda’s favorite activity is going to the dog park to sit in front of Mom and stare at her while blissfully ignoring any attempt at play.](https://news.puppy-snuggles.com/8765320/zeldas-favorite-activity-is-going-to-the-dog-park-to-sit-in-front-of-mom-and-stare-at-her-while-blissfully-ignoring-any-attempt-at-play)
-- [Any clue what breed this guy is?](https://news.puppy-snuggles.com/8810303/any-clue-what-breed-this-guy-is)
-- [So cute &amp;lt;3](https://news.puppy-snuggles.com/8810310/so-cute-lt3)
-- [Made this silver coin pendant in memory of Baxter.](https://news.puppy-snuggles.com/8605876/made-this-silver-coin-pendant-in-memory-of-baxter)
+- [Meet Victor... Most loving friend i ever had... Past away 2 years ago...](https://news.puppy-snuggles.com/8605877/meet-victor-most-loving-friend-i-ever-had-past-away-2-years-ago)
+- [Odin will do anything to catch his ball](https://news.puppy-snuggles.com/8844827/odin-will-do-anything-to-catch-his-ball)
+- [Hirokis face after a round of good ol' fetch](https://news.puppy-snuggles.com/8835623/hirokis-face-after-a-round-of-good-ol-fetch)
+- [Happy national dog day!!](https://news.puppy-snuggles.com/8844826/happy-national-dog-day)
+- [Happy National Dog Day Remi! You were the best boy in the ENTIRE world and I miss you every single day.](https://news.puppy-snuggles.com/8844824/happy-national-dog-day-remi-you-were-the-best-boy-in-the-entire-world-and-i-miss-you-every-single-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
