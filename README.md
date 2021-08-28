@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Victor... Most loving friend i ever had... Past away 2 years ago...](https://news.puppy-snuggles.com/8605877/meet-victor-most-loving-friend-i-ever-had-past-away-2-years-ago)
-- [Odin will do anything to catch his ball](https://news.puppy-snuggles.com/8844827/odin-will-do-anything-to-catch-his-ball)
-- [Hirokis face after a round of good ol' fetch](https://news.puppy-snuggles.com/8835623/hirokis-face-after-a-round-of-good-ol-fetch)
-- [Happy national dog day!!](https://news.puppy-snuggles.com/8844826/happy-national-dog-day)
-- [Happy National Dog Day Remi! You were the best boy in the ENTIRE world and I miss you every single day.](https://news.puppy-snuggles.com/8844824/happy-national-dog-day-remi-you-were-the-best-boy-in-the-entire-world-and-i-miss-you-every-single-day)
+- [My new little guy Kong.](https://news.puppy-snuggles.com/8881254/my-new-little-guy-kong)
+- [The prettiest girl in the world.](https://news.puppy-snuggles.com/8810308/the-prettiest-girl-in-the-world)
+- [I adopted Maximus about 8 weeks ago. His previous owner was mentally ill and forced to surrender him. I am working on building his confidence. Here he is, sitting on a picnic table. Four weeks ago, a park bench was Mt. Everest to him.](https://news.puppy-snuggles.com/8155756/i-adopted-maximus-about-8-weeks-ago-his-previous-owner-was-mentally-ill-and-forced-to-surrender-him-i-am-working-on-building-his-confidence-here-he-is-sitting-on-a-picnic-table-four-weeks-ago-a-park-bench-was-mt-everest-to-him)
+- [Meet Kru, the derpiest of all derps!](https://news.puppy-snuggles.com/8871130/meet-kru-the-derpiest-of-all-derps)
+- [Dog during the day, Rat at night](https://news.puppy-snuggles.com/8810307/dog-during-the-day-rat-at-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
