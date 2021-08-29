@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new little guy Kong.](https://news.puppy-snuggles.com/8881254/my-new-little-guy-kong)
-- [The prettiest girl in the world.](https://news.puppy-snuggles.com/8810308/the-prettiest-girl-in-the-world)
-- [I adopted Maximus about 8 weeks ago. His previous owner was mentally ill and forced to surrender him. I am working on building his confidence. Here he is, sitting on a picnic table. Four weeks ago, a park bench was Mt. Everest to him.](https://news.puppy-snuggles.com/8155756/i-adopted-maximus-about-8-weeks-ago-his-previous-owner-was-mentally-ill-and-forced-to-surrender-him-i-am-working-on-building-his-confidence-here-he-is-sitting-on-a-picnic-table-four-weeks-ago-a-park-bench-was-mt-everest-to-him)
-- [Meet Kru, the derpiest of all derps!](https://news.puppy-snuggles.com/8871130/meet-kru-the-derpiest-of-all-derps)
-- [Dog during the day, Rat at night](https://news.puppy-snuggles.com/8810307/dog-during-the-day-rat-at-night)
+- [Desensitizing my puppy for the 4th with a sound track of fireworks, a treadmill and a kong full of peanut butter. It has worked wonders!](https://news.puppy-snuggles.com/7318099/desensitizing-my-puppy-for-the-4th-with-a-sound-track-of-fireworks-a-treadmill-and-a-kong-full-of-peanut-butter-it-has-worked-wonders)
+- [Beach!](https://news.puppy-snuggles.com/6903922/beach)
+- [A year ago, Bella became part of our family. Happy Bellabration Day!](https://news.puppy-snuggles.com/7611012/a-year-ago-bella-became-part-of-our-family-happy-bellabration-day)
+- [Our 5 month old german shepherd/pittie mix Max :)](https://news.puppy-snuggles.com/6838943/our-5-month-old-german-shepherdpittie-mix-max)
+- [Hopping into the weekend](https://news.puppy-snuggles.com/8904980/hopping-into-the-weekend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
