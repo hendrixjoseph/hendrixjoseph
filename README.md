@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Desensitizing my puppy for the 4th with a sound track of fireworks, a treadmill and a kong full of peanut butter. It has worked wonders!](https://news.puppy-snuggles.com/7318099/desensitizing-my-puppy-for-the-4th-with-a-sound-track-of-fireworks-a-treadmill-and-a-kong-full-of-peanut-butter-it-has-worked-wonders)
-- [Beach!](https://news.puppy-snuggles.com/6903922/beach)
-- [A year ago, Bella became part of our family. Happy Bellabration Day!](https://news.puppy-snuggles.com/7611012/a-year-ago-bella-became-part-of-our-family-happy-bellabration-day)
-- [Our 5 month old german shepherd/pittie mix Max :)](https://news.puppy-snuggles.com/6838943/our-5-month-old-german-shepherdpittie-mix-max)
-- [Hopping into the weekend](https://news.puppy-snuggles.com/8904980/hopping-into-the-weekend)
+- [16 years to rainbow road today. I just want people to see what I see and share his memory. Hobson (Hobs) 2005-2021](https://news.puppy-snuggles.com/8933152/16-years-to-rainbow-road-today-i-just-want-people-to-see-what-i-see-and-share-his-memory-hobson-hobs-2005-2021)
+- [My new little guy Kong.](https://news.puppy-snuggles.com/8881254/my-new-little-guy-kong)
+- [RIP Rocky. You are the best bud a person could ever have.](https://news.puppy-snuggles.com/8314287/rip-rocky-you-are-the-best-bud-a-person-could-ever-have)
+- [The First Rainbow](https://news.puppy-snuggles.com/6419170/the-first-rainbow)
+- [In the yard](https://news.puppy-snuggles.com/8517639/in-the-yard)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
