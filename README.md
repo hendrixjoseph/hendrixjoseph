@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What are the biggest lies you've heard in the workplace?](https://www.reddit.com/r/AskReddit/comments/pdvth3/what_are_the_biggest_lies_youve_heard_in_the/hatz4s8/)
+- [/u/joehx on August 2021 Mega-Thread](https://www.reddit.com/r/wicked_edge/comments/ovn7c0/august_2021_megathread/hatde7q/)
 - [/u/joehx on Frustration Friday Weekly Thread - Week of August 27, 2021](https://www.reddit.com/r/churning/comments/pcjlxp/frustration_friday_weekly_thread_week_of_august/hamfp9l/)
 - [/u/joehx on What non-mainstream meat have you eaten?](https://www.reddit.com/r/AskReddit/comments/paydxi/what_nonmainstream_meat_have_you_eaten/ha84oqb/)
 - [/u/joehx on Without saying what you’re category is, what are your top 5?](https://www.reddit.com/r/AskReddit/comments/payi56/without_saying_what_youre_category_is_what_are/ha81xa8/)
-- [Here's What Books These 5 Influential Libertarians Recommend](https://www.reddit.com/r/u_joehx/comments/patq0t/heres_what_books_these_5_influential_libertarians/)
-- [/u/joehx on Daily FI discussion thread - Tuesday, August 24, 2021](https://www.reddit.com/r/financialindependence/comments/pajkpm/daily_fi_discussion_thread_tuesday_august_24_2021/ha5l0cd/)
 <!-- REDDIT:END -->
