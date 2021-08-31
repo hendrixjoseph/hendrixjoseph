@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [16 years to rainbow road today. I just want people to see what I see and share his memory. Hobson (Hobs) 2005-2021](https://news.puppy-snuggles.com/8933152/16-years-to-rainbow-road-today-i-just-want-people-to-see-what-i-see-and-share-his-memory-hobson-hobs-2005-2021)
-- [My new little guy Kong.](https://news.puppy-snuggles.com/8881254/my-new-little-guy-kong)
-- [RIP Rocky. You are the best bud a person could ever have.](https://news.puppy-snuggles.com/8314287/rip-rocky-you-are-the-best-bud-a-person-could-ever-have)
-- [The First Rainbow](https://news.puppy-snuggles.com/6419170/the-first-rainbow)
-- [In the yard](https://news.puppy-snuggles.com/8517639/in-the-yard)
+- [Kyah has always been a smiler 🥰](https://news.puppy-snuggles.com/8960530/kyah-has-always-been-a-smiler)
+- [My boy Maui trying to look serious](https://news.puppy-snuggles.com/8765319/my-boy-maui-trying-to-look-serious)
+- [Murph says, “Take a nap, you’ll live longer!”](https://news.puppy-snuggles.com/8168553/murph-says-take-a-nap-youll-live-longer)
+- [Louie is just such a happy pup](https://news.puppy-snuggles.com/8106842/louie-is-just-such-a-happy-pup)
+- [If there are no dogs in Heaven, when I die, I want to go where they go. - Will Rogers](https://news.puppy-snuggles.com/7808790/if-there-are-no-dogs-in-heaven-when-i-die-i-want-to-go-where-they-go-will-rogers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
