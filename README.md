@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Kyah has always been a smiler 🥰](https://news.puppy-snuggles.com/8960530/kyah-has-always-been-a-smiler)
-- [My boy Maui trying to look serious](https://news.puppy-snuggles.com/8765319/my-boy-maui-trying-to-look-serious)
-- [Murph says, “Take a nap, you’ll live longer!”](https://news.puppy-snuggles.com/8168553/murph-says-take-a-nap-youll-live-longer)
-- [Louie is just such a happy pup](https://news.puppy-snuggles.com/8106842/louie-is-just-such-a-happy-pup)
-- [If there are no dogs in Heaven, when I die, I want to go where they go. - Will Rogers](https://news.puppy-snuggles.com/7808790/if-there-are-no-dogs-in-heaven-when-i-die-i-want-to-go-where-they-go-will-rogers)
+- [Chorizo has an upside down frog bowl on his head](https://news.puppy-snuggles.com/8996906/chorizo-has-an-upside-down-frog-bowl-on-his-head)
+- [Happy Monday friends!](https://news.puppy-snuggles.com/7762942/happy-monday-friends)
+- [Meet Olivia, the new kid in the family](https://news.puppy-snuggles.com/6605500/meet-olivia-the-new-kid-in-the-family)
+- [My girl Pika](https://news.puppy-snuggles.com/8979190/my-girl-pika)
+- [This fine gentleman turned 1 today!](https://news.puppy-snuggles.com/8436673/this-fine-gentleman-turned-1-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
