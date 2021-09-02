@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chorizo has an upside down frog bowl on his head](https://news.puppy-snuggles.com/8996906/chorizo-has-an-upside-down-frog-bowl-on-his-head)
-- [Happy Monday friends!](https://news.puppy-snuggles.com/7762942/happy-monday-friends)
-- [Meet Olivia, the new kid in the family](https://news.puppy-snuggles.com/6605500/meet-olivia-the-new-kid-in-the-family)
-- [My girl Pika](https://news.puppy-snuggles.com/8979190/my-girl-pika)
-- [This fine gentleman turned 1 today!](https://news.puppy-snuggles.com/8436673/this-fine-gentleman-turned-1-today)
+- [This picture made my heart cry. My grandfather and dog in one picture enjoying each other.](https://news.puppy-snuggles.com/8996910/this-picture-made-my-heart-cry-my-grandfather-and-dog-in-one-picture-enjoying-each-other)
+- [I just found this sub, decided to post a pic of my lil Boy (mylo🐶)](https://news.puppy-snuggles.com/9015887/i-just-found-this-sub-decided-to-post-a-pic-of-my-lil-boy-mylo)
+- [Welcome to your new home](https://news.puppy-snuggles.com/5526832/welcome-to-your-new-home)
+- [Lol](https://news.puppy-snuggles.com/6312559/lol)
+- [It is my bed now Hooman](https://news.puppy-snuggles.com/6468420/it-is-my-bed-now-hooman)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
