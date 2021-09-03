@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This picture made my heart cry. My grandfather and dog in one picture enjoying each other.](https://news.puppy-snuggles.com/8996910/this-picture-made-my-heart-cry-my-grandfather-and-dog-in-one-picture-enjoying-each-other)
-- [I just found this sub, decided to post a pic of my lil Boy (mylo🐶)](https://news.puppy-snuggles.com/9015887/i-just-found-this-sub-decided-to-post-a-pic-of-my-lil-boy-mylo)
-- [Welcome to your new home](https://news.puppy-snuggles.com/5526832/welcome-to-your-new-home)
-- [Lol](https://news.puppy-snuggles.com/6312559/lol)
-- [It is my bed now Hooman](https://news.puppy-snuggles.com/6468420/it-is-my-bed-now-hooman)
+- [Yall liked my babies so much, figured I'd post their smooshed faces together!](https://news.puppy-snuggles.com/6534020/yall-liked-my-babies-so-much-figured-id-post-their-smooshed-faces-together)
+- [Our remote working buddies - and bosses! :D](https://news.puppy-snuggles.com/9072459/our-remote-working-buddies-and-bosses-d)
+- [HAVE YOU EVER SEEN SUCH A CUTE CREATURE IN THE WORLD?](https://news.puppy-snuggles.com/9024471/have-you-ever-seen-such-a-cute-creature-in-the-world)
+- [Just two brothers chilling ☺️](https://news.puppy-snuggles.com/6411917/just-two-brothers-chilling)
+- [Painted my friends Good Boi](https://news.puppy-snuggles.com/8933151/painted-my-friends-good-boi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
