@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yall liked my babies so much, figured I'd post their smooshed faces together!](https://news.puppy-snuggles.com/6534020/yall-liked-my-babies-so-much-figured-id-post-their-smooshed-faces-together)
-- [Our remote working buddies - and bosses! :D](https://news.puppy-snuggles.com/9072459/our-remote-working-buddies-and-bosses-d)
-- [HAVE YOU EVER SEEN SUCH A CUTE CREATURE IN THE WORLD?](https://news.puppy-snuggles.com/9024471/have-you-ever-seen-such-a-cute-creature-in-the-world)
-- [Just two brothers chilling ☺️](https://news.puppy-snuggles.com/6411917/just-two-brothers-chilling)
-- [Painted my friends Good Boi](https://news.puppy-snuggles.com/8933151/painted-my-friends-good-boi)
+- [My best buddy had his eye removed =(](https://news.puppy-snuggles.com/9108306/my-best-buddy-had-his-eye-removed)
+- [Just a couple of goobers.](https://news.puppy-snuggles.com/9072461/just-a-couple-of-goobers)
+- [Bailey passed away tonight. Not the way we wanted her to go (she was hit by a car) but she lived a long, happy life with us. She was 14. Thanks for everything Bailes.](https://news.puppy-snuggles.com/9091284/bailey-passed-away-tonight-not-the-way-we-wanted-her-to-go-she-was-hit-by-a-car-but-she-lived-a-long-happy-life-with-us-she-was-14-thanks-for-everything-bailes)
+- [My mate Carlos chilling with his loudest toy](https://news.puppy-snuggles.com/9081712/my-mate-carlos-chilling-with-his-loudest-toy)
+- [When you smile, I smile](https://news.puppy-snuggles.com/9108307/when-you-smile-i-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
