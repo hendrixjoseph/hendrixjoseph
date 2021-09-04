@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Friday, September 03, 2021](https://www.reddit.com/r/financialindependence/comments/ph1fpq/daily_fi_discussion_thread_friday_september_03/hbgc57s/)
 - [/u/joehx on Daily FI discussion thread - Thursday, September 02, 2021](https://www.reddit.com/r/financialindependence/comments/pge37d/daily_fi_discussion_thread_thursday_september_02/hbbb7t6/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, September 01, 2021](https://www.reddit.com/r/financialindependence/comments/pfq00s/daily_fi_discussion_thread_wednesday_september_01/hb8eyxs/)
 - [How to Sort Multiple Posts on One Date in Jekyll](https://www.reddit.com/r/u_joehx/comments/pev8br/how_to_sort_multiple_posts_on_one_date_in_jekyll/)
 - [/u/joehx on What are the biggest lies you've heard in the workplace?](https://www.reddit.com/r/AskReddit/comments/pdvth3/what_are_the_biggest_lies_youve_heard_in_the/hatz4s8/)
-- [/u/joehx on August 2021 Mega-Thread](https://www.reddit.com/r/wicked_edge/comments/ovn7c0/august_2021_megathread/hatde7q/)
 <!-- REDDIT:END -->
