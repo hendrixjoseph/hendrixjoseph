@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best buddy had his eye removed =(](https://news.puppy-snuggles.com/9108306/my-best-buddy-had-his-eye-removed)
-- [Just a couple of goobers.](https://news.puppy-snuggles.com/9072461/just-a-couple-of-goobers)
-- [Bailey passed away tonight. Not the way we wanted her to go (she was hit by a car) but she lived a long, happy life with us. She was 14. Thanks for everything Bailes.](https://news.puppy-snuggles.com/9091284/bailey-passed-away-tonight-not-the-way-we-wanted-her-to-go-she-was-hit-by-a-car-but-she-lived-a-long-happy-life-with-us-she-was-14-thanks-for-everything-bailes)
-- [My mate Carlos chilling with his loudest toy](https://news.puppy-snuggles.com/9081712/my-mate-carlos-chilling-with-his-loudest-toy)
-- [When you smile, I smile](https://news.puppy-snuggles.com/9108307/when-you-smile-i-smile)
+- [Portrait of a Sleepy Doofus](https://news.puppy-snuggles.com/7925033/portrait-of-a-sleepy-doofus)
+- [Summer dogs](https://news.puppy-snuggles.com/9044939/summer-dogs)
+- [My Border terrier gave birth last night. This is her with her puppies.](https://news.puppy-snuggles.com/9133368/my-border-terrier-gave-birth-last-night-this-is-her-with-her-puppies)
+- [The face Tyr makes when he knows you have food](https://news.puppy-snuggles.com/8564308/the-face-tyr-makes-when-he-knows-you-have-food)
+- [He is at forest](https://news.puppy-snuggles.com/6513269/he-is-at-forest)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
