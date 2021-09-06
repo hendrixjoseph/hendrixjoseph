@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Portrait of a Sleepy Doofus](https://news.puppy-snuggles.com/7925033/portrait-of-a-sleepy-doofus)
-- [Summer dogs](https://news.puppy-snuggles.com/9044939/summer-dogs)
-- [My Border terrier gave birth last night. This is her with her puppies.](https://news.puppy-snuggles.com/9133368/my-border-terrier-gave-birth-last-night-this-is-her-with-her-puppies)
-- [The face Tyr makes when he knows you have food](https://news.puppy-snuggles.com/8564308/the-face-tyr-makes-when-he-knows-you-have-food)
-- [He is at forest](https://news.puppy-snuggles.com/6513269/he-is-at-forest)
+- [My favourite picture of Herbert!](https://news.puppy-snuggles.com/8800512/my-favourite-picture-of-herbert)
+- [My best pic of my dog](https://news.puppy-snuggles.com/6462538/my-best-pic-of-my-dog)
+- [Tired boy](https://news.puppy-snuggles.com/6462540/tired-boy)
+- [She’s my best friend 💜.](https://news.puppy-snuggles.com/9166215/shes-my-best-friend)
+- [The smile at the end.. 🥲😍](https://news.puppy-snuggles.com/9118150/the-smile-at-the-end)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
