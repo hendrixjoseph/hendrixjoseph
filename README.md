@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My favourite picture of Herbert!](https://news.puppy-snuggles.com/8800512/my-favourite-picture-of-herbert)
-- [My best pic of my dog](https://news.puppy-snuggles.com/6462538/my-best-pic-of-my-dog)
-- [Tired boy](https://news.puppy-snuggles.com/6462540/tired-boy)
-- [She’s my best friend 💜.](https://news.puppy-snuggles.com/9166215/shes-my-best-friend)
-- [The smile at the end.. 🥲😍](https://news.puppy-snuggles.com/9118150/the-smile-at-the-end)
+- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
+- [Found out today my beautiful girl has bone cancer. She’s only 8. We have to lay her to rest Saturday and I’m a mess. My heart just hurts.](https://news.puppy-snuggles.com/7146339/found-out-today-my-beautiful-girl-has-bone-cancer-shes-only-8-we-have-to-lay-her-to-rest-saturday-and-im-a-mess-my-heart-just-hurts)
+- [This is what happiness looks like](https://news.puppy-snuggles.com/8790800/this-is-what-happiness-looks-like)
+- [Hungry boy](https://news.puppy-snuggles.com/7339839/hungry-boy)
+- [The first dog I ever loved. What breed is she??](https://news.puppy-snuggles.com/9118151/the-first-dog-i-ever-loved-what-breed-is-she)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
