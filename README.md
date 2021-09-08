@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
-- [Found out today my beautiful girl has bone cancer. She’s only 8. We have to lay her to rest Saturday and I’m a mess. My heart just hurts.](https://news.puppy-snuggles.com/7146339/found-out-today-my-beautiful-girl-has-bone-cancer-shes-only-8-we-have-to-lay-her-to-rest-saturday-and-im-a-mess-my-heart-just-hurts)
-- [This is what happiness looks like](https://news.puppy-snuggles.com/8790800/this-is-what-happiness-looks-like)
-- [Hungry boy](https://news.puppy-snuggles.com/7339839/hungry-boy)
-- [The first dog I ever loved. What breed is she??](https://news.puppy-snuggles.com/9118151/the-first-dog-i-ever-loved-what-breed-is-she)
+- [Meet my dog Ollie, I joined this reddit community a few weeks ago and have been meaning to post a picture of Ollie, he's a wally at times but I still love him either way](https://news.puppy-snuggles.com/8015252/meet-my-dog-ollie-i-joined-this-reddit-community-a-few-weeks-ago-and-have-been-meaning-to-post-a-picture-of-ollie-hes-a-wally-at-times-but-i-still-love-him-either-way)
+- [This is my girl Jette, Unfortunately she's gone now.](https://news.puppy-snuggles.com/8826622/this-is-my-girl-jette-unfortunately-shes-gone-now)
+- [I never thought I could love anything so much.](https://news.puppy-snuggles.com/9172332/i-never-thought-i-could-love-anything-so-much)
+- [my art commissions dog portrait](https://news.puppy-snuggles.com/7030647/my-art-commissions-dog-portrait)
+- [Finally got my little man, everyone meet Banksy](https://news.puppy-snuggles.com/9226578/finally-got-my-little-man-everyone-meet-banksy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
