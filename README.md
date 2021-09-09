@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet my dog Ollie, I joined this reddit community a few weeks ago and have been meaning to post a picture of Ollie, he's a wally at times but I still love him either way](https://news.puppy-snuggles.com/8015252/meet-my-dog-ollie-i-joined-this-reddit-community-a-few-weeks-ago-and-have-been-meaning-to-post-a-picture-of-ollie-hes-a-wally-at-times-but-i-still-love-him-either-way)
-- [This is my girl Jette, Unfortunately she's gone now.](https://news.puppy-snuggles.com/8826622/this-is-my-girl-jette-unfortunately-shes-gone-now)
-- [I never thought I could love anything so much.](https://news.puppy-snuggles.com/9172332/i-never-thought-i-could-love-anything-so-much)
-- [my art commissions dog portrait](https://news.puppy-snuggles.com/7030647/my-art-commissions-dog-portrait)
-- [Finally got my little man, everyone meet Banksy](https://news.puppy-snuggles.com/9226578/finally-got-my-little-man-everyone-meet-banksy)
+- [Slo mo dive :0 !!!](https://news.puppy-snuggles.com/8436671/slo-mo-dive-0)
+- [Smol](https://news.puppy-snuggles.com/6562539/smol)
+- [hiding somewhere..](https://news.puppy-snuggles.com/9253321/hiding-somewhere)
+- [My daizy girl who just turned 14 last month](https://news.puppy-snuggles.com/9263016/my-daizy-girl-who-just-turned-14-last-month)
+- [Is this dog the most handsome you have ever seen ? Please post a better photo of your dog ?](https://news.puppy-snuggles.com/9244930/is-this-dog-the-most-handsome-you-have-ever-seen-please-post-a-better-photo-of-your-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
