@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Slo mo dive :0 !!!](https://news.puppy-snuggles.com/8436671/slo-mo-dive-0)
-- [Smol](https://news.puppy-snuggles.com/6562539/smol)
-- [hiding somewhere..](https://news.puppy-snuggles.com/9253321/hiding-somewhere)
-- [My daizy girl who just turned 14 last month](https://news.puppy-snuggles.com/9263016/my-daizy-girl-who-just-turned-14-last-month)
-- [Is this dog the most handsome you have ever seen ? Please post a better photo of your dog ?](https://news.puppy-snuggles.com/9244930/is-this-dog-the-most-handsome-you-have-ever-seen-please-post-a-better-photo-of-your-dog)
+- [Brothers smiling!](https://news.puppy-snuggles.com/9301929/brothers-smiling)
+- [My baby girl Mia](https://news.puppy-snuggles.com/8790796/my-baby-girl-mia)
+- [Meet my new baby, Phoebe.](https://news.puppy-snuggles.com/9301928/meet-my-new-baby-phoebe)
+- [Love this little nugget. Half friese stabij, half kooiker](https://news.puppy-snuggles.com/4745628/love-this-little-nugget-half-friese-stabij-half-kooiker)
+- [Recently adopted boi is very happy with us. Couldnt imagine living without him anymore.](https://news.puppy-snuggles.com/9253319/recently-adopted-boi-is-very-happy-with-us-couldnt-imagine-living-without-him-anymore)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
