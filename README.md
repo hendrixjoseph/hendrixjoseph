@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Brothers smiling!](https://news.puppy-snuggles.com/9301929/brothers-smiling)
-- [My baby girl Mia](https://news.puppy-snuggles.com/8790796/my-baby-girl-mia)
-- [Meet my new baby, Phoebe.](https://news.puppy-snuggles.com/9301928/meet-my-new-baby-phoebe)
-- [Love this little nugget. Half friese stabij, half kooiker](https://news.puppy-snuggles.com/4745628/love-this-little-nugget-half-friese-stabij-half-kooiker)
-- [Recently adopted boi is very happy with us. Couldnt imagine living without him anymore.](https://news.puppy-snuggles.com/9253319/recently-adopted-boi-is-very-happy-with-us-couldnt-imagine-living-without-him-anymore)
+- [Had to say goodbye to Doders yesterday. My closest friend for over a decade.](https://news.puppy-snuggles.com/9328685/had-to-say-goodbye-to-doders-yesterday-my-closest-friend-for-over-a-decade)
+- [Happy Monday!](https://news.puppy-snuggles.com/8731288/happy-monday)
+- [A picture of one, and only one, dog](https://news.puppy-snuggles.com/9312012/a-picture-of-one-and-only-one-dog)
+- [Big smiles after a play session with brand new toys for my bf’s pup!](https://news.puppy-snuggles.com/7730372/big-smiles-after-a-play-session-with-brand-new-toys-for-my-bfs-pup)
+- [What breed of dog is this??](https://news.puppy-snuggles.com/9320925/what-breed-of-dog-is-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
