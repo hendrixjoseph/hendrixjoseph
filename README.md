@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to say goodbye to Doders yesterday. My closest friend for over a decade.](https://news.puppy-snuggles.com/9328685/had-to-say-goodbye-to-doders-yesterday-my-closest-friend-for-over-a-decade)
-- [Happy Monday!](https://news.puppy-snuggles.com/8731288/happy-monday)
-- [A picture of one, and only one, dog](https://news.puppy-snuggles.com/9312012/a-picture-of-one-and-only-one-dog)
-- [Big smiles after a play session with brand new toys for my bf’s pup!](https://news.puppy-snuggles.com/7730372/big-smiles-after-a-play-session-with-brand-new-toys-for-my-bfs-pup)
-- [What breed of dog is this??](https://news.puppy-snuggles.com/9320925/what-breed-of-dog-is-this)
+- [Super pleased with herself after rolling in the dirt.](https://news.puppy-snuggles.com/5450538/super-pleased-with-herself-after-rolling-in-the-dirt)
+- [WHY does she leave the room every time I sneeze ?](https://news.puppy-snuggles.com/8695144/why-does-she-leave-the-room-every-time-i-sneeze)
+- [My little love bug](https://news.puppy-snuggles.com/9354943/my-little-love-bug)
+- [Anyone know what kind of dog is it?](https://news.puppy-snuggles.com/9354944/anyone-know-what-kind-of-dog-is-it)
+- [Diesel showing off the toy I got him for his sixth birthday today 🥰](https://news.puppy-snuggles.com/9362001/diesel-showing-off-the-toy-i-got-him-for-his-sixth-birthday-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
