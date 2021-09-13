@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Super pleased with herself after rolling in the dirt.](https://news.puppy-snuggles.com/5450538/super-pleased-with-herself-after-rolling-in-the-dirt)
-- [WHY does she leave the room every time I sneeze ?](https://news.puppy-snuggles.com/8695144/why-does-she-leave-the-room-every-time-i-sneeze)
-- [My little love bug](https://news.puppy-snuggles.com/9354943/my-little-love-bug)
-- [Anyone know what kind of dog is it?](https://news.puppy-snuggles.com/9354944/anyone-know-what-kind-of-dog-is-it)
-- [Diesel showing off the toy I got him for his sixth birthday today 🥰](https://news.puppy-snuggles.com/9362001/diesel-showing-off-the-toy-i-got-him-for-his-sixth-birthday-today)
+- [Want To Play?](https://news.puppy-snuggles.com/6998167/want-to-play)
+- [My baby beagle all tuckered out](https://news.puppy-snuggles.com/9381728/my-baby-beagle-all-tuckered-out)
+- [cooper](https://news.puppy-snuggles.com/6822126/cooper)
+- [Just realised that my two goofballs have the same smile (:](https://news.puppy-snuggles.com/9301926/just-realised-that-my-two-goofballs-have-the-same-smile)
+- [My sweet girl Katrina turned 6 today](https://news.puppy-snuggles.com/9381726/my-sweet-girl-katrina-turned-6-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
