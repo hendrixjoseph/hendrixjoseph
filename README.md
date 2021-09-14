@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Want To Play?](https://news.puppy-snuggles.com/6998167/want-to-play)
-- [My baby beagle all tuckered out](https://news.puppy-snuggles.com/9381728/my-baby-beagle-all-tuckered-out)
-- [cooper](https://news.puppy-snuggles.com/6822126/cooper)
-- [Just realised that my two goofballs have the same smile (:](https://news.puppy-snuggles.com/9301926/just-realised-that-my-two-goofballs-have-the-same-smile)
-- [My sweet girl Katrina turned 6 today](https://news.puppy-snuggles.com/9381726/my-sweet-girl-katrina-turned-6-today)
+- [Igor seeing a treat coming his way](https://news.puppy-snuggles.com/8731287/igor-seeing-a-treat-coming-his-way)
+- [Eyes filled with love and gratitude. Meet Misty, my brother's rescue](https://news.puppy-snuggles.com/9395240/eyes-filled-with-love-and-gratitude-meet-misty-my-brothers-rescue)
+- [Pretzel is pouting because he was locked up in the camper all day.](https://news.puppy-snuggles.com/9426012/pretzel-is-pouting-because-he-was-locked-up-in-the-camper-all-day)
+- [Daisy has a lovely smile](https://news.puppy-snuggles.com/3299106/daisy-has-a-lovely-smile)
+- [Hanging Rock State Park, NC](https://news.puppy-snuggles.com/7930492/hanging-rock-state-park-nc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
