@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Igor seeing a treat coming his way](https://news.puppy-snuggles.com/8731287/igor-seeing-a-treat-coming-his-way)
-- [Eyes filled with love and gratitude. Meet Misty, my brother's rescue](https://news.puppy-snuggles.com/9395240/eyes-filled-with-love-and-gratitude-meet-misty-my-brothers-rescue)
-- [Pretzel is pouting because he was locked up in the camper all day.](https://news.puppy-snuggles.com/9426012/pretzel-is-pouting-because-he-was-locked-up-in-the-camper-all-day)
-- [Daisy has a lovely smile](https://news.puppy-snuggles.com/3299106/daisy-has-a-lovely-smile)
-- [Hanging Rock State Park, NC](https://news.puppy-snuggles.com/7930492/hanging-rock-state-park-nc)
+- [This is how you should react when your dog goes missing.](https://news.puppy-snuggles.com/6541143/this-is-how-you-should-react-when-your-dog-goes-missing)
+- [Today was 2 weeks without this sweet girl, I am missing my Sodapop so much. She’s been by my side for over 15 years and I wasn’t ready yet. But are we ever really ready to lose them? I don’t think so.](https://news.puppy-snuggles.com/7756461/today-was-2-weeks-without-this-sweet-girl-i-am-missing-my-sodapop-so-much-shes-been-by-my-side-for-over-15-years-and-i-wasnt-ready-yet-but-are-we-ever-really-ready-to-lose-them-i-dont-think-so)
+- [One of the best moments I’ve ever captured. He’s such a gent 😂](https://news.puppy-snuggles.com/8381535/one-of-the-best-moments-ive-ever-captured-hes-such-a-gent)
+- [Soren taking a break from ball chasing](https://news.puppy-snuggles.com/6780493/soren-taking-a-break-from-ball-chasing)
+- [Odin, Thor, and Freya enjoying some doggo Ice cream](https://news.puppy-snuggles.com/9463246/odin-thor-and-freya-enjoying-some-doggo-ice-cream)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
