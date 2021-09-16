@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on The writers of VOY had a particularly hard time with big numbers and Scorpion Pt II has one of the most jarring examples.](https://www.reddit.com/r/DaystromInstitute/comments/polhjo/the_writers_of_voy_had_a_particularly_hard_time/hczbyxc/)
+- [/u/joehx on Resume Advice Thread - September 14, 2021](https://www.reddit.com/r/cscareerquestions/comments/pnxr76/resume_advice_thread_september_14_2021/hcwff41/)
 - [/u/joehx on What will be obsolete in 10-15 years?](https://www.reddit.com/r/AskReddit/comments/pllsg6/what_will_be_obsolete_in_1015_years/hcdlzuf/)
 - [/u/joehx on Daily FI discussion thread - Friday, September 03, 2021](https://www.reddit.com/r/financialindependence/comments/ph1fpq/daily_fi_discussion_thread_friday_september_03/hbgc57s/)
 - [/u/joehx on Daily FI discussion thread - Thursday, September 02, 2021](https://www.reddit.com/r/financialindependence/comments/pge37d/daily_fi_discussion_thread_thursday_september_02/hbbb7t6/)
-- [/u/joehx on Daily FI discussion thread - Wednesday, September 01, 2021](https://www.reddit.com/r/financialindependence/comments/pfq00s/daily_fi_discussion_thread_wednesday_september_01/hb8eyxs/)
-- [How to Sort Multiple Posts on One Date in Jekyll](https://www.reddit.com/r/u_joehx/comments/pev8br/how_to_sort_multiple_posts_on_one_date_in_jekyll/)
 <!-- REDDIT:END -->
