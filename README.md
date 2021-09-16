@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is how you should react when your dog goes missing.](https://news.puppy-snuggles.com/6541143/this-is-how-you-should-react-when-your-dog-goes-missing)
-- [Today was 2 weeks without this sweet girl, I am missing my Sodapop so much. She’s been by my side for over 15 years and I wasn’t ready yet. But are we ever really ready to lose them? I don’t think so.](https://news.puppy-snuggles.com/7756461/today-was-2-weeks-without-this-sweet-girl-i-am-missing-my-sodapop-so-much-shes-been-by-my-side-for-over-15-years-and-i-wasnt-ready-yet-but-are-we-ever-really-ready-to-lose-them-i-dont-think-so)
-- [One of the best moments I’ve ever captured. He’s such a gent 😂](https://news.puppy-snuggles.com/8381535/one-of-the-best-moments-ive-ever-captured-hes-such-a-gent)
-- [Soren taking a break from ball chasing](https://news.puppy-snuggles.com/6780493/soren-taking-a-break-from-ball-chasing)
-- [Odin, Thor, and Freya enjoying some doggo Ice cream](https://news.puppy-snuggles.com/9463246/odin-thor-and-freya-enjoying-some-doggo-ice-cream)
+- [The face Tyr makes when he knows you have food](https://news.puppy-snuggles.com/8564308/the-face-tyr-makes-when-he-knows-you-have-food)
+- [Meet Sheila our new 8 week Australian shepherd!](https://news.puppy-snuggles.com/7739699/meet-sheila-our-new-8-week-australian-shepherd)
+- [Sleeping doggo](https://news.puppy-snuggles.com/8517640/sleeping-doggo)
+- [Happy golden retriever](https://news.puppy-snuggles.com/7850735/happy-golden-retriever)
+- [Had a great day at the beach with my lover girl.](https://news.puppy-snuggles.com/8417890/had-a-great-day-at-the-beach-with-my-lover-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
