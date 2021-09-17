@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The face Tyr makes when he knows you have food](https://news.puppy-snuggles.com/8564308/the-face-tyr-makes-when-he-knows-you-have-food)
-- [Meet Sheila our new 8 week Australian shepherd!](https://news.puppy-snuggles.com/7739699/meet-sheila-our-new-8-week-australian-shepherd)
-- [Sleeping doggo](https://news.puppy-snuggles.com/8517640/sleeping-doggo)
-- [Happy golden retriever](https://news.puppy-snuggles.com/7850735/happy-golden-retriever)
-- [Had a great day at the beach with my lover girl.](https://news.puppy-snuggles.com/8417890/had-a-great-day-at-the-beach-with-my-lover-girl)
+- [Selfie with my happy girl](https://news.puppy-snuggles.com/9537000/selfie-with-my-happy-girl)
+- [I guess they like the new rug](https://news.puppy-snuggles.com/9510012/i-guess-they-like-the-new-rug)
+- [One of a street dogs in our University Campus loves to sleep on my bike](https://news.puppy-snuggles.com/7902145/one-of-a-street-dogs-in-our-university-campus-loves-to-sleep-on-my-bike)
+- [Together with my beautiful Oscar after 4 months in hospital!](https://news.puppy-snuggles.com/7566769/together-with-my-beautiful-oscar-after-4-months-in-hospital)
+- [hi, my name's Frank and I'm a sleepaholic](https://news.puppy-snuggles.com/9536998/hi-my-names-frank-and-im-a-sleepaholic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
