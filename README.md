@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Selfie with my happy girl](https://news.puppy-snuggles.com/9537000/selfie-with-my-happy-girl)
-- [I guess they like the new rug](https://news.puppy-snuggles.com/9510012/i-guess-they-like-the-new-rug)
-- [One of a street dogs in our University Campus loves to sleep on my bike](https://news.puppy-snuggles.com/7902145/one-of-a-street-dogs-in-our-university-campus-loves-to-sleep-on-my-bike)
-- [Together with my beautiful Oscar after 4 months in hospital!](https://news.puppy-snuggles.com/7566769/together-with-my-beautiful-oscar-after-4-months-in-hospital)
-- [hi, my name's Frank and I'm a sleepaholic](https://news.puppy-snuggles.com/9536998/hi-my-names-frank-and-im-a-sleepaholic)
+- [Jasper reckons his new home is pretty good.](https://news.puppy-snuggles.com/9571993/jasper-reckons-his-new-home-is-pretty-good)
+- [My girl Marcy the shepsky! She's my first personal dog and turns 1 next month!](https://news.puppy-snuggles.com/8911657/my-girl-marcy-the-shepsky-shes-my-first-personal-dog-and-turns-1-next-month)
+- [Morning exercise helps you have an energetic day.](https://news.puppy-snuggles.com/9301932/morning-exercise-helps-you-have-an-energetic-day)
+- [Out on a beautiful day with the Hobster!](https://news.puppy-snuggles.com/9368396/out-on-a-beautiful-day-with-the-hobster)
+- [La fine face](https://news.puppy-snuggles.com/7994944/la-fine-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
