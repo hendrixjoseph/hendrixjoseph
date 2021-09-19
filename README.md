@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Jasper reckons his new home is pretty good.](https://news.puppy-snuggles.com/9571993/jasper-reckons-his-new-home-is-pretty-good)
-- [My girl Marcy the shepsky! She's my first personal dog and turns 1 next month!](https://news.puppy-snuggles.com/8911657/my-girl-marcy-the-shepsky-shes-my-first-personal-dog-and-turns-1-next-month)
-- [Morning exercise helps you have an energetic day.](https://news.puppy-snuggles.com/9301932/morning-exercise-helps-you-have-an-energetic-day)
-- [Out on a beautiful day with the Hobster!](https://news.puppy-snuggles.com/9368396/out-on-a-beautiful-day-with-the-hobster)
-- [La fine face](https://news.puppy-snuggles.com/7994944/la-fine-face)
+- [Today would’ve been my old boy Cooper’s 14th birthday. He passed away almost a year ago. Still miss you every day, silly boy.](https://news.puppy-snuggles.com/8350858/today-wouldve-been-my-old-boy-coopers-14th-birthday-he-passed-away-almost-a-year-ago-still-miss-you-every-day-silly-boy)
+- [Some 3 week old puppies to brighten up your day](https://news.puppy-snuggles.com/7730379/some-3-week-old-puppies-to-brighten-up-your-day)
+- [My little Tess tugs with the best of them](https://news.puppy-snuggles.com/7099526/my-little-tess-tugs-with-the-best-of-them)
+- [My friend of 14 years 😁](https://news.puppy-snuggles.com/8605879/my-friend-of-14-years)
+- [Murph says, “Take a nap, you’ll live longer!”](https://news.puppy-snuggles.com/8168553/murph-says-take-a-nap-youll-live-longer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
