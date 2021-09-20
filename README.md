@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today would’ve been my old boy Cooper’s 14th birthday. He passed away almost a year ago. Still miss you every day, silly boy.](https://news.puppy-snuggles.com/8350858/today-wouldve-been-my-old-boy-coopers-14th-birthday-he-passed-away-almost-a-year-ago-still-miss-you-every-day-silly-boy)
-- [Some 3 week old puppies to brighten up your day](https://news.puppy-snuggles.com/7730379/some-3-week-old-puppies-to-brighten-up-your-day)
-- [My little Tess tugs with the best of them](https://news.puppy-snuggles.com/7099526/my-little-tess-tugs-with-the-best-of-them)
-- [My friend of 14 years 😁](https://news.puppy-snuggles.com/8605879/my-friend-of-14-years)
-- [Murph says, “Take a nap, you’ll live longer!”](https://news.puppy-snuggles.com/8168553/murph-says-take-a-nap-youll-live-longer)
+- [Neighbor dogs Charlie and Duke](https://news.puppy-snuggles.com/8731291/neighbor-dogs-charlie-and-duke)
+- [The prettiest goodest girl](https://news.puppy-snuggles.com/9581407/the-prettiest-goodest-girl)
+- [She turns 2 today!](https://news.puppy-snuggles.com/9622417/she-turns-2-today)
+- [So i found this dope ass life jacket and I cannot wait to really use it 😂😂😂](https://news.puppy-snuggles.com/7800520/so-i-found-this-dope-ass-life-jacket-and-i-cannot-wait-to-really-use-it)
+- [Day 4 of Igor in his new house and he's slowly getting more comfortable. His expression is changing too!](https://news.puppy-snuggles.com/8051470/day-4-of-igor-in-his-new-house-and-hes-slowly-getting-more-comfortable-his-expression-is-changing-too)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
