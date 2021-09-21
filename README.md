@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Neighbor dogs Charlie and Duke](https://news.puppy-snuggles.com/8731291/neighbor-dogs-charlie-and-duke)
-- [The prettiest goodest girl](https://news.puppy-snuggles.com/9581407/the-prettiest-goodest-girl)
-- [She turns 2 today!](https://news.puppy-snuggles.com/9622417/she-turns-2-today)
-- [So i found this dope ass life jacket and I cannot wait to really use it 😂😂😂](https://news.puppy-snuggles.com/7800520/so-i-found-this-dope-ass-life-jacket-and-i-cannot-wait-to-really-use-it)
-- [Day 4 of Igor in his new house and he's slowly getting more comfortable. His expression is changing too!](https://news.puppy-snuggles.com/8051470/day-4-of-igor-in-his-new-house-and-hes-slowly-getting-more-comfortable-his-expression-is-changing-too)
+- [Post zoomies, you can’t fight the sploot](https://news.puppy-snuggles.com/7994943/post-zoomies-you-cant-fight-the-sploot)
+- [Yawning Charlee](https://news.puppy-snuggles.com/6940674/yawning-charlee)
+- [Dog vibing](https://news.puppy-snuggles.com/7454041/dog-vibing)
+- [A dog head shot. Auditioning for the role of dog in the puppuccino shop #2](https://news.puppy-snuggles.com/9659055/a-dog-head-shot-auditioning-for-the-role-of-dog-in-the-puppuccino-shop-2)
+- [Sebastian, koda and moon, the best of friends❤️ keeping guard at the door for us!](https://news.puppy-snuggles.com/7438125/sebastian-koda-and-moon-the-best-of-friends-keeping-guard-at-the-door-for-us)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
