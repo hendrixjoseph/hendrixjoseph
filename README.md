@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post zoomies, you can’t fight the sploot](https://news.puppy-snuggles.com/7994943/post-zoomies-you-cant-fight-the-sploot)
-- [Yawning Charlee](https://news.puppy-snuggles.com/6940674/yawning-charlee)
-- [Dog vibing](https://news.puppy-snuggles.com/7454041/dog-vibing)
-- [A dog head shot. Auditioning for the role of dog in the puppuccino shop #2](https://news.puppy-snuggles.com/9659055/a-dog-head-shot-auditioning-for-the-role-of-dog-in-the-puppuccino-shop-2)
-- [Sebastian, koda and moon, the best of friends❤️ keeping guard at the door for us!](https://news.puppy-snuggles.com/7438125/sebastian-koda-and-moon-the-best-of-friends-keeping-guard-at-the-door-for-us)
+- [Today would’ve been my Daisy’s 10th birthday. She crossed the rainbow bridge in May 2020 and I still miss her SO much. She was the sweetest girl ever and I’ll never get over her being gone](https://news.puppy-snuggles.com/9490064/today-wouldve-been-my-daisys-10th-birthday-she-crossed-the-rainbow-bridge-in-may-2020-and-i-still-miss-her-so-much-she-was-the-sweetest-girl-ever-and-ill-never-get-over-her-being-gone)
+- [Happy boy harvesting apples](https://news.puppy-snuggles.com/9684017/happy-boy-harvesting-apples)
+- [I never thought I could love anything so much.](https://news.puppy-snuggles.com/9172332/i-never-thought-i-could-love-anything-so-much)
+- [Socks was all smiles going to his forever home! Minus the car sickness 🤮😂❤️](https://news.puppy-snuggles.com/9554429/socks-was-all-smiles-going-to-his-forever-home-minus-the-car-sickness)
+- [Honey’s a 14 year old Jack Russel rescue, and she’s still lively as ever 😂](https://news.puppy-snuggles.com/9694053/honeys-a-14-year-old-jack-russel-rescue-and-shes-still-lively-as-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
