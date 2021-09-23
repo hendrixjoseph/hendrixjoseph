@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today would’ve been my Daisy’s 10th birthday. She crossed the rainbow bridge in May 2020 and I still miss her SO much. She was the sweetest girl ever and I’ll never get over her being gone](https://news.puppy-snuggles.com/9490064/today-wouldve-been-my-daisys-10th-birthday-she-crossed-the-rainbow-bridge-in-may-2020-and-i-still-miss-her-so-much-she-was-the-sweetest-girl-ever-and-ill-never-get-over-her-being-gone)
-- [Happy boy harvesting apples](https://news.puppy-snuggles.com/9684017/happy-boy-harvesting-apples)
-- [I never thought I could love anything so much.](https://news.puppy-snuggles.com/9172332/i-never-thought-i-could-love-anything-so-much)
-- [Socks was all smiles going to his forever home! Minus the car sickness 🤮😂❤️](https://news.puppy-snuggles.com/9554429/socks-was-all-smiles-going-to-his-forever-home-minus-the-car-sickness)
-- [Honey’s a 14 year old Jack Russel rescue, and she’s still lively as ever 😂](https://news.puppy-snuggles.com/9694053/honeys-a-14-year-old-jack-russel-rescue-and-shes-still-lively-as-ever)
+- [My dog who reminds me of the Otis from barnyard](https://news.puppy-snuggles.com/9728807/my-dog-who-reminds-me-of-the-otis-from-barnyard)
+- [A dog's coat looks like two roads, doesn't it?](https://news.puppy-snuggles.com/7521486/a-dogs-coat-looks-like-two-roads-doesnt-it)
+- [Happy first day of autumn everyone.](https://news.puppy-snuggles.com/9728805/happy-first-day-of-autumn-everyone)
+- [Pepper the Bernese Mountain Dog](https://news.puppy-snuggles.com/9416509/pepper-the-bernese-mountain-dog)
+- [Cozy](https://news.puppy-snuggles.com/7025044/cozy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
