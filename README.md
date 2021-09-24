@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog who reminds me of the Otis from barnyard](https://news.puppy-snuggles.com/9728807/my-dog-who-reminds-me-of-the-otis-from-barnyard)
-- [A dog's coat looks like two roads, doesn't it?](https://news.puppy-snuggles.com/7521486/a-dogs-coat-looks-like-two-roads-doesnt-it)
-- [Happy first day of autumn everyone.](https://news.puppy-snuggles.com/9728805/happy-first-day-of-autumn-everyone)
-- [Pepper the Bernese Mountain Dog](https://news.puppy-snuggles.com/9416509/pepper-the-bernese-mountain-dog)
-- [Cozy](https://news.puppy-snuggles.com/7025044/cozy)
+- [Honey’s a 14 year old Jack Russel rescue, and she’s still lively as ever 😂](https://news.puppy-snuggles.com/9694053/honeys-a-14-year-old-jack-russel-rescue-and-shes-still-lively-as-ever)
+- [All grown up](https://news.puppy-snuggles.com/9764271/all-grown-up)
+- [Yvie is just popping by to say hello!](https://news.puppy-snuggles.com/7925031/yvie-is-just-popping-by-to-say-hello)
+- [This is extremely accurate](https://news.puppy-snuggles.com/5538488/this-is-extremely-accurate)
+- [Lost my best friend a year ago today. It still hurts the same. I miss you Nellie so, so much :(](https://news.puppy-snuggles.com/8064907/lost-my-best-friend-a-year-ago-today-it-still-hurts-the-same-i-miss-you-nellie-so-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
