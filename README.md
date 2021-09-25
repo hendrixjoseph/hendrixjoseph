@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Honey’s a 14 year old Jack Russel rescue, and she’s still lively as ever 😂](https://news.puppy-snuggles.com/9694053/honeys-a-14-year-old-jack-russel-rescue-and-shes-still-lively-as-ever)
-- [All grown up](https://news.puppy-snuggles.com/9764271/all-grown-up)
-- [Yvie is just popping by to say hello!](https://news.puppy-snuggles.com/7925031/yvie-is-just-popping-by-to-say-hello)
-- [This is extremely accurate](https://news.puppy-snuggles.com/5538488/this-is-extremely-accurate)
-- [Lost my best friend a year ago today. It still hurts the same. I miss you Nellie so, so much :(](https://news.puppy-snuggles.com/8064907/lost-my-best-friend-a-year-ago-today-it-still-hurts-the-same-i-miss-you-nellie-so-so-much)
+- [I think he likes convincing me to throw his toy as much as he likes chasing it](https://news.puppy-snuggles.com/6312557/i-think-he-likes-convincing-me-to-throw-his-toy-as-much-as-he-likes-chasing-it)
+- [This is Boomer, living his best life!](https://news.puppy-snuggles.com/4645688/this-is-boomer-living-his-best-life)
+- [What did you say?](https://news.puppy-snuggles.com/9798747/what-did-you-say)
+- [This is Nina. She’s very picky, and refuses to eat most foods. But will eat the occasional dead leaf.](https://news.puppy-snuggles.com/9798745/this-is-nina-shes-very-picky-and-refuses-to-eat-most-foods-but-will-eat-the-occasional-dead-leaf)
+- [Have you seen a spoiled husky who only likes to be hand fed?!](https://news.puppy-snuggles.com/9798746/have-you-seen-a-spoiled-husky-who-only-likes-to-be-hand-fed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
