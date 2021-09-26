@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Friday, September 24, 2021](https://www.reddit.com/r/financialindependence/comments/pufvxj/daily_fi_discussion_thread_friday_september_24/he61pd2/)
 - [/u/joehx on Libertarian Party of Montgomery County to hold Special Convention to consider amending Party Constitution](https://www.reddit.com/r/LibertarianPartyOhio/comments/prjqi1/libertarian_party_of_montgomery_county_to_hold/he4ey07/)
 - [/u/joehx on Daily FI discussion thread - Friday, September 24, 2021](https://www.reddit.com/r/financialindependence/comments/pufvxj/daily_fi_discussion_thread_friday_september_24/he32ocl/)
 - [/u/joehx on I hate it when somebody buys like, four copies of the same shirt, and then sends back three of them](https://www.reddit.com/r/AmazonMerch/comments/pqylwp/i_hate_it_when_somebody_buys_like_four_copies_of/hdhbycm/)
 - [/u/joehx on I hate it when somebody buys like, four copies of the same shirt, and then sends back three of them](https://www.reddit.com/r/AmazonMerch/comments/pqylwp/i_hate_it_when_somebody_buys_like_four_copies_of/hdeo9t3/)
-- [/u/joehx on The writers of VOY had a particularly hard time with big numbers and Scorpion Pt II has one of the most jarring examples.](https://www.reddit.com/r/DaystromInstitute/comments/polhjo/the_writers_of_voy_had_a_particularly_hard_time/hczbyxc/)
 <!-- REDDIT:END -->
