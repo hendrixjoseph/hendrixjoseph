@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I think he likes convincing me to throw his toy as much as he likes chasing it](https://news.puppy-snuggles.com/6312557/i-think-he-likes-convincing-me-to-throw-his-toy-as-much-as-he-likes-chasing-it)
-- [This is Boomer, living his best life!](https://news.puppy-snuggles.com/4645688/this-is-boomer-living-his-best-life)
-- [What did you say?](https://news.puppy-snuggles.com/9798747/what-did-you-say)
-- [This is Nina. She’s very picky, and refuses to eat most foods. But will eat the occasional dead leaf.](https://news.puppy-snuggles.com/9798745/this-is-nina-shes-very-picky-and-refuses-to-eat-most-foods-but-will-eat-the-occasional-dead-leaf)
-- [Have you seen a spoiled husky who only likes to be hand fed?!](https://news.puppy-snuggles.com/9798746/have-you-seen-a-spoiled-husky-who-only-likes-to-be-hand-fed)
+- [Our 5 month old german shepherd/pittie mix Max :)](https://news.puppy-snuggles.com/6838943/our-5-month-old-german-shepherdpittie-mix-max)
+- [My angry old dog brother enjoying some scritches](https://news.puppy-snuggles.com/9826726/my-angry-old-dog-brother-enjoying-some-scritches)
+- [My dog's face when she realizes we're at one of her favorite hiking trails.](https://news.puppy-snuggles.com/9820096/my-dogs-face-when-she-realizes-were-at-one-of-her-favorite-hiking-trails)
+- [This is Lulu 🐶💖 She is a Phu Quoc and Thai Ridgeback and is one of the happiest doggos around 🐶☺](https://news.puppy-snuggles.com/7915217/this-is-lulu-she-is-a-phu-quoc-and-thai-ridgeback-and-is-one-of-the-happiest-doggos-around)
+- [The happy bunch](https://news.puppy-snuggles.com/8037953/the-happy-bunch)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
