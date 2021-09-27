@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our 5 month old german shepherd/pittie mix Max :)](https://news.puppy-snuggles.com/6838943/our-5-month-old-german-shepherdpittie-mix-max)
-- [My angry old dog brother enjoying some scritches](https://news.puppy-snuggles.com/9826726/my-angry-old-dog-brother-enjoying-some-scritches)
-- [My dog's face when she realizes we're at one of her favorite hiking trails.](https://news.puppy-snuggles.com/9820096/my-dogs-face-when-she-realizes-were-at-one-of-her-favorite-hiking-trails)
-- [This is Lulu 🐶💖 She is a Phu Quoc and Thai Ridgeback and is one of the happiest doggos around 🐶☺](https://news.puppy-snuggles.com/7915217/this-is-lulu-she-is-a-phu-quoc-and-thai-ridgeback-and-is-one-of-the-happiest-doggos-around)
-- [The happy bunch](https://news.puppy-snuggles.com/8037953/the-happy-bunch)
+- [Today is my dogs 1st b-day!! 🎈🎂](https://news.puppy-snuggles.com/9846685/today-is-my-dogs-1st-b-day)
+- [When someone shows you love but you don't know how to accept it](https://news.puppy-snuggles.com/9852858/when-someone-shows-you-love-but-you-dont-know-how-to-accept-it)
+- [Pepita’s 4th birthday](https://news.puppy-snuggles.com/9852859/pepitas-4th-birthday)
+- [I just started a job as a veterinary receptionist in hopes of one day working when a wagon full of puppies come in for their first visit. Today was the day.](https://news.puppy-snuggles.com/6955629/i-just-started-a-job-as-a-veterinary-receptionist-in-hopes-of-one-day-working-when-a-wagon-full-of-puppies-come-in-for-their-first-visit-today-was-the-day)
+- [Remus in his right element](https://news.puppy-snuggles.com/9852857/remus-in-his-right-element)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
