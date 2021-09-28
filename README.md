@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today is my dogs 1st b-day!! 🎈🎂](https://news.puppy-snuggles.com/9846685/today-is-my-dogs-1st-b-day)
-- [When someone shows you love but you don't know how to accept it](https://news.puppy-snuggles.com/9852858/when-someone-shows-you-love-but-you-dont-know-how-to-accept-it)
-- [Pepita’s 4th birthday](https://news.puppy-snuggles.com/9852859/pepitas-4th-birthday)
-- [I just started a job as a veterinary receptionist in hopes of one day working when a wagon full of puppies come in for their first visit. Today was the day.](https://news.puppy-snuggles.com/6955629/i-just-started-a-job-as-a-veterinary-receptionist-in-hopes-of-one-day-working-when-a-wagon-full-of-puppies-come-in-for-their-first-visit-today-was-the-day)
-- [Remus in his right element](https://news.puppy-snuggles.com/9852857/remus-in-his-right-element)
+- [Doobie with a Good Girl Tip: whenever you’re feeling down, just think about your next meal!](https://news.puppy-snuggles.com/9874730/doobie-with-a-good-girl-tip-whenever-youre-feeling-down-just-think-about-your-next-meal)
+- [Kobe learned shake tonight! She’s such a smart puppy! 🐶❤️](https://news.puppy-snuggles.com/9874731/kobe-learned-shake-tonight-shes-such-a-smart-puppy)
+- [Hello from cute mix of labrador and godlen retriver](https://news.puppy-snuggles.com/9884022/hello-from-cute-mix-of-labrador-and-godlen-retriver)
+- [Eggo’s first big boy walk!](https://news.puppy-snuggles.com/4394631/eggos-first-big-boy-walk)
+- [This is Mac, he likes it when I kick his soccer ball, I hope you all like him as much as I do.](https://news.puppy-snuggles.com/9650191/this-is-mac-he-likes-it-when-i-kick-his-soccer-ball-i-hope-you-all-like-him-as-much-as-i-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
