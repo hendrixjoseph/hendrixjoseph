@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Doobie with a Good Girl Tip: whenever you’re feeling down, just think about your next meal!](https://news.puppy-snuggles.com/9874730/doobie-with-a-good-girl-tip-whenever-youre-feeling-down-just-think-about-your-next-meal)
-- [Kobe learned shake tonight! She’s such a smart puppy! 🐶❤️](https://news.puppy-snuggles.com/9874731/kobe-learned-shake-tonight-shes-such-a-smart-puppy)
-- [Hello from cute mix of labrador and godlen retriver](https://news.puppy-snuggles.com/9884022/hello-from-cute-mix-of-labrador-and-godlen-retriver)
-- [Eggo’s first big boy walk!](https://news.puppy-snuggles.com/4394631/eggos-first-big-boy-walk)
-- [This is Mac, he likes it when I kick his soccer ball, I hope you all like him as much as I do.](https://news.puppy-snuggles.com/9650191/this-is-mac-he-likes-it-when-i-kick-his-soccer-ball-i-hope-you-all-like-him-as-much-as-i-do)
+- [I love him so much. He is my best friend](https://news.puppy-snuggles.com/7750346/i-love-him-so-much-he-is-my-best-friend)
+- [Brady 14 weeks old](https://news.puppy-snuggles.com/9919419/brady-14-weeks-old)
+- [They're too much. I can't handle it](https://news.puppy-snuggles.com/9919413/theyre-too-much-i-cant-handle-it)
+- [This is her diva face](https://news.puppy-snuggles.com/9919414/this-is-her-diva-face)
+- [Someone wants to play.](https://news.puppy-snuggles.com/9919418/someone-wants-to-play)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
