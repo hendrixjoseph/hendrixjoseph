@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I love him so much. He is my best friend](https://news.puppy-snuggles.com/7750346/i-love-him-so-much-he-is-my-best-friend)
-- [Brady 14 weeks old](https://news.puppy-snuggles.com/9919419/brady-14-weeks-old)
-- [They're too much. I can't handle it](https://news.puppy-snuggles.com/9919413/theyre-too-much-i-cant-handle-it)
-- [This is her diva face](https://news.puppy-snuggles.com/9919414/this-is-her-diva-face)
-- [Someone wants to play.](https://news.puppy-snuggles.com/9919418/someone-wants-to-play)
+- [A lot of people on my street let the animals run free and when I take my dog for a walk it ends with an animal parade](https://news.puppy-snuggles.com/7416692/a-lot-of-people-on-my-street-let-the-animals-run-free-and-when-i-take-my-dog-for-a-walk-it-ends-with-an-animal-parade)
+- [Throw back from when my boy came home for the first time :)](https://news.puppy-snuggles.com/9954013/throw-back-from-when-my-boy-came-home-for-the-first-time)
+- [Huckleberry is just as happy as can be. Not even 5 minutes after we first got him and he was so happy to be coming home with us.](https://news.puppy-snuggles.com/9954012/huckleberry-is-just-as-happy-as-can-be-not-even-5-minutes-after-we-first-got-him-and-he-was-so-happy-to-be-coming-home-with-us)
+- [A memorial portrait I did of the sweetest black lab, Sadie.](https://news.puppy-snuggles.com/9954006/a-memorial-portrait-i-did-of-the-sweetest-black-lab-sadie)
+- [My first dog Oreo :)](https://news.puppy-snuggles.com/9954008/my-first-dog-oreo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
