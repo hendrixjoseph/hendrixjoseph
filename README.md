@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A lot of people on my street let the animals run free and when I take my dog for a walk it ends with an animal parade](https://news.puppy-snuggles.com/7416692/a-lot-of-people-on-my-street-let-the-animals-run-free-and-when-i-take-my-dog-for-a-walk-it-ends-with-an-animal-parade)
-- [Throw back from when my boy came home for the first time :)](https://news.puppy-snuggles.com/9954013/throw-back-from-when-my-boy-came-home-for-the-first-time)
-- [Huckleberry is just as happy as can be. Not even 5 minutes after we first got him and he was so happy to be coming home with us.](https://news.puppy-snuggles.com/9954012/huckleberry-is-just-as-happy-as-can-be-not-even-5-minutes-after-we-first-got-him-and-he-was-so-happy-to-be-coming-home-with-us)
-- [A memorial portrait I did of the sweetest black lab, Sadie.](https://news.puppy-snuggles.com/9954006/a-memorial-portrait-i-did-of-the-sweetest-black-lab-sadie)
-- [My first dog Oreo :)](https://news.puppy-snuggles.com/9954008/my-first-dog-oreo)
+- [Beach vacay is the best!](https://news.puppy-snuggles.com/7566774/beach-vacay-is-the-best)
+- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
+- [I took the dog swimming at the local lake tonight, and he had a great time!](https://news.puppy-snuggles.com/9893852/i-took-the-dog-swimming-at-the-local-lake-tonight-and-he-had-a-great-time)
+- [He knows it's raining](https://news.puppy-snuggles.com/9989413/he-knows-its-raining)
+- [3-4 months rescued dog.Any idea on its race or the combo of races?](https://news.puppy-snuggles.com/9874734/3-4-months-rescued-dogany-idea-on-its-race-or-the-combo-of-races)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
