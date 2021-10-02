@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Beach vacay is the best!](https://news.puppy-snuggles.com/7566774/beach-vacay-is-the-best)
-- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
-- [I took the dog swimming at the local lake tonight, and he had a great time!](https://news.puppy-snuggles.com/9893852/i-took-the-dog-swimming-at-the-local-lake-tonight-and-he-had-a-great-time)
-- [He knows it's raining](https://news.puppy-snuggles.com/9989413/he-knows-its-raining)
-- [3-4 months rescued dog.Any idea on its race or the combo of races?](https://news.puppy-snuggles.com/9874734/3-4-months-rescued-dogany-idea-on-its-race-or-the-combo-of-races)
+- [Got yelled at by an older women on our walk today.](https://news.puppy-snuggles.com/10024104/got-yelled-at-by-an-older-women-on-our-walk-today)
+- [How would you call our newest family member?](https://news.puppy-snuggles.com/8675771/how-would-you-call-our-newest-family-member)
+- [birdie and gus enjoying an evening walk!](https://news.puppy-snuggles.com/8401214/birdie-and-gus-enjoying-an-evening-walk)
+- [Appa the Goberian exploring the forest for the first time 😊](https://news.puppy-snuggles.com/7542964/appa-the-goberian-exploring-the-forest-for-the-first-time)
+- [Precious Family](https://news.puppy-snuggles.com/6257818/precious-family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
