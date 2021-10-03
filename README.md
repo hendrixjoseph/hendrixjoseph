@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily Question Thread - October 02, 2021](https://www.reddit.com/r/churning/comments/pzrn1t/daily_question_thread_october_02_2021/hf5v337/)
 - [/u/joehx on What things probably won't exist in 25 years?](https://www.reddit.com/r/AskReddit/comments/pvzlmc/what_things_probably_wont_exist_in_25_years/heeof47/)
 - [/u/joehx on Daily FI discussion thread - Friday, September 24, 2021](https://www.reddit.com/r/financialindependence/comments/pufvxj/daily_fi_discussion_thread_friday_september_24/he61pd2/)
 - [/u/joehx on Libertarian Party of Montgomery County to hold Special Convention to consider amending Party Constitution](https://www.reddit.com/r/LibertarianPartyOhio/comments/prjqi1/libertarian_party_of_montgomery_county_to_hold/he4ey07/)
 - [/u/joehx on Daily FI discussion thread - Friday, September 24, 2021](https://www.reddit.com/r/financialindependence/comments/pufvxj/daily_fi_discussion_thread_friday_september_24/he32ocl/)
-- [/u/joehx on I hate it when somebody buys like, four copies of the same shirt, and then sends back three of them](https://www.reddit.com/r/AmazonMerch/comments/pqylwp/i_hate_it_when_somebody_buys_like_four_copies_of/hdhbycm/)
 <!-- REDDIT:END -->
