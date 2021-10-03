@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [“Bone Jour” friends!](https://news.puppy-snuggles.com/10051103/bone-jour-friends)
+- [He LOVES my Alfredo Sauce!](https://news.puppy-snuggles.com/9395243/he-loves-my-alfredo-sauce)
+- [2 different dogs. One passed away on 11th april 2020. The other was born april 13th 2020. They never met eachother. I sometimes wonder](https://news.puppy-snuggles.com/10045114/2-different-dogs-one-passed-away-on-11th-april-2020-the-other-was-born-april-13th-2020-they-never-met-eachother-i-sometimes-wonder)
 - [Got yelled at by an older women on our walk today.](https://news.puppy-snuggles.com/10024104/got-yelled-at-by-an-older-women-on-our-walk-today)
-- [How would you call our newest family member?](https://news.puppy-snuggles.com/8675771/how-would-you-call-our-newest-family-member)
-- [birdie and gus enjoying an evening walk!](https://news.puppy-snuggles.com/8401214/birdie-and-gus-enjoying-an-evening-walk)
-- [Appa the Goberian exploring the forest for the first time 😊](https://news.puppy-snuggles.com/7542964/appa-the-goberian-exploring-the-forest-for-the-first-time)
-- [Precious Family](https://news.puppy-snuggles.com/6257818/precious-family)
+- [Snoopy is worn out from a long walk](https://news.puppy-snuggles.com/10014947/snoopy-is-worn-out-from-a-long-walk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
