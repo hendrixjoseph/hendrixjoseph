@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Bone Jour” friends!](https://news.puppy-snuggles.com/10051103/bone-jour-friends)
-- [He LOVES my Alfredo Sauce!](https://news.puppy-snuggles.com/9395243/he-loves-my-alfredo-sauce)
-- [2 different dogs. One passed away on 11th april 2020. The other was born april 13th 2020. They never met eachother. I sometimes wonder](https://news.puppy-snuggles.com/10045114/2-different-dogs-one-passed-away-on-11th-april-2020-the-other-was-born-april-13th-2020-they-never-met-eachother-i-sometimes-wonder)
-- [Got yelled at by an older women on our walk today.](https://news.puppy-snuggles.com/10024104/got-yelled-at-by-an-older-women-on-our-walk-today)
-- [Snoopy is worn out from a long walk](https://news.puppy-snuggles.com/10014947/snoopy-is-worn-out-from-a-long-walk)
+- [Today marks one year of Howdy’s family membership and well, she decided to celebrate hard.](https://news.puppy-snuggles.com/4054320/today-marks-one-year-of-howdys-family-membership-and-well-she-decided-to-celebrate-hard)
+- [Hope your all enjoying your weekend...](https://news.puppy-snuggles.com/10076795/hope-your-all-enjoying-your-weekend)
+- [Beach vacay is the best!](https://news.puppy-snuggles.com/7566774/beach-vacay-is-the-best)
+- [What a dance!](https://news.puppy-snuggles.com/8147538/what-a-dance)
+- [When you take your school photo](https://news.puppy-snuggles.com/8314289/when-you-take-your-school-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
