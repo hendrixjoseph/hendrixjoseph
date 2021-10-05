@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today marks one year of Howdy’s family membership and well, she decided to celebrate hard.](https://news.puppy-snuggles.com/4054320/today-marks-one-year-of-howdys-family-membership-and-well-she-decided-to-celebrate-hard)
-- [Hope your all enjoying your weekend...](https://news.puppy-snuggles.com/10076795/hope-your-all-enjoying-your-weekend)
-- [Beach vacay is the best!](https://news.puppy-snuggles.com/7566774/beach-vacay-is-the-best)
-- [What a dance!](https://news.puppy-snuggles.com/8147538/what-a-dance)
-- [When you take your school photo](https://news.puppy-snuggles.com/8314289/when-you-take-your-school-photo)
+- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
+- [Catch the smile](https://news.puppy-snuggles.com/10106203/catch-the-smile)
+- [rest in peace hank. i love you so much](https://news.puppy-snuggles.com/9273203/rest-in-peace-hank-i-love-you-so-much)
+- [Say Hi to Mack!](https://news.puppy-snuggles.com/9773647/say-hi-to-mack)
+- [When you get accepted at Dogwarts 🐶🧙‍♂️🦉](https://news.puppy-snuggles.com/10097783/when-you-get-accepted-at-dogwarts)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
