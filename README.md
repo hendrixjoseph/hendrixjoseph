@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
-- [Catch the smile](https://news.puppy-snuggles.com/10106203/catch-the-smile)
-- [rest in peace hank. i love you so much](https://news.puppy-snuggles.com/9273203/rest-in-peace-hank-i-love-you-so-much)
-- [Say Hi to Mack!](https://news.puppy-snuggles.com/9773647/say-hi-to-mack)
-- [When you get accepted at Dogwarts 🐶🧙‍♂️🦉](https://news.puppy-snuggles.com/10097783/when-you-get-accepted-at-dogwarts)
+- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
+- [Three stooges](https://news.puppy-snuggles.com/10141672/three-stooges)
+- [it's good to take some time to relax every now and then isn't it](https://news.puppy-snuggles.com/10132143/its-good-to-take-some-time-to-relax-every-now-and-then-isnt-it)
+- [Took this little man into the groomers for a wash and blow dry, on the way out he grabbed this little dinosaur toy off the shelf and refused to put it back. He has now been carrying it around for the last 2 days wherever he goes.](https://news.puppy-snuggles.com/5575720/took-this-little-man-into-the-groomers-for-a-wash-and-blow-dry-on-the-way-out-he-grabbed-this-little-dinosaur-toy-off-the-shelf-and-refused-to-put-it-back-he-has-now-been-carrying-it-around-for-the-last-2-days-wherever-he-goes)
+- [After months of wait, we finaly got close to water again, and it was great :)](https://news.puppy-snuggles.com/10132142/after-months-of-wait-we-finaly-got-close-to-water-again-and-it-was-great)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
