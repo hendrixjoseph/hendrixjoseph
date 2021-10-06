@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [September 2021 Book Reading List](https://www.joehxblog.com/september-2021-book-reading-list/)
 - [September 2021 Blog Statistics](https://www.joehxblog.com/september-2021-blog-statistics/)
 - [Interesting Reads for the Week Ending September 10th](https://www.joehxblog.com/september-10-2021-interesting-reads/)
 - [Interesting Reads for the Week Ending September 3rd](https://www.joehxblog.com/september-4-2021-interesting-reads/)
 - [August 2021 Book Reading List](https://www.joehxblog.com/august-2021-book-reading-list/)
-- [How to Sort Multiple Posts on One Date in Jekyll](https://www.joehxblog.com/sort-multiple-posts-on-one-date-in-jekyll/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
