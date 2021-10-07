@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
-- [Three stooges](https://news.puppy-snuggles.com/10141672/three-stooges)
-- [it's good to take some time to relax every now and then isn't it](https://news.puppy-snuggles.com/10132143/its-good-to-take-some-time-to-relax-every-now-and-then-isnt-it)
-- [Took this little man into the groomers for a wash and blow dry, on the way out he grabbed this little dinosaur toy off the shelf and refused to put it back. He has now been carrying it around for the last 2 days wherever he goes.](https://news.puppy-snuggles.com/5575720/took-this-little-man-into-the-groomers-for-a-wash-and-blow-dry-on-the-way-out-he-grabbed-this-little-dinosaur-toy-off-the-shelf-and-refused-to-put-it-back-he-has-now-been-carrying-it-around-for-the-last-2-days-wherever-he-goes)
-- [After months of wait, we finaly got close to water again, and it was great :)](https://news.puppy-snuggles.com/10132142/after-months-of-wait-we-finaly-got-close-to-water-again-and-it-was-great)
+- [Safety First](https://news.puppy-snuggles.com/7200254/safety-first)
+- [Oso is a puppy pawllege graduate!](https://news.puppy-snuggles.com/9395238/oso-is-a-puppy-pawllege-graduate)
+- [Frankenstein is 11 heckin months old.](https://news.puppy-snuggles.com/7770680/frankenstein-is-11-heckin-months-old)
+- [Just let him in already! &amp;gt;:(](https://news.puppy-snuggles.com/4388661/just-let-him-in-already-gt)
+- [After losing our big fella &amp;quot;Phil&amp;quot; to cancer early this year, we swore we were done with dogs. It's just too hard to say goodbye. Well, that lasted all of 7 months. Say hello to our pretty girl &amp;quot;Sky&amp;quot;. Just adopted from the HS. 2 yr old mutt, sweet as can be.](https://news.puppy-snuggles.com/10176656/after-losing-our-big-fella-quotphilquot-to-cancer-early-this-year-we-swore-we-were-done-with-dogs-its-just-too-hard-to-say-goodbye-well-that-lasted-all-of-7-months-say-hello-to-our-pretty-girl-quotskyquot-just-adopted-from-the-hs-2-yr-old-mutt-sweet-as-can-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
