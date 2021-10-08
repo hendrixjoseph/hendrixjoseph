@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Safety First](https://news.puppy-snuggles.com/7200254/safety-first)
-- [Oso is a puppy pawllege graduate!](https://news.puppy-snuggles.com/9395238/oso-is-a-puppy-pawllege-graduate)
-- [Frankenstein is 11 heckin months old.](https://news.puppy-snuggles.com/7770680/frankenstein-is-11-heckin-months-old)
-- [Just let him in already! &amp;gt;:(](https://news.puppy-snuggles.com/4388661/just-let-him-in-already-gt)
-- [After losing our big fella &amp;quot;Phil&amp;quot; to cancer early this year, we swore we were done with dogs. It's just too hard to say goodbye. Well, that lasted all of 7 months. Say hello to our pretty girl &amp;quot;Sky&amp;quot;. Just adopted from the HS. 2 yr old mutt, sweet as can be.](https://news.puppy-snuggles.com/10176656/after-losing-our-big-fella-quotphilquot-to-cancer-early-this-year-we-swore-we-were-done-with-dogs-its-just-too-hard-to-say-goodbye-well-that-lasted-all-of-7-months-say-hello-to-our-pretty-girl-quotskyquot-just-adopted-from-the-hs-2-yr-old-mutt-sweet-as-can-be)
+- [Buck always brightens my day when I see him smile](https://news.puppy-snuggles.com/10158176/buck-always-brightens-my-day-when-i-see-him-smile)
+- [Meet Zoe, the clumsiest dog ever! 🐾🐾](https://news.puppy-snuggles.com/7003909/meet-zoe-the-clumsiest-dog-ever)
+- [Cutest Dog Compilation. Have a good time.](https://news.puppy-snuggles.com/7280207/cutest-dog-compilation-have-a-good-time)
+- [Little Breeze is just starting to enter the real world. Watch out!](https://news.puppy-snuggles.com/5860071/little-breeze-is-just-starting-to-enter-the-real-world-watch-out)
+- [Spending this Valentine’s Day just with my goldendoodle, Olive ✨❤️ she wanted to wish you all a happy Valentine’s Day 💘🐶](https://news.puppy-snuggles.com/4142566/spending-this-valentines-day-just-with-my-goldendoodle-olive-she-wanted-to-wish-you-all-a-happy-valentines-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
