@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Buck always brightens my day when I see him smile](https://news.puppy-snuggles.com/10158176/buck-always-brightens-my-day-when-i-see-him-smile)
-- [Meet Zoe, the clumsiest dog ever! 🐾🐾](https://news.puppy-snuggles.com/7003909/meet-zoe-the-clumsiest-dog-ever)
-- [Cutest Dog Compilation. Have a good time.](https://news.puppy-snuggles.com/7280207/cutest-dog-compilation-have-a-good-time)
-- [Little Breeze is just starting to enter the real world. Watch out!](https://news.puppy-snuggles.com/5860071/little-breeze-is-just-starting-to-enter-the-real-world-watch-out)
-- [Spending this Valentine’s Day just with my goldendoodle, Olive ✨❤️ she wanted to wish you all a happy Valentine’s Day 💘🐶](https://news.puppy-snuggles.com/4142566/spending-this-valentines-day-just-with-my-goldendoodle-olive-she-wanted-to-wish-you-all-a-happy-valentines-day)
+- [Blanquita in her new PJs. She hates children and loves the elderly. She’s a 17 year old chihuahua and Yorky mix](https://news.puppy-snuggles.com/10244422/blanquita-in-her-new-pjs-she-hates-children-and-loves-the-elderly-shes-a-17-year-old-chihuahua-and-yorky-mix)
+- [Guilty on 2 counts of pissing on my carpet and 1 count of shitting on my couch](https://news.puppy-snuggles.com/10166602/guilty-on-2-counts-of-pissing-on-my-carpet-and-1-count-of-shitting-on-my-couch)
+- [My doggy sleeping like baby last night](https://news.puppy-snuggles.com/7592472/my-doggy-sleeping-like-baby-last-night)
+- [DOGGO BE SO CUTE](https://news.puppy-snuggles.com/7250878/doggo-be-so-cute)
+- [The best part of working from home.](https://news.puppy-snuggles.com/5270225/the-best-part-of-working-from-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
