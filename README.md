@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Blanquita in her new PJs. She hates children and loves the elderly. She’s a 17 year old chihuahua and Yorky mix](https://news.puppy-snuggles.com/10244422/blanquita-in-her-new-pjs-she-hates-children-and-loves-the-elderly-shes-a-17-year-old-chihuahua-and-yorky-mix)
-- [Guilty on 2 counts of pissing on my carpet and 1 count of shitting on my couch](https://news.puppy-snuggles.com/10166602/guilty-on-2-counts-of-pissing-on-my-carpet-and-1-count-of-shitting-on-my-couch)
-- [My doggy sleeping like baby last night](https://news.puppy-snuggles.com/7592472/my-doggy-sleeping-like-baby-last-night)
-- [DOGGO BE SO CUTE](https://news.puppy-snuggles.com/7250878/doggo-be-so-cute)
-- [The best part of working from home.](https://news.puppy-snuggles.com/5270225/the-best-part-of-working-from-home)
+- [My giant brute! Murphy turned 3, 80lbs and a hyper silly butt!!❤](https://news.puppy-snuggles.com/10273236/my-giant-brute-murphy-turned-3-80lbs-and-a-hyper-silly-butt)
+- [Puppy on Grass](https://news.puppy-snuggles.com/10273238/puppy-on-grass)
+- [No worries my human, the water is now safe. You may enter 😃](https://news.puppy-snuggles.com/10273233/no-worries-my-human-the-water-is-now-safe-you-may-enter)
+- [Welcome home!](https://news.puppy-snuggles.com/10273234/welcome-home)
+- [This is palo he is blind and deaf but fir a dogs that 8 years old He's still going strong 💪](https://news.puppy-snuggles.com/10273239/this-is-palo-he-is-blind-and-deaf-but-fir-a-dogs-that-8-years-old-hes-still-going-strong)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
