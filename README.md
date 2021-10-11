@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My giant brute! Murphy turned 3, 80lbs and a hyper silly butt!!❤](https://news.puppy-snuggles.com/10273236/my-giant-brute-murphy-turned-3-80lbs-and-a-hyper-silly-butt)
-- [Puppy on Grass](https://news.puppy-snuggles.com/10273238/puppy-on-grass)
-- [No worries my human, the water is now safe. You may enter 😃](https://news.puppy-snuggles.com/10273233/no-worries-my-human-the-water-is-now-safe-you-may-enter)
-- [Welcome home!](https://news.puppy-snuggles.com/10273234/welcome-home)
-- [This is palo he is blind and deaf but fir a dogs that 8 years old He's still going strong 💪](https://news.puppy-snuggles.com/10273239/this-is-palo-he-is-blind-and-deaf-but-fir-a-dogs-that-8-years-old-hes-still-going-strong)
+- [Our pups loved the indoor dog pool!](https://news.puppy-snuggles.com/10273232/our-pups-loved-the-indoor-dog-pool)
+- [The happy boy 🤩](https://news.puppy-snuggles.com/7374390/the-happy-boy)
+- [Can I haz?? Pumpkin pie parfait](https://news.puppy-snuggles.com/9859444/can-i-haz-pumpkin-pie-parfait)
+- [Baby Dogs](https://news.puppy-snuggles.com/10273237/baby-dogs)
+- [Bravest Disney Princess Ready to Rescue Her Prince](https://news.puppy-snuggles.com/10210643/bravest-disney-princess-ready-to-rescue-her-prince)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
