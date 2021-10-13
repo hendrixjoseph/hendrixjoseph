@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Newest member of our family. Meet Gomez!](https://news.puppy-snuggles.com/10279627/newest-member-of-our-family-meet-gomez)
-- [We had to say goodbye to Butters after 15 years, our fiercest protector and the goodest boi. Love you buddy 💙](https://news.puppy-snuggles.com/10253327/we-had-to-say-goodbye-to-butters-after-15-years-our-fiercest-protector-and-the-goodest-boi-love-you-buddy)
-- [As a hunting dog, he's always watching and always listening.](https://news.puppy-snuggles.com/9684014/as-a-hunting-dog-hes-always-watching-and-always-listening)
-- [I’m in Mexico, and this lonely boy came to me, loved being petted and stayed they night. I’m gonna keep him the whole week, food, treats and all. I made him a bed. He snores like a fat man with sleep apnea.](https://news.puppy-snuggles.com/10327585/im-in-mexico-and-this-lonely-boy-came-to-me-loved-being-petted-and-stayed-they-night-im-gonna-keep-him-the-whole-week-food-treats-and-all-i-made-him-a-bed-he-snores-like-a-fat-man-with-sleep-apnea)
-- [From left to right: Jack, Loki, and Darcy. They're my world!](https://news.puppy-snuggles.com/10327583/from-left-to-right-jack-loki-and-darcy-theyre-my-world)
+- [In the yard](https://news.puppy-snuggles.com/8517639/in-the-yard)
+- [My dog Hahn is the smiliest boi I’ve ever seen. I literally have thousands of photos just like these.](https://news.puppy-snuggles.com/10363108/my-dog-hahn-is-the-smiliest-boi-ive-ever-seen-i-literally-have-thousands-of-photos-just-like-these)
+- [Meet Tucker!](https://news.puppy-snuggles.com/10363109/meet-tucker)
+- [Happy Autumn from our good boy Nova 🍂](https://news.puppy-snuggles.com/10363111/happy-autumn-from-our-good-boy-nova)
+- [A pic of my dog](https://news.puppy-snuggles.com/10363110/a-pic-of-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
