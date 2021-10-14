@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [In the yard](https://news.puppy-snuggles.com/8517639/in-the-yard)
-- [My dog Hahn is the smiliest boi I’ve ever seen. I literally have thousands of photos just like these.](https://news.puppy-snuggles.com/10363108/my-dog-hahn-is-the-smiliest-boi-ive-ever-seen-i-literally-have-thousands-of-photos-just-like-these)
-- [Meet Tucker!](https://news.puppy-snuggles.com/10363109/meet-tucker)
+- [Dog.exe has stopped responding. You can restart the program now, or wait for a response.](https://news.puppy-snuggles.com/10396972/dogexe-has-stopped-responding-you-can-restart-the-program-now-or-wait-for-a-response)
 - [Happy Autumn from our good boy Nova 🍂](https://news.puppy-snuggles.com/10363111/happy-autumn-from-our-good-boy-nova)
-- [A pic of my dog](https://news.puppy-snuggles.com/10363110/a-pic-of-my-dog)
+- [Isn’t little Coconut just so cute and fluffy? 🥰](https://news.puppy-snuggles.com/10387457/isnt-little-coconut-just-so-cute-and-fluffy)
+- [long snout, firey eyes, and the tendency to dig smelly seaweed.](https://news.puppy-snuggles.com/10379099/long-snout-firey-eyes-and-the-tendency-to-dig-smelly-seaweed)
+- [Sharing my old best friend because he deserves the world &amp;lt;3](https://news.puppy-snuggles.com/10396969/sharing-my-old-best-friend-because-he-deserves-the-world-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
