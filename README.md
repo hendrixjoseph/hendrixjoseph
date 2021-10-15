@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog.exe has stopped responding. You can restart the program now, or wait for a response.](https://news.puppy-snuggles.com/10396972/dogexe-has-stopped-responding-you-can-restart-the-program-now-or-wait-for-a-response)
-- [Happy Autumn from our good boy Nova 🍂](https://news.puppy-snuggles.com/10363111/happy-autumn-from-our-good-boy-nova)
-- [Isn’t little Coconut just so cute and fluffy? 🥰](https://news.puppy-snuggles.com/10387457/isnt-little-coconut-just-so-cute-and-fluffy)
-- [long snout, firey eyes, and the tendency to dig smelly seaweed.](https://news.puppy-snuggles.com/10379099/long-snout-firey-eyes-and-the-tendency-to-dig-smelly-seaweed)
-- [Sharing my old best friend because he deserves the world &amp;lt;3](https://news.puppy-snuggles.com/10396969/sharing-my-old-best-friend-because-he-deserves-the-world-lt3)
+- [My gang made it to the beach today. (The white boxes on their collars are GPS trackers)](https://news.puppy-snuggles.com/10430989/my-gang-made-it-to-the-beach-today-the-white-boxes-on-their-collars-are-gps-trackers)
+- [My dog has a very grumpy face](https://news.puppy-snuggles.com/10430995/my-dog-has-a-very-grumpy-face)
+- [On his best behavior](https://news.puppy-snuggles.com/10430993/on-his-best-behavior)
+- [I wake up like this](https://news.puppy-snuggles.com/10430994/i-wake-up-like-this)
+- [Fairfield woman accused of killing dogs turns down plea bargain](https://news.puppy-snuggles.com/10429041/fairfield-woman-accused-of-killing-dogs-turns-down-plea-bargain)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
