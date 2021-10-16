@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on What is the "WARNING: DO NOT..." label that is ignored the most?](https://www.reddit.com/r/AskReddit/comments/q2kulx/what_is_the_warning_do_not_label_that_is_ignored/hfoczum/)
-- [/u/joehx on Daily Discussion Thread - October 04, 2021](https://www.reddit.com/r/churning/comments/q11p34/daily_discussion_thread_october_04_2021/hfeufy9/)
-- [/u/joehx on Daily Question Thread - October 02, 2021](https://www.reddit.com/r/churning/comments/pzrn1t/daily_question_thread_october_02_2021/hf5v337/)
-- [/u/joehx on What things probably won't exist in 25 years?](https://www.reddit.com/r/AskReddit/comments/pvzlmc/what_things_probably_wont_exist_in_25_years/heeof47/)
-- [/u/joehx on Daily FI discussion thread - Friday, September 24, 2021](https://www.reddit.com/r/financialindependence/comments/pufvxj/daily_fi_discussion_thread_friday_september_24/he61pd2/)
+- [/u/joehx on Daily Question Thread - October 15, 2021](https://www.reddit.com/r/churning/comments/q8kerf/daily_question_thread_october_15_2021/hgsrk07/)
+- [/u/joehx on Worthless Voyage Schematics](https://www.reddit.com/r/StarTrekTimelines/comments/q8yrcx/worthless_voyage_schematics/hgsoiz1/)
+- [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqpd7l/)
+- [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqoi52/)
+- [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqgg4q/)
 <!-- REDDIT:END -->
