@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My gang made it to the beach today. (The white boxes on their collars are GPS trackers)](https://news.puppy-snuggles.com/10430989/my-gang-made-it-to-the-beach-today-the-white-boxes-on-their-collars-are-gps-trackers)
-- [My dog has a very grumpy face](https://news.puppy-snuggles.com/10430995/my-dog-has-a-very-grumpy-face)
-- [On his best behavior](https://news.puppy-snuggles.com/10430993/on-his-best-behavior)
-- [I wake up like this](https://news.puppy-snuggles.com/10430994/i-wake-up-like-this)
-- [Fairfield woman accused of killing dogs turns down plea bargain](https://news.puppy-snuggles.com/10429041/fairfield-woman-accused-of-killing-dogs-turns-down-plea-bargain)
+- [My Bo (9yrs) on Crosby beach](https://news.puppy-snuggles.com/10465158/my-bo-9yrs-on-crosby-beach)
+- [Lost my beautiful pup last night. 14 beautiful years. My heart hurts. She was at home and with my parents, and sadly I didn’t make it in time as things went downhill quickly. Cherish every second you have with them.](https://news.puppy-snuggles.com/10106198/lost-my-beautiful-pup-last-night-14-beautiful-years-my-heart-hurts-she-was-at-home-and-with-my-parents-and-sadly-i-didnt-make-it-in-time-as-things-went-downhill-quickly-cherish-every-second-you-have-with-them)
+- [Chibs went to the groomer today, and was dubbed &amp;quot;The sweetest Frenchie we have ever worked with!&amp;quot;.](https://news.puppy-snuggles.com/10038940/chibs-went-to-the-groomer-today-and-was-dubbed-quotthe-sweetest-frenchie-we-have-ever-worked-withquot)
+- [Bravest Disney Princess Ready to Rescue Her Prince](https://news.puppy-snuggles.com/10210643/bravest-disney-princess-ready-to-rescue-her-prince)
+- [Been trying to take a picture of my best friend every day. Here is a recent favorite.](https://news.puppy-snuggles.com/10465157/been-trying-to-take-a-picture-of-my-best-friend-every-day-here-is-a-recent-favorite)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
