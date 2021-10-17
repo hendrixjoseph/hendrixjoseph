@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Bo (9yrs) on Crosby beach](https://news.puppy-snuggles.com/10465158/my-bo-9yrs-on-crosby-beach)
-- [Lost my beautiful pup last night. 14 beautiful years. My heart hurts. She was at home and with my parents, and sadly I didn’t make it in time as things went downhill quickly. Cherish every second you have with them.](https://news.puppy-snuggles.com/10106198/lost-my-beautiful-pup-last-night-14-beautiful-years-my-heart-hurts-she-was-at-home-and-with-my-parents-and-sadly-i-didnt-make-it-in-time-as-things-went-downhill-quickly-cherish-every-second-you-have-with-them)
-- [Chibs went to the groomer today, and was dubbed &amp;quot;The sweetest Frenchie we have ever worked with!&amp;quot;.](https://news.puppy-snuggles.com/10038940/chibs-went-to-the-groomer-today-and-was-dubbed-quotthe-sweetest-frenchie-we-have-ever-worked-withquot)
-- [Bravest Disney Princess Ready to Rescue Her Prince](https://news.puppy-snuggles.com/10210643/bravest-disney-princess-ready-to-rescue-her-prince)
-- [Been trying to take a picture of my best friend every day. Here is a recent favorite.](https://news.puppy-snuggles.com/10465157/been-trying-to-take-a-picture-of-my-best-friend-every-day-here-is-a-recent-favorite)
+- [When your humans haven't brought your bed in from the car so you improvise, pupper-style.](https://news.puppy-snuggles.com/9536995/when-your-humans-havent-brought-your-bed-in-from-the-car-so-you-improvise-pupper-style)
+- [Loki - A good boy.](https://news.puppy-snuggles.com/9944811/loki-a-good-boy)
+- [The best look out](https://news.puppy-snuggles.com/9834141/the-best-look-out)
+- [Limited edition dog pretzel](https://news.puppy-snuggles.com/10210642/limited-edition-dog-pretzel)
+- [A series of dog ears](https://news.puppy-snuggles.com/10492294/a-series-of-dog-ears)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
