@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is the stupidest thing you believed when you were child?](https://www.reddit.com/r/AskReddit/comments/q99v7k/what_is_the_stupidest_thing_you_believed_when_you/hgx8o1w/)
+- [/u/joehx on Please change your name according to our design..](https://www.reddit.com/r/ProgrammerHumor/comments/q9bfnv/please_change_your_name_according_to_our_design/hgv9c8c/)
 - [/u/joehx on Daily Question Thread - October 15, 2021](https://www.reddit.com/r/churning/comments/q8kerf/daily_question_thread_october_15_2021/hgsrk07/)
 - [/u/joehx on Worthless Voyage Schematics](https://www.reddit.com/r/StarTrekTimelines/comments/q8yrcx/worthless_voyage_schematics/hgsoiz1/)
 - [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqpd7l/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqoi52/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 15, 2021](https://www.reddit.com/r/financialindependence/comments/q8kfxa/daily_fi_discussion_thread_friday_october_15_2021/hgqgg4q/)
 <!-- REDDIT:END -->
