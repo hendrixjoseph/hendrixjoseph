@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When your humans haven't brought your bed in from the car so you improvise, pupper-style.](https://news.puppy-snuggles.com/9536995/when-your-humans-havent-brought-your-bed-in-from-the-car-so-you-improvise-pupper-style)
-- [Loki - A good boy.](https://news.puppy-snuggles.com/9944811/loki-a-good-boy)
-- [The best look out](https://news.puppy-snuggles.com/9834141/the-best-look-out)
-- [Limited edition dog pretzel](https://news.puppy-snuggles.com/10210642/limited-edition-dog-pretzel)
-- [A series of dog ears](https://news.puppy-snuggles.com/10492294/a-series-of-dog-ears)
+- [Protectors of the Home Office](https://news.puppy-snuggles.com/10465160/protectors-of-the-home-office)
+- [Snow dogs](https://news.puppy-snuggles.com/10518263/snow-dogs)
+- [I draw portraits of people's dogs! Just a few recent ones.](https://news.puppy-snuggles.com/10439991/i-draw-portraits-of-peoples-dogs-just-a-few-recent-ones)
+- [Halloween Pet Sitting](https://news.puppy-snuggles.com/10304621/halloween-pet-sitting)
+- [my dogs, she looks like happy](https://news.puppy-snuggles.com/7374388/my-dogs-she-looks-like-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
