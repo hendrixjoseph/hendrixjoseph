@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Protectors of the Home Office](https://news.puppy-snuggles.com/10465160/protectors-of-the-home-office)
-- [Snow dogs](https://news.puppy-snuggles.com/10518263/snow-dogs)
-- [I draw portraits of people's dogs! Just a few recent ones.](https://news.puppy-snuggles.com/10439991/i-draw-portraits-of-peoples-dogs-just-a-few-recent-ones)
-- [Halloween Pet Sitting](https://news.puppy-snuggles.com/10304621/halloween-pet-sitting)
-- [my dogs, she looks like happy](https://news.puppy-snuggles.com/7374388/my-dogs-she-looks-like-happy)
+- [Ruby is always willing to take good care of the orphan kitties](https://news.puppy-snuggles.com/10533300/ruby-is-always-willing-to-take-good-care-of-the-orphan-kitties)
+- [White fluffy puppy](https://news.puppy-snuggles.com/10285808/white-fluffy-puppy)
+- [Yeah I'm not allowed on the sofa. Gotcha.](https://news.puppy-snuggles.com/10285806/yeah-im-not-allowed-on-the-sofa-gotcha)
+- [Zita totally understands the concept of her bed.](https://news.puppy-snuggles.com/5302077/zita-totally-understands-the-concept-of-her-bed)
+- [Advice!! My dog is suddenly aggressive. What do I do?](https://news.puppy-snuggles.com/10456091/advice-my-dog-is-suddenly-aggressive-what-do-i-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
