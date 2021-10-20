@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ruby is always willing to take good care of the orphan kitties](https://news.puppy-snuggles.com/10533300/ruby-is-always-willing-to-take-good-care-of-the-orphan-kitties)
-- [White fluffy puppy](https://news.puppy-snuggles.com/10285808/white-fluffy-puppy)
-- [Yeah I'm not allowed on the sofa. Gotcha.](https://news.puppy-snuggles.com/10285806/yeah-im-not-allowed-on-the-sofa-gotcha)
-- [Zita totally understands the concept of her bed.](https://news.puppy-snuggles.com/5302077/zita-totally-understands-the-concept-of-her-bed)
-- [Advice!! My dog is suddenly aggressive. What do I do?](https://news.puppy-snuggles.com/10456091/advice-my-dog-is-suddenly-aggressive-what-do-i-do)
+- [Maybel's 14 and blind but she still has the spirit of a puppy.](https://news.puppy-snuggles.com/9193910/maybels-14-and-blind-but-she-still-has-the-spirit-of-a-puppy)
+- [Someone else posted their dog named Lilly so I felt I should share some pics of my beautiful pup also named Lilly ❤️](https://news.puppy-snuggles.com/10525779/someone-else-posted-their-dog-named-lilly-so-i-felt-i-should-share-some-pics-of-my-beautiful-pup-also-named-lilly)
+- [God, my dog is too cute](https://news.puppy-snuggles.com/10576487/god-my-dog-is-too-cute)
+- [My dog is not cute at all](https://news.puppy-snuggles.com/10576486/my-dog-is-not-cute-at-all)
+- [smile everyone (not my photo)](https://news.puppy-snuggles.com/10576484/smile-everyone-not-my-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
