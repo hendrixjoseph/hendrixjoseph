@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pet dog, daisy! Does anyone know what breed she is? We cant tell lol](https://news.puppy-snuggles.com/10611917/my-pet-dog-daisy-does-anyone-know-what-breed-she-is-we-cant-tell-lol)
-- [Big brothers were jealous of her sweater. Now they all have one](https://news.puppy-snuggles.com/10621693/big-brothers-were-jealous-of-her-sweater-now-they-all-have-one)
-- [Mr. Policeman, stop this car! Three in a seat, no seat belts, pungent coffee smell, too small car...](https://news.puppy-snuggles.com/10576482/mr-policeman-stop-this-car-three-in-a-seat-no-seat-belts-pungent-coffee-smell-too-small-car)
-- [Got a good shot of my girl Nala yesterday.](https://news.puppy-snuggles.com/10611920/got-a-good-shot-of-my-girl-nala-yesterday)
-- [I tell you what. I am all good inside.](https://news.puppy-snuggles.com/10611919/i-tell-you-what-i-am-all-good-inside)
+- [They were sharing so well that I thought I should too!](https://news.puppy-snuggles.com/10647676/they-were-sharing-so-well-that-i-thought-i-should-too)
+- [Igor wants all of the snacks](https://news.puppy-snuggles.com/10647675/igor-wants-all-of-the-snacks)
+- [Prudence is ready for autumn and cuddles](https://news.puppy-snuggles.com/10647674/prudence-is-ready-for-autumn-and-cuddles)
+- [This chimken doesn’t taste quite right…](https://news.puppy-snuggles.com/10647673/this-chimken-doesnt-taste-quite-right)
+- [Vicious dog murders baby sheep](https://news.puppy-snuggles.com/5454400/vicious-dog-murders-baby-sheep)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
