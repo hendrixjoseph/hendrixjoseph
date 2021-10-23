@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [They were sharing so well that I thought I should too!](https://news.puppy-snuggles.com/10647676/they-were-sharing-so-well-that-i-thought-i-should-too)
-- [Igor wants all of the snacks](https://news.puppy-snuggles.com/10647675/igor-wants-all-of-the-snacks)
-- [Prudence is ready for autumn and cuddles](https://news.puppy-snuggles.com/10647674/prudence-is-ready-for-autumn-and-cuddles)
-- [This chimken doesn’t taste quite right…](https://news.puppy-snuggles.com/10647673/this-chimken-doesnt-taste-quite-right)
-- [Vicious dog murders baby sheep](https://news.puppy-snuggles.com/5454400/vicious-dog-murders-baby-sheep)
+- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
+- [Just adopted this good boy today. I love him so much already!](https://news.puppy-snuggles.com/7416687/just-adopted-this-good-boy-today-i-love-him-so-much-already)
+- [Meet my puppy Bruno :)](https://news.puppy-snuggles.com/7987120/meet-my-puppy-bruno)
+- [Mr Bruno 🐶](https://news.puppy-snuggles.com/10682667/mr-bruno)
+- [He's almost 2!](https://news.puppy-snuggles.com/10682666/hes-almost-2)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
