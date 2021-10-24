@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
-- [Just adopted this good boy today. I love him so much already!](https://news.puppy-snuggles.com/7416687/just-adopted-this-good-boy-today-i-love-him-so-much-already)
-- [Meet my puppy Bruno :)](https://news.puppy-snuggles.com/7987120/meet-my-puppy-bruno)
-- [Mr Bruno 🐶](https://news.puppy-snuggles.com/10682667/mr-bruno)
-- [He's almost 2!](https://news.puppy-snuggles.com/10682666/hes-almost-2)
+- [I’ve never had a dog as photogenic as this little guy and can’t help but share.](https://news.puppy-snuggles.com/8614405/ive-never-had-a-dog-as-photogenic-as-this-little-guy-and-cant-help-but-share)
+- [Is she the only one who sleeps like this ??](https://news.puppy-snuggles.com/10713149/is-she-the-only-one-who-sleeps-like-this)
+- [This is my Zoey girl. She is 13 yrs old and is what keeps me sane :)](https://news.puppy-snuggles.com/10713148/this-is-my-zoey-girl-she-is-13-yrs-old-and-is-what-keeps-me-sane)
+- [A closeup of my good girl!](https://news.puppy-snuggles.com/10713147/a-closeup-of-my-good-girl)
+- [HEY GUYS,THIS IS MY DOG'S SMALL EYES FRIEND!!!!](https://news.puppy-snuggles.com/10713146/hey-guysthis-is-my-dogs-small-eyes-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
