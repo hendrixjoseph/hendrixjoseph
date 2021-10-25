@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ve never had a dog as photogenic as this little guy and can’t help but share.](https://news.puppy-snuggles.com/8614405/ive-never-had-a-dog-as-photogenic-as-this-little-guy-and-cant-help-but-share)
-- [Is she the only one who sleeps like this ??](https://news.puppy-snuggles.com/10713149/is-she-the-only-one-who-sleeps-like-this)
-- [This is my Zoey girl. She is 13 yrs old and is what keeps me sane :)](https://news.puppy-snuggles.com/10713148/this-is-my-zoey-girl-she-is-13-yrs-old-and-is-what-keeps-me-sane)
-- [A closeup of my good girl!](https://news.puppy-snuggles.com/10713147/a-closeup-of-my-good-girl)
-- [HEY GUYS,THIS IS MY DOG'S SMALL EYES FRIEND!!!!](https://news.puppy-snuggles.com/10713146/hey-guysthis-is-my-dogs-small-eyes-friend)
+- [Just adopted Jenny two days ago. I think she’s settling in just fine.](https://news.puppy-snuggles.com/7897436/just-adopted-jenny-two-days-ago-i-think-shes-settling-in-just-fine)
+- [Bad dog](https://news.puppy-snuggles.com/10719863/bad-dog)
+- [Ball playing time with Sully](https://news.puppy-snuggles.com/10738884/ball-playing-time-with-sully)
+- [Loki just had his first birthday 🎂](https://news.puppy-snuggles.com/10738883/loki-just-had-his-first-birthday)
+- [Our newest friend arrives May 5!](https://news.puppy-snuggles.com/5598749/our-newest-friend-arrives-may-5)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
