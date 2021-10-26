@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just adopted Jenny two days ago. I think she’s settling in just fine.](https://news.puppy-snuggles.com/7897436/just-adopted-jenny-two-days-ago-i-think-shes-settling-in-just-fine)
-- [Bad dog](https://news.puppy-snuggles.com/10719863/bad-dog)
-- [Ball playing time with Sully](https://news.puppy-snuggles.com/10738884/ball-playing-time-with-sully)
-- [Loki just had his first birthday 🎂](https://news.puppy-snuggles.com/10738883/loki-just-had-his-first-birthday)
-- [Our newest friend arrives May 5!](https://news.puppy-snuggles.com/5598749/our-newest-friend-arrives-may-5)
+- [The Whoopsie Face…](https://news.puppy-snuggles.com/10745363/the-whoopsie-face)
+- [Ears big enough to take off😁](https://news.puppy-snuggles.com/10767732/ears-big-enough-to-take-off)
+- [Daisy told me to “Add this one to her modeling portfolio.” I explained that the lighting isn’t great and the background is messy. “Then post it on Reddit.” So here ya go.](https://news.puppy-snuggles.com/10767731/daisy-told-me-to-add-this-one-to-her-modeling-portfolio-i-explained-that-the-lighting-isnt-great-and-the-background-is-messy-then-post-it-on-reddit-so-here-ya-go)
+- [Snapped a photo of my dog looking absolutely jacked and regal yesterday...](https://news.puppy-snuggles.com/10767730/snapped-a-photo-of-my-dog-looking-absolutely-jacked-and-regal-yesterday)
+- [Someone in this picture just got adopted into the House of Cheesy Smiles. Welcome, Luna!](https://news.puppy-snuggles.com/10759234/someone-in-this-picture-just-got-adopted-into-the-house-of-cheesy-smiles-welcome-luna)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
