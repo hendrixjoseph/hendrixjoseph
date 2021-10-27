@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The Whoopsie Face…](https://news.puppy-snuggles.com/10745363/the-whoopsie-face)
-- [Ears big enough to take off😁](https://news.puppy-snuggles.com/10767732/ears-big-enough-to-take-off)
-- [Daisy told me to “Add this one to her modeling portfolio.” I explained that the lighting isn’t great and the background is messy. “Then post it on Reddit.” So here ya go.](https://news.puppy-snuggles.com/10767731/daisy-told-me-to-add-this-one-to-her-modeling-portfolio-i-explained-that-the-lighting-isnt-great-and-the-background-is-messy-then-post-it-on-reddit-so-here-ya-go)
-- [Snapped a photo of my dog looking absolutely jacked and regal yesterday...](https://news.puppy-snuggles.com/10767730/snapped-a-photo-of-my-dog-looking-absolutely-jacked-and-regal-yesterday)
-- [Someone in this picture just got adopted into the House of Cheesy Smiles. Welcome, Luna!](https://news.puppy-snuggles.com/10759234/someone-in-this-picture-just-got-adopted-into-the-house-of-cheesy-smiles-welcome-luna)
+- [My chow chows :)](https://news.puppy-snuggles.com/10803041/my-chow-chows)
+- [My dawgs gone hyper](https://news.puppy-snuggles.com/10803043/my-dawgs-gone-hyper)
+- ['Your package has been delivered over the side gate'](https://news.puppy-snuggles.com/10803042/your-package-has-been-delivered-over-the-side-gate)
+- [Big smile](https://news.puppy-snuggles.com/6012281/big-smile)
+- [Poppy after her very first haircut 😊](https://news.puppy-snuggles.com/10803045/poppy-after-her-very-first-haircut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
