@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My chow chows :)](https://news.puppy-snuggles.com/10803041/my-chow-chows)
-- [My dawgs gone hyper](https://news.puppy-snuggles.com/10803043/my-dawgs-gone-hyper)
-- ['Your package has been delivered over the side gate'](https://news.puppy-snuggles.com/10803042/your-package-has-been-delivered-over-the-side-gate)
-- [Big smile](https://news.puppy-snuggles.com/6012281/big-smile)
-- [Poppy after her very first haircut 😊](https://news.puppy-snuggles.com/10803045/poppy-after-her-very-first-haircut)
+- [Sorry, I can only try not to laugh. A friend's dog.](https://news.puppy-snuggles.com/10838841/sorry-i-can-only-try-not-to-laugh-a-friends-dog)
+- [A very handsome halloweenie boi](https://news.puppy-snuggles.com/10838840/a-very-handsome-halloweenie-boi)
+- [Enjoying the Last Day of Autumn](https://news.puppy-snuggles.com/10838839/enjoying-the-last-day-of-autumn)
+- [These two images describe the two sides of my dog💀](https://news.puppy-snuggles.com/10838838/these-two-images-describe-the-two-sides-of-my-dog)
+- [The best workout partner](https://news.puppy-snuggles.com/10838837/the-best-workout-partner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
