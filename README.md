@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sorry, I can only try not to laugh. A friend's dog.](https://news.puppy-snuggles.com/10838841/sorry-i-can-only-try-not-to-laugh-a-friends-dog)
-- [A very handsome halloweenie boi](https://news.puppy-snuggles.com/10838840/a-very-handsome-halloweenie-boi)
-- [Enjoying the Last Day of Autumn](https://news.puppy-snuggles.com/10838839/enjoying-the-last-day-of-autumn)
-- [These two images describe the two sides of my dog💀](https://news.puppy-snuggles.com/10838838/these-two-images-describe-the-two-sides-of-my-dog)
-- [The best workout partner](https://news.puppy-snuggles.com/10838837/the-best-workout-partner)
+- [Nothing like bight sun and a car ride to start the day.](https://news.puppy-snuggles.com/10872110/nothing-like-bight-sun-and-a-car-ride-to-start-the-day)
+- [Baby Dogs](https://news.puppy-snuggles.com/10273237/baby-dogs)
+- [It’s my 1st cake day. I’m no longer a puppysmile, but here’s a compilation of my smiles that has my momma in tears. Fear not frends - we are all, and will always be, pups at heart.](https://news.puppy-snuggles.com/7951908/its-my-1st-cake-day-im-no-longer-a-puppysmile-but-heres-a-compilation-of-my-smiles-that-has-my-momma-in-tears-fear-not-frends-we-are-all-and-will-always-be-pups-at-heart)
+- [The Guest of Honor in my wedding](https://news.puppy-snuggles.com/10872108/the-guest-of-honor-in-my-wedding)
+- [Cute emoji LOL](https://news.puppy-snuggles.com/10872114/cute-emoji-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
