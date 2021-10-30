@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nothing like bight sun and a car ride to start the day.](https://news.puppy-snuggles.com/10872110/nothing-like-bight-sun-and-a-car-ride-to-start-the-day)
-- [Baby Dogs](https://news.puppy-snuggles.com/10273237/baby-dogs)
-- [It’s my 1st cake day. I’m no longer a puppysmile, but here’s a compilation of my smiles that has my momma in tears. Fear not frends - we are all, and will always be, pups at heart.](https://news.puppy-snuggles.com/7951908/its-my-1st-cake-day-im-no-longer-a-puppysmile-but-heres-a-compilation-of-my-smiles-that-has-my-momma-in-tears-fear-not-frends-we-are-all-and-will-always-be-pups-at-heart)
-- [The Guest of Honor in my wedding](https://news.puppy-snuggles.com/10872108/the-guest-of-honor-in-my-wedding)
-- [Cute emoji LOL](https://news.puppy-snuggles.com/10872114/cute-emoji-lol)
+- [This is such a best one that I could have to show my love of Dogs](https://news.puppy-snuggles.com/10856211/this-is-such-a-best-one-that-i-could-have-to-show-my-love-of-dogs)
+- [Have a Mlem](https://news.puppy-snuggles.com/10872113/have-a-mlem)
+- [Job decription professional zoomer](https://news.puppy-snuggles.com/8773927/job-decription-professional-zoomer)
+- [What an interesting boy!](https://news.puppy-snuggles.com/8030978/what-an-interesting-boy)
+- [Hey y’all. This is a tribute to my angel Pepper. Pepper passed away 2 weeks ago but i will forever remember his beautiful smile! It was only fair that the rest of the world got to see my angel. ❤️](https://news.puppy-snuggles.com/10847944/hey-yall-this-is-a-tribute-to-my-angel-pepper-pepper-passed-away-2-weeks-ago-but-i-will-forever-remember-his-beautiful-smile-it-was-only-fair-that-the-rest-of-the-world-got-to-see-my-angel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
