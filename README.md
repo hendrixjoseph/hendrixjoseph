@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is such a best one that I could have to show my love of Dogs](https://news.puppy-snuggles.com/10856211/this-is-such-a-best-one-that-i-could-have-to-show-my-love-of-dogs)
-- [Have a Mlem](https://news.puppy-snuggles.com/10872113/have-a-mlem)
-- [Job decription professional zoomer](https://news.puppy-snuggles.com/8773927/job-decription-professional-zoomer)
-- [What an interesting boy!](https://news.puppy-snuggles.com/8030978/what-an-interesting-boy)
-- [Hey y’all. This is a tribute to my angel Pepper. Pepper passed away 2 weeks ago but i will forever remember his beautiful smile! It was only fair that the rest of the world got to see my angel. ❤️](https://news.puppy-snuggles.com/10847944/hey-yall-this-is-a-tribute-to-my-angel-pepper-pepper-passed-away-2-weeks-ago-but-i-will-forever-remember-his-beautiful-smile-it-was-only-fair-that-the-rest-of-the-world-got-to-see-my-angel)
+- [Take the baby out for a walk in your spare time](https://news.puppy-snuggles.com/10421844/take-the-baby-out-for-a-walk-in-your-spare-time)
+- [Can anyone help identify my puppy's breed?](https://news.puppy-snuggles.com/10936403/can-anyone-help-identify-my-puppys-breed)
+- [My 15 year old girl is crossing the rainbow bridge today. We got Emma (below) in 2006 when our other girl Sophie was getting old. Today is the first day of my family not having a dog since January 1996.](https://news.puppy-snuggles.com/10881110/my-15-year-old-girl-is-crossing-the-rainbow-bridge-today-we-got-emma-below-in-2006-when-our-other-girl-sophie-was-getting-old-today-is-the-first-day-of-my-family-not-having-a-dog-since-january-1996)
+- [Hiking with my sweet dog!](https://news.puppy-snuggles.com/10936404/hiking-with-my-sweet-dog)
+- [Hollywooof](https://news.puppy-snuggles.com/10936402/hollywooof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
