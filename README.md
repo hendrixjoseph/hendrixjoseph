@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Take the baby out for a walk in your spare time](https://news.puppy-snuggles.com/10421844/take-the-baby-out-for-a-walk-in-your-spare-time)
-- [Can anyone help identify my puppy's breed?](https://news.puppy-snuggles.com/10936403/can-anyone-help-identify-my-puppys-breed)
-- [My 15 year old girl is crossing the rainbow bridge today. We got Emma (below) in 2006 when our other girl Sophie was getting old. Today is the first day of my family not having a dog since January 1996.](https://news.puppy-snuggles.com/10881110/my-15-year-old-girl-is-crossing-the-rainbow-bridge-today-we-got-emma-below-in-2006-when-our-other-girl-sophie-was-getting-old-today-is-the-first-day-of-my-family-not-having-a-dog-since-january-1996)
-- [Hiking with my sweet dog!](https://news.puppy-snuggles.com/10936404/hiking-with-my-sweet-dog)
-- [Hollywooof](https://news.puppy-snuggles.com/10936402/hollywooof)
+- [Brin has always had that Wolfy look to her](https://news.puppy-snuggles.com/4120712/brin-has-always-had-that-wolfy-look-to-her)
+- [Timo says ,,Try to smile a bit, even if some days are (a lot) harder than the others.,, 🤍](https://news.puppy-snuggles.com/10961894/timo-says-try-to-smile-a-bit-even-if-some-days-are-a-lot-harder-than-the-others)
+- [Help with breed type? I just rescued this puppy from the pound and I was curious to what breed she might be because nobody seems sure.](https://news.puppy-snuggles.com/10961893/help-with-breed-type-i-just-rescued-this-puppy-from-the-pound-and-i-was-curious-to-what-breed-she-might-be-because-nobody-seems-sure)
+- [Dog pj](https://news.puppy-snuggles.com/10961892/dog-pj)
+- [The lady we got her from says she’s a Pyrenees and Aussie mix.. but everyone else is saying Stabyhoun Spaniel mix 😅 Help? (We will eventually get her a full DNA test ran but for now just wondering.)](https://news.puppy-snuggles.com/10961891/the-lady-we-got-her-from-says-shes-a-pyrenees-and-aussie-mix-but-everyone-else-is-saying-stabyhoun-spaniel-mix-help-we-will-eventually-get-her-a-full-dna-test-ran-but-for-now-just-wondering)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
