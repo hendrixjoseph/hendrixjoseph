@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ellie enjoying the fall sun.](https://news.puppy-snuggles.com/10992496/ellie-enjoying-the-fall-sun)
-- [Hot Doggo eyes](https://news.puppy-snuggles.com/10992495/hot-doggo-eyes)
-- [The luckiest shot I’ve ever taken!](https://news.puppy-snuggles.com/7310193/the-luckiest-shot-ive-ever-taken)
-- [Duncan is 2!](https://news.puppy-snuggles.com/10992491/duncan-is-2)
-- [This is Aldo a 12 Werk old chesapeake bay retriever. Look how cute He is](https://news.puppy-snuggles.com/9253318/this-is-aldo-a-12-werk-old-chesapeake-bay-retriever-look-how-cute-he-is)
+- [We said goodbye to my mom’s dog Sadie this week. She meant the world to us and I just wanted to share her story.](https://news.puppy-snuggles.com/11018848/we-said-goodbye-to-my-moms-dog-sadie-this-week-she-meant-the-world-to-us-and-i-just-wanted-to-share-her-story)
+- [Don't touch my puppies! I am watching you Mister.](https://news.puppy-snuggles.com/11028468/dont-touch-my-puppies-i-am-watching-you-mister)
+- [Louis wants to wish everyone a happy and healthy day 💙☺️](https://news.puppy-snuggles.com/11028467/louis-wants-to-wish-everyone-a-happy-and-healthy-day)
+- [Mackenzie was Red Riding Hood’s grandma/the wolf for Halloween!](https://news.puppy-snuggles.com/11028466/mackenzie-was-red-riding-hoods-grandmathe-wolf-for-halloween)
+- [Sleep after play](https://news.puppy-snuggles.com/10038941/sleep-after-play)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
