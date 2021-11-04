@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We said goodbye to my mom’s dog Sadie this week. She meant the world to us and I just wanted to share her story.](https://news.puppy-snuggles.com/11018848/we-said-goodbye-to-my-moms-dog-sadie-this-week-she-meant-the-world-to-us-and-i-just-wanted-to-share-her-story)
-- [Don't touch my puppies! I am watching you Mister.](https://news.puppy-snuggles.com/11028468/dont-touch-my-puppies-i-am-watching-you-mister)
-- [Louis wants to wish everyone a happy and healthy day 💙☺️](https://news.puppy-snuggles.com/11028467/louis-wants-to-wish-everyone-a-happy-and-healthy-day)
-- [Mackenzie was Red Riding Hood’s grandma/the wolf for Halloween!](https://news.puppy-snuggles.com/11028466/mackenzie-was-red-riding-hoods-grandmathe-wolf-for-halloween)
-- [Sleep after play](https://news.puppy-snuggles.com/10038941/sleep-after-play)
+- [Theo loves his new bowl set up. Now he has dinner with a view.](https://news.puppy-snuggles.com/7611007/theo-loves-his-new-bowl-set-up-now-he-has-dinner-with-a-view)
+- [that look](https://news.puppy-snuggles.com/11064919/that-look)
+- [More of Ash!](https://news.puppy-snuggles.com/11064918/more-of-ash)
+- [The look of “i’m hiding my bone from you”](https://news.puppy-snuggles.com/11064917/the-look-of-im-hiding-my-bone-from-you)
+- [He’s so cute 🥰](https://news.puppy-snuggles.com/11064916/hes-so-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
