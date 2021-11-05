@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Theo loves his new bowl set up. Now he has dinner with a view.](https://news.puppy-snuggles.com/7611007/theo-loves-his-new-bowl-set-up-now-he-has-dinner-with-a-view)
-- [that look](https://news.puppy-snuggles.com/11064919/that-look)
-- [More of Ash!](https://news.puppy-snuggles.com/11064918/more-of-ash)
-- [The look of “i’m hiding my bone from you”](https://news.puppy-snuggles.com/11064917/the-look-of-im-hiding-my-bone-from-you)
-- [He’s so cute 🥰](https://news.puppy-snuggles.com/11064916/hes-so-cute)
+- [Meet Honey! I don’t think I’ve ever been as relaxed as she looks in this picture!](https://news.puppy-snuggles.com/11098746/meet-honey-i-dont-think-ive-ever-been-as-relaxed-as-she-looks-in-this-picture)
+- [When You Have No Plans For The Rest Of The Day](https://news.puppy-snuggles.com/11098747/when-you-have-no-plans-for-the-rest-of-the-day)
+- [This is Boomer, living his best life!](https://news.puppy-snuggles.com/4645688/this-is-boomer-living-his-best-life)
+- [If everyone can say a prayer for my boy Bentley (on the left) as he goes into week 5 of chemotherapy battling lymphoma! Winston(on the right) is Bentleys son!](https://news.puppy-snuggles.com/10058191/if-everyone-can-say-a-prayer-for-my-boy-bentley-on-the-left-as-he-goes-into-week-5-of-chemotherapy-battling-lymphoma-winstonon-the-right-is-bentleys-son)
+- [Say hi to Jay-Jay, the world’s dumbest yet happiest German Shepherd lol. He was recently diagnosed with lymphoma so asking for prayers.](https://news.puppy-snuggles.com/9435579/say-hi-to-jay-jay-the-worlds-dumbest-yet-happiest-german-shepherd-lol-he-was-recently-diagnosed-with-lymphoma-so-asking-for-prayers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
