@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Honey! I don’t think I’ve ever been as relaxed as she looks in this picture!](https://news.puppy-snuggles.com/11098746/meet-honey-i-dont-think-ive-ever-been-as-relaxed-as-she-looks-in-this-picture)
-- [When You Have No Plans For The Rest Of The Day](https://news.puppy-snuggles.com/11098747/when-you-have-no-plans-for-the-rest-of-the-day)
-- [This is Boomer, living his best life!](https://news.puppy-snuggles.com/4645688/this-is-boomer-living-his-best-life)
-- [If everyone can say a prayer for my boy Bentley (on the left) as he goes into week 5 of chemotherapy battling lymphoma! Winston(on the right) is Bentleys son!](https://news.puppy-snuggles.com/10058191/if-everyone-can-say-a-prayer-for-my-boy-bentley-on-the-left-as-he-goes-into-week-5-of-chemotherapy-battling-lymphoma-winstonon-the-right-is-bentleys-son)
-- [Say hi to Jay-Jay, the world’s dumbest yet happiest German Shepherd lol. He was recently diagnosed with lymphoma so asking for prayers.](https://news.puppy-snuggles.com/9435579/say-hi-to-jay-jay-the-worlds-dumbest-yet-happiest-german-shepherd-lol-he-was-recently-diagnosed-with-lymphoma-so-asking-for-prayers)
+- [Tank is excited for his first camping trip!](https://news.puppy-snuggles.com/6975367/tank-is-excited-for-his-first-camping-trip)
+- [Maybe the best picture I've ever taken of a dog.](https://news.puppy-snuggles.com/11133825/maybe-the-best-picture-ive-ever-taken-of-a-dog)
+- [I lost Jack, my best friend of 9 years, yesterday. Those were the happiest years. R.I.P. buddy. I miss you](https://news.puppy-snuggles.com/11124447/i-lost-jack-my-best-friend-of-9-years-yesterday-those-were-the-happiest-years-rip-buddy-i-miss-you)
+- [All you need is momentum.](https://news.puppy-snuggles.com/11116423/all-you-need-is-momentum)
+- [We have a 4th running around somewhere. The big boys know that she is what we are waiting for. Our little laying down is cool with whatever!](https://news.puppy-snuggles.com/11133827/we-have-a-4th-running-around-somewhere-the-big-boys-know-that-she-is-what-we-are-waiting-for-our-little-laying-down-is-cool-with-whatever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
