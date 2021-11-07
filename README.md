@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tank is excited for his first camping trip!](https://news.puppy-snuggles.com/6975367/tank-is-excited-for-his-first-camping-trip)
-- [Maybe the best picture I've ever taken of a dog.](https://news.puppy-snuggles.com/11133825/maybe-the-best-picture-ive-ever-taken-of-a-dog)
-- [I lost Jack, my best friend of 9 years, yesterday. Those were the happiest years. R.I.P. buddy. I miss you](https://news.puppy-snuggles.com/11124447/i-lost-jack-my-best-friend-of-9-years-yesterday-those-were-the-happiest-years-rip-buddy-i-miss-you)
-- [All you need is momentum.](https://news.puppy-snuggles.com/11116423/all-you-need-is-momentum)
-- [We have a 4th running around somewhere. The big boys know that she is what we are waiting for. Our little laying down is cool with whatever!](https://news.puppy-snuggles.com/11133827/we-have-a-4th-running-around-somewhere-the-big-boys-know-that-she-is-what-we-are-waiting-for-our-little-laying-down-is-cool-with-whatever)
+- [I am hungry give me food!](https://news.puppy-snuggles.com/11133820/i-am-hungry-give-me-food)
+- [She lost a leg to cancer 2 weeks ago and is milking it for all its worth in treats. Clever girl.](https://news.puppy-snuggles.com/7273537/she-lost-a-leg-to-cancer-2-weeks-ago-and-is-milking-it-for-all-its-worth-in-treats-clever-girl)
+- [Who is like this right now?](https://news.puppy-snuggles.com/11157055/who-is-like-this-right-now)
+- [laika](https://news.puppy-snuggles.com/11163989/laika)
+- [Cute little suckling](https://news.puppy-snuggles.com/11163988/cute-little-suckling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
