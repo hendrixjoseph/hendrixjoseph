@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I am hungry give me food!](https://news.puppy-snuggles.com/11133820/i-am-hungry-give-me-food)
-- [She lost a leg to cancer 2 weeks ago and is milking it for all its worth in treats. Clever girl.](https://news.puppy-snuggles.com/7273537/she-lost-a-leg-to-cancer-2-weeks-ago-and-is-milking-it-for-all-its-worth-in-treats-clever-girl)
-- [Who is like this right now?](https://news.puppy-snuggles.com/11157055/who-is-like-this-right-now)
-- [laika](https://news.puppy-snuggles.com/11163989/laika)
-- [Cute little suckling](https://news.puppy-snuggles.com/11163988/cute-little-suckling)
+- [Finally have my forever human after almost 4 years!](https://news.puppy-snuggles.com/3562119/finally-have-my-forever-human-after-almost-4-years)
+- [My friend found a puppy that no one has claimed and now I’m keeping him.](https://news.puppy-snuggles.com/9263018/my-friend-found-a-puppy-that-no-one-has-claimed-and-now-im-keeping-him)
+- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
+- [She is so gorgeous](https://news.puppy-snuggles.com/11157054/she-is-so-gorgeous)
+- [Can’t believe I’ve had my handsome little doggo for just over a year now 🐶🐾](https://news.puppy-snuggles.com/11157053/cant-believe-ive-had-my-handsome-little-doggo-for-just-over-a-year-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
