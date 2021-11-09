@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Finally have my forever human after almost 4 years!](https://news.puppy-snuggles.com/3562119/finally-have-my-forever-human-after-almost-4-years)
-- [My friend found a puppy that no one has claimed and now I’m keeping him.](https://news.puppy-snuggles.com/9263018/my-friend-found-a-puppy-that-no-one-has-claimed-and-now-im-keeping-him)
-- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
-- [She is so gorgeous](https://news.puppy-snuggles.com/11157054/she-is-so-gorgeous)
-- [Can’t believe I’ve had my handsome little doggo for just over a year now 🐶🐾](https://news.puppy-snuggles.com/11157053/cant-believe-ive-had-my-handsome-little-doggo-for-just-over-a-year-now)
+- [Mila](https://news.puppy-snuggles.com/11219331/mila)
+- [Taking home a new family member :&rpar;](https://news.puppy-snuggles.com/11108449/taking-home-a-new-family-member)
+- [Foreman checking in to see why project is behind schedule and over-budget!](https://news.puppy-snuggles.com/10906682/foreman-checking-in-to-see-why-project-is-behind-schedule-and-over-budget)
+- [Pretty rainbow&#39;s](https://news.puppy-snuggles.com/8274677/pretty-rainbows)
+- [my baby kim! if you already seen some of this pics is because i can&#39;t log in anymore in my old account but it&#39;s always my dog!](https://news.puppy-snuggles.com/11219333/my-baby-kim-if-you-already-seen-some-of-this-pics-is-because-i-cant-log-in-anymore-in-my-old-account-but-its-always-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
