@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mila](https://news.puppy-snuggles.com/11219331/mila)
-- [Taking home a new family member :&rpar;](https://news.puppy-snuggles.com/11108449/taking-home-a-new-family-member)
-- [Foreman checking in to see why project is behind schedule and over-budget!](https://news.puppy-snuggles.com/10906682/foreman-checking-in-to-see-why-project-is-behind-schedule-and-over-budget)
-- [Pretty rainbow&#39;s](https://news.puppy-snuggles.com/8274677/pretty-rainbows)
-- [my baby kim! if you already seen some of this pics is because i can&#39;t log in anymore in my old account but it&#39;s always my dog!](https://news.puppy-snuggles.com/11219333/my-baby-kim-if-you-already-seen-some-of-this-pics-is-because-i-cant-log-in-anymore-in-my-old-account-but-its-always-my-dog)
+- [Sam last day on this earth is today. She lived a great 14 years full of love. She is ready to be with her best friend Sarah &lpar;cat&rpar;. Being a part of this world hurts but it will no longer. Please think of her today so it can help guide her way to the other side.](https://news.puppy-snuggles.com/7701290/sam-last-day-on-this-earth-is-today-she-lived-a-great-14-years-full-of-love-she-is-ready-to-be-with-her-best-friend-sarah-cat-being-a-part-of-this-world-hurts-but-it-will-no-longer-please-think-of-her-today-so-it-can-help-guide-her-way-to-the-other-side)
+- [My pup, Huxley making both of us smile!](https://news.puppy-snuggles.com/11236683/my-pup-huxley-making-both-of-us-smile)
+- [Took this Picture of my boy Sven](https://news.puppy-snuggles.com/7599085/took-this-picture-of-my-boy-sven)
+- [Chewbarka](https://news.puppy-snuggles.com/8182945/chewbarka)
+- [Babygirl &lpar;Delilah&rpar; has a small tumor on her small intestine. The vet is going to call me with more informathin on Thursday. Please keep praying or sending all the positive vibes her way. She is such a good girl.](https://news.puppy-snuggles.com/11254036/babygirl-delilah-has-a-small-tumor-on-her-small-intestine-the-vet-is-going-to-call-me-with-more-informathin-on-thursday-please-keep-praying-or-sending-all-the-positive-vibes-her-way-she-is-such-a-good-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
