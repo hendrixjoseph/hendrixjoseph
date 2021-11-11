@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sam last day on this earth is today. She lived a great 14 years full of love. She is ready to be with her best friend Sarah &lpar;cat&rpar;. Being a part of this world hurts but it will no longer. Please think of her today so it can help guide her way to the other side.](https://news.puppy-snuggles.com/7701290/sam-last-day-on-this-earth-is-today-she-lived-a-great-14-years-full-of-love-she-is-ready-to-be-with-her-best-friend-sarah-cat-being-a-part-of-this-world-hurts-but-it-will-no-longer-please-think-of-her-today-so-it-can-help-guide-her-way-to-the-other-side)
-- [My pup, Huxley making both of us smile!](https://news.puppy-snuggles.com/11236683/my-pup-huxley-making-both-of-us-smile)
-- [Took this Picture of my boy Sven](https://news.puppy-snuggles.com/7599085/took-this-picture-of-my-boy-sven)
-- [Chewbarka](https://news.puppy-snuggles.com/8182945/chewbarka)
-- [Babygirl &lpar;Delilah&rpar; has a small tumor on her small intestine. The vet is going to call me with more informathin on Thursday. Please keep praying or sending all the positive vibes her way. She is such a good girl.](https://news.puppy-snuggles.com/11254036/babygirl-delilah-has-a-small-tumor-on-her-small-intestine-the-vet-is-going-to-call-me-with-more-informathin-on-thursday-please-keep-praying-or-sending-all-the-positive-vibes-her-way-she-is-such-a-good-girl)
+- [Hello my friends, how are you?](https://news.puppy-snuggles.com/10045116/hello-my-friends-how-are-you)
+- [dad says. this is a very important. and famous place. i just know. that i smell. chicharrón. 🐾 📍 Parque Poblado, Medellín, Colombia 🇨🇴](https://news.puppy-snuggles.com/11289640/dad-says-this-is-a-very-important-and-famous-place-i-just-know-that-i-smell-chicharron-parque-poblado-medellin-colombia)
+- [Khaleesi’s ears are never quite in sync](https://news.puppy-snuggles.com/11289642/khaleesis-ears-are-never-quite-in-sync)
+- [A charming young fellow!](https://news.puppy-snuggles.com/11289641/a-charming-young-fellow)
+- [My dog, Sydney, passed away on Saturday. She was a beagle terrier and was 15 years old. She had an infection called lungworm, and she was the 29th case nationwide. The infection is so rare that they haven’t even come up with a cure for it yet.](https://news.puppy-snuggles.com/11280356/my-dog-sydney-passed-away-on-saturday-she-was-a-beagle-terrier-and-was-15-years-old-she-had-an-infection-called-lungworm-and-she-was-the-29th-case-nationwide-the-infection-is-so-rare-that-they-havent-even-come-up-with-a-cure-for-it-yet)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
