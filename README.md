@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello my friends, how are you?](https://news.puppy-snuggles.com/10045116/hello-my-friends-how-are-you)
-- [dad says. this is a very important. and famous place. i just know. that i smell. chicharrón. 🐾 📍 Parque Poblado, Medellín, Colombia 🇨🇴](https://news.puppy-snuggles.com/11289640/dad-says-this-is-a-very-important-and-famous-place-i-just-know-that-i-smell-chicharron-parque-poblado-medellin-colombia)
-- [Khaleesi’s ears are never quite in sync](https://news.puppy-snuggles.com/11289642/khaleesis-ears-are-never-quite-in-sync)
+- [What cute dogs do when you kiss them](https://news.puppy-snuggles.com/7756462/what-cute-dogs-do-when-you-kiss-them)
+- [She came to apply :&rpar;](https://news.puppy-snuggles.com/9999056/she-came-to-apply)
+- [This is what I do, I sit on you.](https://news.puppy-snuggles.com/11299054/this-is-what-i-do-i-sit-on-you)
 - [A charming young fellow!](https://news.puppy-snuggles.com/11289641/a-charming-young-fellow)
-- [My dog, Sydney, passed away on Saturday. She was a beagle terrier and was 15 years old. She had an infection called lungworm, and she was the 29th case nationwide. The infection is so rare that they haven’t even come up with a cure for it yet.](https://news.puppy-snuggles.com/11280356/my-dog-sydney-passed-away-on-saturday-she-was-a-beagle-terrier-and-was-15-years-old-she-had-an-infection-called-lungworm-and-she-was-the-29th-case-nationwide-the-infection-is-so-rare-that-they-havent-even-come-up-with-a-cure-for-it-yet)
+- [9 week old Golden Retriever](https://news.puppy-snuggles.com/10032272/9-week-old-golden-retriever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
