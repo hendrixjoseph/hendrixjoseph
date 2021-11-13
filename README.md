@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What cute dogs do when you kiss them](https://news.puppy-snuggles.com/7756462/what-cute-dogs-do-when-you-kiss-them)
-- [She came to apply :&rpar;](https://news.puppy-snuggles.com/9999056/she-came-to-apply)
-- [This is what I do, I sit on you.](https://news.puppy-snuggles.com/11299054/this-is-what-i-do-i-sit-on-you)
-- [A charming young fellow!](https://news.puppy-snuggles.com/11289641/a-charming-young-fellow)
-- [9 week old Golden Retriever](https://news.puppy-snuggles.com/10032272/9-week-old-golden-retriever)
+- [It’s Ruby’s 10th birthday so we made her a &lpar;beef flavoured&rpar; cupcake!](https://news.puppy-snuggles.com/11055335/its-rubys-10th-birthday-so-we-made-her-a-beef-flavoured-cupcake)
+- [What should we name her? Not Millie &lpar;previous dog name&rpar;.](https://news.puppy-snuggles.com/9773648/what-should-we-name-her-not-millie-previous-dog-name)
+- [Pupper Door](https://news.puppy-snuggles.com/11349726/pupper-door)
+- [Traffic report: roadblocks in the area. Exit closed. &lpar;working from home hazards&rpar;](https://news.puppy-snuggles.com/11358677/traffic-report-roadblocks-in-the-area-exit-closed-working-from-home-hazards)
+- [Recovering nicely from surgery. Feeling much brighter 24h later.](https://news.puppy-snuggles.com/11358676/recovering-nicely-from-surgery-feeling-much-brighter-24h-later)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
