@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s Ruby’s 10th birthday so we made her a &lpar;beef flavoured&rpar; cupcake!](https://news.puppy-snuggles.com/11055335/its-rubys-10th-birthday-so-we-made-her-a-beef-flavoured-cupcake)
-- [What should we name her? Not Millie &lpar;previous dog name&rpar;.](https://news.puppy-snuggles.com/9773648/what-should-we-name-her-not-millie-previous-dog-name)
-- [Pupper Door](https://news.puppy-snuggles.com/11349726/pupper-door)
-- [Traffic report: roadblocks in the area. Exit closed. &lpar;working from home hazards&rpar;](https://news.puppy-snuggles.com/11358677/traffic-report-roadblocks-in-the-area-exit-closed-working-from-home-hazards)
-- [Recovering nicely from surgery. Feeling much brighter 24h later.](https://news.puppy-snuggles.com/11358676/recovering-nicely-from-surgery-feeling-much-brighter-24h-later)
+- [One of us loved selfies, the other one didn’t. I miss my sweet Lucy every day.](https://news.puppy-snuggles.com/11388065/one-of-us-loved-selfies-the-other-one-didnt-i-miss-my-sweet-lucy-every-day)
+- [He thinks he&#39;s a LION!](https://news.puppy-snuggles.com/11055341/he-thinks-hes-a-lion)
+- [What does Cooper love more than falling leaves? Eating leaves.](https://news.puppy-snuggles.com/10942867/what-does-cooper-love-more-than-falling-leaves-eating-leaves)
+- [The creation of Doge &lpar;by unknown&rpar;](https://news.puppy-snuggles.com/10525783/the-creation-of-doge-by-unknown)
+- [Baby Rafi’s Halloween Costume](https://news.puppy-snuggles.com/11010866/baby-rafis-halloween-costume)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
