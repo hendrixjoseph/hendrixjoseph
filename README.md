@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One of us loved selfies, the other one didn’t. I miss my sweet Lucy every day.](https://news.puppy-snuggles.com/11388065/one-of-us-loved-selfies-the-other-one-didnt-i-miss-my-sweet-lucy-every-day)
-- [He thinks he&#39;s a LION!](https://news.puppy-snuggles.com/11055341/he-thinks-hes-a-lion)
-- [What does Cooper love more than falling leaves? Eating leaves.](https://news.puppy-snuggles.com/10942867/what-does-cooper-love-more-than-falling-leaves-eating-leaves)
-- [The creation of Doge &lpar;by unknown&rpar;](https://news.puppy-snuggles.com/10525783/the-creation-of-doge-by-unknown)
-- [Baby Rafi’s Halloween Costume](https://news.puppy-snuggles.com/11010866/baby-rafis-halloween-costume)
+- [Does anyone get to sit on their own couch? It’s the floor for me.](https://news.puppy-snuggles.com/11413803/does-anyone-get-to-sit-on-their-own-couch-its-the-floor-for-me)
+- [Leg warmers](https://news.puppy-snuggles.com/11413801/leg-warmers)
+- [I wake up like this](https://news.puppy-snuggles.com/10430994/i-wake-up-like-this)
+- [Chunk wanted to thank everyone for their kind remarks on his pictures! He also asked me to show off the “belly rub” smile collection. He’s a derp but the goodest derp 😂🥰❤️](https://news.puppy-snuggles.com/7644262/chunk-wanted-to-thank-everyone-for-their-kind-remarks-on-his-pictures-he-also-asked-me-to-show-off-the-belly-rub-smile-collection-hes-a-derp-but-the-goodest-derp)
+- [So, did I say something??](https://news.puppy-snuggles.com/8465371/so-did-i-say-something)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
