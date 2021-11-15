@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What made you realize that most people are not very smart?](https://www.reddit.com/r/AskReddit/comments/qtnrjc/what_made_you_realize_that_most_people_are_not/hkneft4/)
+- [/u/joehx on What made you realize that most people are not very smart?](https://www.reddit.com/r/AskReddit/comments/qtnrjc/what_made_you_realize_that_most_people_are_not/hkne6ed/)
 - [Setting my Fitness Goals](https://www.reddit.com/r/u_joehx/comments/qfw8v2/setting_my_fitness_goals/)
 - [/u/joehx on I read the article about how wealthy people avoid tax by not getting employment income but loans.](https://www.reddit.com/r/financialindependence/comments/qchskm/i_read_the_article_about_how_wealthy_people_avoid/hhhhsbt/)
 - [/u/joehx on What is the stupidest thing you believed when you were child?](https://www.reddit.com/r/AskReddit/comments/q99v7k/what_is_the_stupidest_thing_you_believed_when_you/hgx8o1w/)
-- [/u/joehx on Please change your name according to our design..](https://www.reddit.com/r/ProgrammerHumor/comments/q9bfnv/please_change_your_name_according_to_our_design/hgv9c8c/)
-- [/u/joehx on Daily Question Thread - October 15, 2021](https://www.reddit.com/r/churning/comments/q8kerf/daily_question_thread_october_15_2021/hgsrk07/)
 <!-- REDDIT:END -->
