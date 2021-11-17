@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Moose loves walks](https://news.puppy-snuggles.com/11443553/moose-loves-walks)
-- [New Screensaver](https://news.puppy-snuggles.com/11443555/new-screensaver)
-- [finn cuddling with his favorite stuffed animal!](https://news.puppy-snuggles.com/7430090/finn-cuddling-with-his-favorite-stuffed-animal)
-- [Milo says “heyyyy just rollin in some dirt”](https://news.puppy-snuggles.com/11443557/milo-says-heyyyy-just-rollin-in-some-dirt)
-- [How it Started vs. How it&#39;s Going](https://news.puppy-snuggles.com/11443556/how-it-started-vs-how-its-going)
+- [Little Zoey](https://news.puppy-snuggles.com/4157871/little-zoey)
+- [My doggo being cute as heck](https://news.puppy-snuggles.com/11443551/my-doggo-being-cute-as-heck)
+- [my boy Baxter this past summer, living his best life](https://news.puppy-snuggles.com/11478089/my-boy-baxter-this-past-summer-living-his-best-life)
+- [The mother lode](https://news.puppy-snuggles.com/11452984/the-mother-lode)
+- [Sweet boy 💙](https://news.puppy-snuggles.com/10745364/sweet-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
