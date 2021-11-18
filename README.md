@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Little Zoey](https://news.puppy-snuggles.com/4157871/little-zoey)
-- [My doggo being cute as heck](https://news.puppy-snuggles.com/11443551/my-doggo-being-cute-as-heck)
-- [my boy Baxter this past summer, living his best life](https://news.puppy-snuggles.com/11478089/my-boy-baxter-this-past-summer-living-his-best-life)
-- [The mother lode](https://news.puppy-snuggles.com/11452984/the-mother-lode)
-- [Sweet boy 💙](https://news.puppy-snuggles.com/10745364/sweet-boy)
+- [Just finished this little painting of a snoozy pups :&rpar;](https://news.puppy-snuggles.com/11513321/just-finished-this-little-painting-of-a-snoozy-pups)
+- [I’m pregnant and just want to appreciate my first baby as much as I can before I have my first human baby.](https://news.puppy-snuggles.com/8477061/im-pregnant-and-just-want-to-appreciate-my-first-baby-as-much-as-i-can-before-i-have-my-first-human-baby)
+- [Does everything seem OK here?](https://news.puppy-snuggles.com/9347344/does-everything-seem-ok-here)
+- [My boy duke has been different for sometime since I traveled due to my job.. I got informed that he&#39;s been feeling so lonely and tends to fall sick . I&#39;ve been so worried after I got the news and I don&#39;t know what to do right now](https://news.puppy-snuggles.com/7681072/my-boy-duke-has-been-different-for-sometime-since-i-traveled-due-to-my-job-i-got-informed-that-hes-been-feeling-so-lonely-and-tends-to-fall-sick-ive-been-so-worried-after-i-got-the-news-and-i-dont-know-what-to-do-right-now)
+- [Missy loves when the leafs fall](https://news.puppy-snuggles.com/11513317/missy-loves-when-the-leafs-fall)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
