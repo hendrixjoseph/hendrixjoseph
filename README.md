@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on I&#39;m still in shock that this isn&#39;t photoshopped](https://www.reddit.com/r/gaming/comments/qwqk4g/im_still_in_shock_that_this_isnt_photoshopped/hl6ag7u/)
 - [/u/joehx on Weekly Self-Promotion Thread - November 17, 2021](https://www.reddit.com/r/financialindependence/comments/qvvzm0/weekly_selfpromotion_thread_november_17_2021/hkzjx2d/)
 - [/u/joehx on What made you realize that most people are not very smart?](https://www.reddit.com/r/AskReddit/comments/qtnrjc/what_made_you_realize_that_most_people_are_not/hkneft4/)
 - [/u/joehx on What made you realize that most people are not very smart?](https://www.reddit.com/r/AskReddit/comments/qtnrjc/what_made_you_realize_that_most_people_are_not/hkne6ed/)
 - [Setting my Fitness Goals](https://www.reddit.com/r/u_joehx/comments/qfw8v2/setting_my_fitness_goals/)
-- [/u/joehx on I read the article about how wealthy people avoid tax by not getting employment income but loans.](https://www.reddit.com/r/financialindependence/comments/qchskm/i_read_the_article_about_how_wealthy_people_avoid/hhhhsbt/)
 <!-- REDDIT:END -->
