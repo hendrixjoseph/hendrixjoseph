@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When my dad went outside without taking her.](https://news.puppy-snuggles.com/11341926/when-my-dad-went-outside-without-taking-her)
-- [Sumo says hi!](https://news.puppy-snuggles.com/11341924/sumo-says-hi)
-- [This pretty girl has decided our new fancy blanket are belong to her](https://news.puppy-snuggles.com/11341925/this-pretty-girl-has-decided-our-new-fancy-blanket-are-belong-to-her)
-- [The floof](https://news.puppy-snuggles.com/11349727/the-floof)
-- [Pupper Door](https://news.puppy-snuggles.com/11349726/pupper-door)
+- [This is my little queen, Luna. She surprisingly likes to dress up and even models for me. Luna looked particularly cute so I thought I&#39;d share!](https://news.puppy-snuggles.com/8203099/this-is-my-little-queen-luna-she-surprisingly-likes-to-dress-up-and-even-models-for-me-luna-looked-particularly-cute-so-i-thought-id-share)
+- [I want this job.](https://news.puppy-snuggles.com/11574518/i-want-this-job)
+- [My 20lb Neptune turns 12 today!](https://news.puppy-snuggles.com/11574517/my-20lb-neptune-turns-12-today)
+- [mind your table manners!](https://news.puppy-snuggles.com/11583650/mind-your-table-manners)
+- [Peanut fighting a hamper for his ball](https://news.puppy-snuggles.com/11583649/peanut-fighting-a-hamper-for-his-ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
