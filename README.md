@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is my little queen, Luna. She surprisingly likes to dress up and even models for me. Luna looked particularly cute so I thought I&#39;d share!](https://news.puppy-snuggles.com/8203099/this-is-my-little-queen-luna-she-surprisingly-likes-to-dress-up-and-even-models-for-me-luna-looked-particularly-cute-so-i-thought-id-share)
-- [I want this job.](https://news.puppy-snuggles.com/11574518/i-want-this-job)
-- [My 20lb Neptune turns 12 today!](https://news.puppy-snuggles.com/11574517/my-20lb-neptune-turns-12-today)
-- [mind your table manners!](https://news.puppy-snuggles.com/11583650/mind-your-table-manners)
-- [Peanut fighting a hamper for his ball](https://news.puppy-snuggles.com/11583649/peanut-fighting-a-hamper-for-his-ball)
+- [I&#39;m pretty even when I&#39;m angry ^^](https://news.puppy-snuggles.com/11606668/im-pretty-even-when-im-angry)
+- [Meet Dolly :&rpar;](https://news.puppy-snuggles.com/11606671/meet-dolly)
+- [Anyone know how to help this dry skin?? &lpar;Second picture&rpar;](https://news.puppy-snuggles.com/11606670/anyone-know-how-to-help-this-dry-skin-second-picture)
+- [It finally happened: I can no longer pick up my puppy :*&lpar;](https://news.puppy-snuggles.com/11606669/it-finally-happened-i-can-no-longer-pick-up-my-puppy)
+- [Fall pup](https://news.puppy-snuggles.com/11612761/fall-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
