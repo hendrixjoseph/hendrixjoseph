@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&#39;m pretty even when I&#39;m angry ^^](https://news.puppy-snuggles.com/11606668/im-pretty-even-when-im-angry)
-- [Meet Dolly :&rpar;](https://news.puppy-snuggles.com/11606671/meet-dolly)
-- [Anyone know how to help this dry skin?? &lpar;Second picture&rpar;](https://news.puppy-snuggles.com/11606670/anyone-know-how-to-help-this-dry-skin-second-picture)
-- [It finally happened: I can no longer pick up my puppy :*&lpar;](https://news.puppy-snuggles.com/11606669/it-finally-happened-i-can-no-longer-pick-up-my-puppy)
-- [Fall pup](https://news.puppy-snuggles.com/11612761/fall-pup)
+- [charlie on the beach!](https://news.puppy-snuggles.com/10479530/charlie-on-the-beach)
+- [Trying to charm mom into letting me play in the snow](https://news.puppy-snuggles.com/11452981/trying-to-charm-mom-into-letting-me-play-in-the-snow)
+- [I am good. Carry on driving, Ernest.](https://news.puppy-snuggles.com/11631434/i-am-good-carry-on-driving-ernest)
+- [No puppy could ever fly higher than my sweet Lucy! I miss her every day.](https://news.puppy-snuggles.com/11637769/no-puppy-could-ever-fly-higher-than-my-sweet-lucy-i-miss-her-every-day)
+- [When we found him on the side of the highway and then now](https://news.puppy-snuggles.com/8409109/when-we-found-him-on-the-side-of-the-highway-and-then-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
