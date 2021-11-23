@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [charlie on the beach!](https://news.puppy-snuggles.com/10479530/charlie-on-the-beach)
-- [Trying to charm mom into letting me play in the snow](https://news.puppy-snuggles.com/11452981/trying-to-charm-mom-into-letting-me-play-in-the-snow)
-- [I am good. Carry on driving, Ernest.](https://news.puppy-snuggles.com/11631434/i-am-good-carry-on-driving-ernest)
-- [No puppy could ever fly higher than my sweet Lucy! I miss her every day.](https://news.puppy-snuggles.com/11637769/no-puppy-could-ever-fly-higher-than-my-sweet-lucy-i-miss-her-every-day)
-- [When we found him on the side of the highway and then now](https://news.puppy-snuggles.com/8409109/when-we-found-him-on-the-side-of-the-highway-and-then-now)
+- [Chihuhua Lover](https://news.puppy-snuggles.com/11658817/chihuhua-lover)
+- [How are you?](https://news.puppy-snuggles.com/11667230/how-are-you)
+- [I recently got a 9 month old puppy that we were told they thought was a Doberman. I was just looking up pharaoh hounds and he looks identical to one. Anyone have any ideas?](https://news.puppy-snuggles.com/11658815/i-recently-got-a-9-month-old-puppy-that-we-were-told-they-thought-was-a-doberman-i-was-just-looking-up-pharaoh-hounds-and-he-looks-identical-to-one-anyone-have-any-ideas)
+- [When the dog has a new haircut](https://news.puppy-snuggles.com/11315172/when-the-dog-has-a-new-haircut)
+- [This yawn looks like a big smile](https://news.puppy-snuggles.com/11650798/this-yawn-looks-like-a-big-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
