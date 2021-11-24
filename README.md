@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chihuhua Lover](https://news.puppy-snuggles.com/11658817/chihuhua-lover)
-- [How are you?](https://news.puppy-snuggles.com/11667230/how-are-you)
-- [I recently got a 9 month old puppy that we were told they thought was a Doberman. I was just looking up pharaoh hounds and he looks identical to one. Anyone have any ideas?](https://news.puppy-snuggles.com/11658815/i-recently-got-a-9-month-old-puppy-that-we-were-told-they-thought-was-a-doberman-i-was-just-looking-up-pharaoh-hounds-and-he-looks-identical-to-one-anyone-have-any-ideas)
-- [When the dog has a new haircut](https://news.puppy-snuggles.com/11315172/when-the-dog-has-a-new-haircut)
-- [This yawn looks like a big smile](https://news.puppy-snuggles.com/11650798/this-yawn-looks-like-a-big-smile)
+- [i see it all...](https://news.puppy-snuggles.com/11691626/i-see-it-all)
+- [It’s cozy season](https://news.puppy-snuggles.com/11691625/its-cozy-season)
+- [Our na night baby 💕](https://news.puppy-snuggles.com/11701365/our-na-night-baby)
+- [My majestic Moose](https://news.puppy-snuggles.com/8329454/my-majestic-moose)
+- [We adopted this good boy today from the Wisconsin Humane Society. His name is Leon.](https://news.puppy-snuggles.com/8465368/we-adopted-this-good-boy-today-from-the-wisconsin-humane-society-his-name-is-leon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
