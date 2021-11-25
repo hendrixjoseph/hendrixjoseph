@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i see it all...](https://news.puppy-snuggles.com/11691626/i-see-it-all)
-- [It’s cozy season](https://news.puppy-snuggles.com/11691625/its-cozy-season)
-- [Our na night baby 💕](https://news.puppy-snuggles.com/11701365/our-na-night-baby)
-- [My majestic Moose](https://news.puppy-snuggles.com/8329454/my-majestic-moose)
-- [We adopted this good boy today from the Wisconsin Humane Society. His name is Leon.](https://news.puppy-snuggles.com/8465368/we-adopted-this-good-boy-today-from-the-wisconsin-humane-society-his-name-is-leon)
+- [My boyfriend has the cutest dog I’ve ever seen. Chow Chow mix](https://news.puppy-snuggles.com/11734604/my-boyfriend-has-the-cutest-dog-ive-ever-seen-chow-chow-mix)
+- [My baby boy giving me a hug](https://news.puppy-snuggles.com/11726152/my-baby-boy-giving-me-a-hug)
+- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
+- [Meet my new best friend ❤️](https://news.puppy-snuggles.com/11726151/meet-my-new-best-friend)
+- [It’s his 9th birthday, can’t imagine a life without him anymore 🥺❤️](https://news.puppy-snuggles.com/11726150/its-his-9th-birthday-cant-imagine-a-life-without-him-anymore)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
