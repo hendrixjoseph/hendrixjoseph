@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boyfriend has the cutest dog I’ve ever seen. Chow Chow mix](https://news.puppy-snuggles.com/11734604/my-boyfriend-has-the-cutest-dog-ive-ever-seen-chow-chow-mix)
-- [My baby boy giving me a hug](https://news.puppy-snuggles.com/11726152/my-baby-boy-giving-me-a-hug)
-- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
-- [Meet my new best friend ❤️](https://news.puppy-snuggles.com/11726151/meet-my-new-best-friend)
-- [It’s his 9th birthday, can’t imagine a life without him anymore 🥺❤️](https://news.puppy-snuggles.com/11726150/its-his-9th-birthday-cant-imagine-a-life-without-him-anymore)
+- [Bear the rescue beast](https://news.puppy-snuggles.com/9635484/bear-the-rescue-beast)
+- [This is my first full poodle drawing of a pretty girl. Made with pastels.](https://news.puppy-snuggles.com/10820980/this-is-my-first-full-poodle-drawing-of-a-pretty-girl-made-with-pastels)
+- [HEY GUYS,THIS IS MY DOG&#39;S SMALL EYES FRIEND!!!!](https://news.puppy-snuggles.com/10713146/hey-guysthis-is-my-dogs-small-eyes-friend)
+- [Corgi/Bulldog mix or Corgi/Pitbull mix? Was told bulldog mix when she was a puppy but she looks more like a pit mix each day.](https://news.puppy-snuggles.com/10089728/corgibulldog-mix-or-corgipitbull-mix-was-told-bulldog-mix-when-she-was-a-puppy-but-she-looks-more-like-a-pit-mix-each-day)
+- [This is what happiness looks like](https://news.puppy-snuggles.com/8790800/this-is-what-happiness-looks-like)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
