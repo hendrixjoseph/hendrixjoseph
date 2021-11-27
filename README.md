@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bear the rescue beast](https://news.puppy-snuggles.com/9635484/bear-the-rescue-beast)
-- [This is my first full poodle drawing of a pretty girl. Made with pastels.](https://news.puppy-snuggles.com/10820980/this-is-my-first-full-poodle-drawing-of-a-pretty-girl-made-with-pastels)
-- [HEY GUYS,THIS IS MY DOG&#39;S SMALL EYES FRIEND!!!!](https://news.puppy-snuggles.com/10713146/hey-guysthis-is-my-dogs-small-eyes-friend)
-- [Corgi/Bulldog mix or Corgi/Pitbull mix? Was told bulldog mix when she was a puppy but she looks more like a pit mix each day.](https://news.puppy-snuggles.com/10089728/corgibulldog-mix-or-corgipitbull-mix-was-told-bulldog-mix-when-she-was-a-puppy-but-she-looks-more-like-a-pit-mix-each-day)
-- [This is what happiness looks like](https://news.puppy-snuggles.com/8790800/this-is-what-happiness-looks-like)
+- [Chihuhua Lover](https://news.puppy-snuggles.com/11658817/chihuhua-lover)
+- [It’s almost the weekend!](https://news.puppy-snuggles.com/10872109/its-almost-the-weekend)
+- [Our sweet girl Roxie got some new shoes and wanted to show them off!](https://news.puppy-snuggles.com/7920414/our-sweet-girl-roxie-got-some-new-shoes-and-wanted-to-show-them-off)
+- [Are you awake, Dad? It&#39;s already 4 a.m.!](https://news.puppy-snuggles.com/9928401/are-you-awake-dad-its-already-4-am)
+- [My dog always looks happiest when he gets a new toy to play with](https://news.puppy-snuggles.com/11794062/my-dog-always-looks-happiest-when-he-gets-a-new-toy-to-play-with)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
