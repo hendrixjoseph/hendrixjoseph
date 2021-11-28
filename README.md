@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chihuhua Lover](https://news.puppy-snuggles.com/11658817/chihuhua-lover)
-- [It’s almost the weekend!](https://news.puppy-snuggles.com/10872109/its-almost-the-weekend)
-- [Our sweet girl Roxie got some new shoes and wanted to show them off!](https://news.puppy-snuggles.com/7920414/our-sweet-girl-roxie-got-some-new-shoes-and-wanted-to-show-them-off)
-- [Are you awake, Dad? It&#39;s already 4 a.m.!](https://news.puppy-snuggles.com/9928401/are-you-awake-dad-its-already-4-am)
-- [My dog always looks happiest when he gets a new toy to play with](https://news.puppy-snuggles.com/11794062/my-dog-always-looks-happiest-when-he-gets-a-new-toy-to-play-with)
+- [Watcha doing there?](https://news.puppy-snuggles.com/11814483/watcha-doing-there)
+- [First snow.](https://news.puppy-snuggles.com/11814481/first-snow)
+- [My parents’ two stinkers: Carly and Mr. Gibbs](https://news.puppy-snuggles.com/11814480/my-parents-two-stinkers-carly-and-mr-gibbs)
+- [I was playing Valhalla and Mickey was mesmerized.](https://news.puppy-snuggles.com/11820815/i-was-playing-valhalla-and-mickey-was-mesmerized)
+- [My baby loves his 🎾 even in rain](https://news.puppy-snuggles.com/10499207/my-baby-loves-his-even-in-rain)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
