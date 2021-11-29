@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Watcha doing there?](https://news.puppy-snuggles.com/11814483/watcha-doing-there)
-- [First snow.](https://news.puppy-snuggles.com/11814481/first-snow)
-- [My parents’ two stinkers: Carly and Mr. Gibbs](https://news.puppy-snuggles.com/11814480/my-parents-two-stinkers-carly-and-mr-gibbs)
-- [I was playing Valhalla and Mickey was mesmerized.](https://news.puppy-snuggles.com/11820815/i-was-playing-valhalla-and-mickey-was-mesmerized)
-- [My baby loves his 🎾 even in rain](https://news.puppy-snuggles.com/10499207/my-baby-loves-his-even-in-rain)
+- [almost 10 years old.🤙](https://news.puppy-snuggles.com/9814100/almost-10-years-old)
+- [Cookies](https://news.puppy-snuggles.com/11676124/cookies)
+- [Look in the corner, they even have a skunk as their shared favorite toy haha](https://news.puppy-snuggles.com/6340873/look-in-the-corner-they-even-have-a-skunk-as-their-shared-favorite-toy-haha)
+- [Chilling indoors on a hot sunny day.](https://news.puppy-snuggles.com/6012279/chilling-indoors-on-a-hot-sunny-day)
+- [Say hello to Diamond!](https://news.puppy-snuggles.com/11726154/say-hello-to-diamond)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
