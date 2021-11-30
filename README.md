@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [almost 10 years old.🤙](https://news.puppy-snuggles.com/9814100/almost-10-years-old)
-- [Cookies](https://news.puppy-snuggles.com/11676124/cookies)
-- [Look in the corner, they even have a skunk as their shared favorite toy haha](https://news.puppy-snuggles.com/6340873/look-in-the-corner-they-even-have-a-skunk-as-their-shared-favorite-toy-haha)
-- [Chilling indoors on a hot sunny day.](https://news.puppy-snuggles.com/6012279/chilling-indoors-on-a-hot-sunny-day)
-- [Say hello to Diamond!](https://news.puppy-snuggles.com/11726154/say-hello-to-diamond)
+- [Picture of the first time my doggo visited the beach. Had to lay him to rest today. :&lpar;](https://news.puppy-snuggles.com/11876309/picture-of-the-first-time-my-doggo-visited-the-beach-had-to-lay-him-to-rest-today)
+- [Watcha doing there?](https://news.puppy-snuggles.com/11814483/watcha-doing-there)
+- [His accurate fortune cookie](https://news.puppy-snuggles.com/11764426/his-accurate-fortune-cookie)
+- [Reddit meet Bruno](https://news.puppy-snuggles.com/6252921/reddit-meet-bruno)
+- [The Puppy&#39;s fitting in...](https://news.puppy-snuggles.com/11820817/the-puppys-fitting-in)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
