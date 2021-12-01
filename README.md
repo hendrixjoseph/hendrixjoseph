@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Picture of the first time my doggo visited the beach. Had to lay him to rest today. :&lpar;](https://news.puppy-snuggles.com/11876309/picture-of-the-first-time-my-doggo-visited-the-beach-had-to-lay-him-to-rest-today)
-- [Watcha doing there?](https://news.puppy-snuggles.com/11814483/watcha-doing-there)
-- [His accurate fortune cookie](https://news.puppy-snuggles.com/11764426/his-accurate-fortune-cookie)
-- [Reddit meet Bruno](https://news.puppy-snuggles.com/6252921/reddit-meet-bruno)
-- [The Puppy&#39;s fitting in...](https://news.puppy-snuggles.com/11820817/the-puppys-fitting-in)
+- [“Apollo”](https://news.puppy-snuggles.com/7354228/apollo)
+- [Dog.exe has stopped responding. You can restart the program now, or wait for a response.](https://news.puppy-snuggles.com/10396972/dogexe-has-stopped-responding-you-can-restart-the-program-now-or-wait-for-a-response)
+- [Finally got one of her smiling!](https://news.puppy-snuggles.com/11264314/finally-got-one-of-her-smiling)
+- [Timon just snoozing his way through the winter... 11/10 would rub his belly](https://news.puppy-snuggles.com/11910689/timon-just-snoozing-his-way-through-the-winter-1110-would-rub-his-belly)
+- [this is my girl Olive. I adopted her last year. her smile is kinda scary and I think she&#39;s missing some teeth, but I love her so much!](https://news.puppy-snuggles.com/11901749/this-is-my-girl-olive-i-adopted-her-last-year-her-smile-is-kinda-scary-and-i-think-shes-missing-some-teeth-but-i-love-her-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
