@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Apollo”](https://news.puppy-snuggles.com/7354228/apollo)
-- [Dog.exe has stopped responding. You can restart the program now, or wait for a response.](https://news.puppy-snuggles.com/10396972/dogexe-has-stopped-responding-you-can-restart-the-program-now-or-wait-for-a-response)
-- [Finally got one of her smiling!](https://news.puppy-snuggles.com/11264314/finally-got-one-of-her-smiling)
-- [Timon just snoozing his way through the winter... 11/10 would rub his belly](https://news.puppy-snuggles.com/11910689/timon-just-snoozing-his-way-through-the-winter-1110-would-rub-his-belly)
-- [this is my girl Olive. I adopted her last year. her smile is kinda scary and I think she&#39;s missing some teeth, but I love her so much!](https://news.puppy-snuggles.com/11901749/this-is-my-girl-olive-i-adopted-her-last-year-her-smile-is-kinda-scary-and-i-think-shes-missing-some-teeth-but-i-love-her-so-much)
+- [What if all delivery workers looked like this!!!](https://news.puppy-snuggles.com/10070239/what-if-all-delivery-workers-looked-like-this)
+- [What kind of dog is she? Used to think mal but idk anymore](https://news.puppy-snuggles.com/10371590/what-kind-of-dog-is-she-used-to-think-mal-but-idk-anymore)
+- [Welp, this happened.](https://news.puppy-snuggles.com/9694046/welp-this-happened)
+- [what are you doing?&rpar;](https://news.puppy-snuggles.com/9490063/what-are-you-doing)
+- [Today’s my dogs last day. His lung cancer got worse and spread through his eye. I’m going to miss him so much, it hurts. He’s been my best friend since I was 7. I can’t be with him, because I live far away. I love you Benji, more than you know. Keep smiling all the way over to the other side my love](https://news.puppy-snuggles.com/11945413/todays-my-dogs-last-day-his-lung-cancer-got-worse-and-spread-through-his-eye-im-going-to-miss-him-so-much-it-hurts-hes-been-my-best-friend-since-i-was-7-i-cant-be-with-him-because-i-live-far-away-i-love-you-benji-more-than-you-know-keep-smiling-all-the-way-over-to-the-other-side-my-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
