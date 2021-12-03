@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What if all delivery workers looked like this!!!](https://news.puppy-snuggles.com/10070239/what-if-all-delivery-workers-looked-like-this)
-- [What kind of dog is she? Used to think mal but idk anymore](https://news.puppy-snuggles.com/10371590/what-kind-of-dog-is-she-used-to-think-mal-but-idk-anymore)
-- [Welp, this happened.](https://news.puppy-snuggles.com/9694046/welp-this-happened)
-- [what are you doing?&rpar;](https://news.puppy-snuggles.com/9490063/what-are-you-doing)
-- [Today’s my dogs last day. His lung cancer got worse and spread through his eye. I’m going to miss him so much, it hurts. He’s been my best friend since I was 7. I can’t be with him, because I live far away. I love you Benji, more than you know. Keep smiling all the way over to the other side my love](https://news.puppy-snuggles.com/11945413/todays-my-dogs-last-day-his-lung-cancer-got-worse-and-spread-through-his-eye-im-going-to-miss-him-so-much-it-hurts-hes-been-my-best-friend-since-i-was-7-i-cant-be-with-him-because-i-live-far-away-i-love-you-benji-more-than-you-know-keep-smiling-all-the-way-over-to-the-other-side-my-love)
+- [My Mate Finn. Such a gentle soul. Just wants yo check everything out and say henlo to everything. Such a curious pup... so glad was able to rescue him and join me on life&#39;s adventure.](https://news.puppy-snuggles.com/11979780/my-mate-finn-such-a-gentle-soul-just-wants-yo-check-everything-out-and-say-henlo-to-everything-such-a-curious-pup-so-glad-was-able-to-rescue-him-and-join-me-on-lifes-adventure)
+- [Sidon on his first birthday a few days ago!](https://news.puppy-snuggles.com/11971040/sidon-on-his-first-birthday-a-few-days-ago)
+- [Say goodbye to Lola with me. She traveled the world with us after we rescued her from the street. She was a very good girl](https://news.puppy-snuggles.com/11961783/say-goodbye-to-lola-with-me-she-traveled-the-world-with-us-after-we-rescued-her-from-the-street-she-was-a-very-good-girl)
+- [Short hike derps](https://news.puppy-snuggles.com/11971041/short-hike-derps)
+- [One Dog, Oakland, California](https://news.puppy-snuggles.com/11971045/one-dog-oakland-california)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
