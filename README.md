@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on My company sent out a non-anonymous survey asking employees if they were gay, trans, and what their race is](https://www.reddit.com/r/cscareerquestions/comments/r6osqe/my_company_sent_out_a_nonanonymous_survey_asking/hmxk2yk/)
 - [/u/joehx on Monthly Employment/Corporate Questions and Discussion Megathread - November 2021](https://www.reddit.com/r/NorthropGrumman/comments/qkcewp/monthly_employmentcorporate_questions_and/hmv8itt/)
 - [/u/joehx on This has to be the worse one yet. They&#39;re not even trying at this point lmao](https://www.reddit.com/r/antiMLM/comments/r0f9ri/this_has_to_be_the_worse_one_yet_theyre_not_even/hltv2xe/)
 - [/u/joehx on What is something you call by a company name instead of the actual thing it is?](https://www.reddit.com/r/AskReddit/comments/qz6gp3/what_is_something_you_call_by_a_company_name/hlkzqna/)
 - [/u/joehx on I&#39;m still in shock that this isn&#39;t photoshopped](https://www.reddit.com/r/gaming/comments/qwqk4g/im_still_in_shock_that_this_isnt_photoshopped/hl6ag7u/)
-- [/u/joehx on Weekly Self-Promotion Thread - November 17, 2021](https://www.reddit.com/r/financialindependence/comments/qvvzm0/weekly_selfpromotion_thread_november_17_2021/hkzjx2d/)
 <!-- REDDIT:END -->
