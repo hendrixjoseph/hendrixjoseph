@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Mate Finn. Such a gentle soul. Just wants yo check everything out and say henlo to everything. Such a curious pup... so glad was able to rescue him and join me on life&#39;s adventure.](https://news.puppy-snuggles.com/11979780/my-mate-finn-such-a-gentle-soul-just-wants-yo-check-everything-out-and-say-henlo-to-everything-such-a-curious-pup-so-glad-was-able-to-rescue-him-and-join-me-on-lifes-adventure)
-- [Sidon on his first birthday a few days ago!](https://news.puppy-snuggles.com/11971040/sidon-on-his-first-birthday-a-few-days-ago)
-- [Say goodbye to Lola with me. She traveled the world with us after we rescued her from the street. She was a very good girl](https://news.puppy-snuggles.com/11961783/say-goodbye-to-lola-with-me-she-traveled-the-world-with-us-after-we-rescued-her-from-the-street-she-was-a-very-good-girl)
-- [Short hike derps](https://news.puppy-snuggles.com/11971041/short-hike-derps)
-- [One Dog, Oakland, California](https://news.puppy-snuggles.com/11971045/one-dog-oakland-california)
+- [Not the beauty, not the Age....but the charme to give away.](https://news.puppy-snuggles.com/10621692/not-the-beauty-not-the-agebut-the-charme-to-give-away)
+- [My personal pup, Elvira &lpar;black and white&rpar; and the pup we are fostering, Ladybug &lpar;red head&rpar;](https://news.puppy-snuggles.com/11989379/my-personal-pup-elvira-black-and-white-and-the-pup-we-are-fostering-ladybug-red-head)
+- [This dog just sits quietly in the ocean, looking at us before stopping.](https://news.puppy-snuggles.com/6292111/this-dog-just-sits-quietly-in-the-ocean-looking-at-us-before-stopping)
+- [My new fren Roscoe, he&#39;s the sweetest gentle good boi and we are so lucky to have him...his likes are: soft things and staring into my eyes lovingly for long periods of time..dislikes: loud noises, and being more than one foot from me.](https://news.puppy-snuggles.com/11082259/my-new-fren-roscoe-hes-the-sweetest-gentle-good-boi-and-we-are-so-lucky-to-have-himhis-likes-are-soft-things-and-staring-into-my-eyes-lovingly-for-long-periods-of-timedislikes-loud-noises-and-being-more-than-one-foot-from-me)
+- [Doesn’t share space very well or loves sharing mine?](https://news.puppy-snuggles.com/8800519/doesnt-share-space-very-well-or-loves-sharing-mine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
