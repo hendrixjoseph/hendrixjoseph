@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Not the beauty, not the Age....but the charme to give away.](https://news.puppy-snuggles.com/10621692/not-the-beauty-not-the-agebut-the-charme-to-give-away)
-- [My personal pup, Elvira &lpar;black and white&rpar; and the pup we are fostering, Ladybug &lpar;red head&rpar;](https://news.puppy-snuggles.com/11989379/my-personal-pup-elvira-black-and-white-and-the-pup-we-are-fostering-ladybug-red-head)
-- [This dog just sits quietly in the ocean, looking at us before stopping.](https://news.puppy-snuggles.com/6292111/this-dog-just-sits-quietly-in-the-ocean-looking-at-us-before-stopping)
-- [My new fren Roscoe, he&#39;s the sweetest gentle good boi and we are so lucky to have him...his likes are: soft things and staring into my eyes lovingly for long periods of time..dislikes: loud noises, and being more than one foot from me.](https://news.puppy-snuggles.com/11082259/my-new-fren-roscoe-hes-the-sweetest-gentle-good-boi-and-we-are-so-lucky-to-have-himhis-likes-are-soft-things-and-staring-into-my-eyes-lovingly-for-long-periods-of-timedislikes-loud-noises-and-being-more-than-one-foot-from-me)
-- [Doesn’t share space very well or loves sharing mine?](https://news.puppy-snuggles.com/8800519/doesnt-share-space-very-well-or-loves-sharing-mine)
+- [Happy first birthday to this noodle head- oh how much you’ve grown this past year💛](https://news.puppy-snuggles.com/9368391/happy-first-birthday-to-this-noodle-head-oh-how-much-youve-grown-this-past-year)
+- [All Smiles For Saturday](https://news.puppy-snuggles.com/12034304/all-smiles-for-saturday)
+- [Got to get those bitches!](https://news.puppy-snuggles.com/5749191/got-to-get-those-bitches)
+- [Olivia hugging her little duck! Such a cutie!](https://news.puppy-snuggles.com/8871123/olivia-hugging-her-little-duck-such-a-cutie)
+- [Just being a good boy](https://news.puppy-snuggles.com/12034309/just-being-a-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
