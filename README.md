@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Frustration Friday Weekly Thread - Week of December 03, 2021](https://www.reddit.com/r/churning/comments/r7vrvm/frustration_friday_weekly_thread_week_of_december/hn5leq2/)
 - [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn3uczy/)
 - [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn2vbif/)
 - [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn2uvkr/)
 - [What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/)
-- [/u/joehx on My company sent out a non-anonymous survey asking employees if they were gay, trans, and what their race is](https://www.reddit.com/r/cscareerquestions/comments/r6osqe/my_company_sent_out_a_nonanonymous_survey_asking/hmxk2yk/)
 <!-- REDDIT:END -->
