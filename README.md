@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy first birthday to this noodle head- oh how much you’ve grown this past year💛](https://news.puppy-snuggles.com/9368391/happy-first-birthday-to-this-noodle-head-oh-how-much-youve-grown-this-past-year)
-- [All Smiles For Saturday](https://news.puppy-snuggles.com/12034304/all-smiles-for-saturday)
-- [Got to get those bitches!](https://news.puppy-snuggles.com/5749191/got-to-get-those-bitches)
-- [Olivia hugging her little duck! Such a cutie!](https://news.puppy-snuggles.com/8871123/olivia-hugging-her-little-duck-such-a-cutie)
-- [Just being a good boy](https://news.puppy-snuggles.com/12034309/just-being-a-good-boy)
+- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
+- [Happy weekend!](https://news.puppy-snuggles.com/12027599/happy-weekend)
+- [The day we picked him up from the shelter...](https://news.puppy-snuggles.com/6361668/the-day-we-picked-him-up-from-the-shelter)
+- [Gomer, a comfort dog in Napa, CA made it into the staff page of the yearbook!](https://news.puppy-snuggles.com/11272072/gomer-a-comfort-dog-in-napa-ca-made-it-into-the-staff-page-of-the-yearbook)
+- [My boy got hit by a car, but with constant care at UC Davis it’s looking like he will walk again!! Very slow process. I’ve had him since he was 4 weeks old. I can’t wait to have him back home with me!](https://news.puppy-snuggles.com/12027601/my-boy-got-hit-by-a-car-but-with-constant-care-at-uc-davis-its-looking-like-he-will-walk-again-very-slow-process-ive-had-him-since-he-was-4-weeks-old-i-cant-wait-to-have-him-back-home-with-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
