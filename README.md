@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
-- [Happy weekend!](https://news.puppy-snuggles.com/12027599/happy-weekend)
-- [The day we picked him up from the shelter...](https://news.puppy-snuggles.com/6361668/the-day-we-picked-him-up-from-the-shelter)
-- [Gomer, a comfort dog in Napa, CA made it into the staff page of the yearbook!](https://news.puppy-snuggles.com/11272072/gomer-a-comfort-dog-in-napa-ca-made-it-into-the-staff-page-of-the-yearbook)
-- [My boy got hit by a car, but with constant care at UC Davis it’s looking like he will walk again!! Very slow process. I’ve had him since he was 4 weeks old. I can’t wait to have him back home with me!](https://news.puppy-snuggles.com/12027601/my-boy-got-hit-by-a-car-but-with-constant-care-at-uc-davis-its-looking-like-he-will-walk-again-very-slow-process-ive-had-him-since-he-was-4-weeks-old-i-cant-wait-to-have-him-back-home-with-me)
+- [When I married my wife, she knew I had a girlfriend and always would. My last picture of this lovely lady that will always hold my heart.](https://news.puppy-snuggles.com/12087992/when-i-married-my-wife-she-knew-i-had-a-girlfriend-and-always-would-my-last-picture-of-this-lovely-lady-that-will-always-hold-my-heart)
+- [Enjoying his walkies](https://news.puppy-snuggles.com/12087995/enjoying-his-walkies)
+- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
+- [You can see the moment pup thinks &amp;amp;quot;The BETRAYAL!&amp;amp;quot;](https://news.puppy-snuggles.com/12087996/you-can-see-the-moment-pup-thinks-quotthe-betrayalquot)
+- [Bella’s not sure what “Christmas” is, but she sure doesn’t like hats](https://news.puppy-snuggles.com/12087994/bellas-not-sure-what-christmas-is-but-she-sure-doesnt-like-hats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
