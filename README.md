@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I married my wife, she knew I had a girlfriend and always would. My last picture of this lovely lady that will always hold my heart.](https://news.puppy-snuggles.com/12087992/when-i-married-my-wife-she-knew-i-had-a-girlfriend-and-always-would-my-last-picture-of-this-lovely-lady-that-will-always-hold-my-heart)
-- [Enjoying his walkies](https://news.puppy-snuggles.com/12087995/enjoying-his-walkies)
-- [Just chilling in the garden](https://news.puppy-snuggles.com/7844204/just-chilling-in-the-garden)
-- [You can see the moment pup thinks &amp;amp;quot;The BETRAYAL!&amp;amp;quot;](https://news.puppy-snuggles.com/12087996/you-can-see-the-moment-pup-thinks-quotthe-betrayalquot)
-- [Bella’s not sure what “Christmas” is, but she sure doesn’t like hats](https://news.puppy-snuggles.com/12087994/bellas-not-sure-what-christmas-is-but-she-sure-doesnt-like-hats)
+- [Real or Reflection](https://news.puppy-snuggles.com/12096959/real-or-reflection)
+- [This is Chunk. He&#39;s just happy to be here.](https://news.puppy-snuggles.com/12120621/this-is-chunk-hes-just-happy-to-be-here)
+- [“Do you really have to go to work?”](https://news.puppy-snuggles.com/9426010/do-you-really-have-to-go-to-work)
+- [I lost my beloved Lois to heart failure on Thanksgiving. I will never, never stop loving this girl.](https://news.puppy-snuggles.com/11927296/i-lost-my-beloved-lois-to-heart-failure-on-thanksgiving-i-will-never-never-stop-loving-this-girl)
+- [My boy enjoying the sweet scents of fall](https://news.puppy-snuggles.com/11341923/my-boy-enjoying-the-sweet-scents-of-fall)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
