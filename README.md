@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Real or Reflection](https://news.puppy-snuggles.com/12096959/real-or-reflection)
-- [This is Chunk. He&#39;s just happy to be here.](https://news.puppy-snuggles.com/12120621/this-is-chunk-hes-just-happy-to-be-here)
-- [“Do you really have to go to work?”](https://news.puppy-snuggles.com/9426010/do-you-really-have-to-go-to-work)
-- [I lost my beloved Lois to heart failure on Thanksgiving. I will never, never stop loving this girl.](https://news.puppy-snuggles.com/11927296/i-lost-my-beloved-lois-to-heart-failure-on-thanksgiving-i-will-never-never-stop-loving-this-girl)
-- [My boy enjoying the sweet scents of fall](https://news.puppy-snuggles.com/11341923/my-boy-enjoying-the-sweet-scents-of-fall)
+- [Reggie looking very handsome at 1 Months.](https://news.puppy-snuggles.com/7585552/reggie-looking-very-handsome-at-1-months)
+- [His name is Timmy](https://news.puppy-snuggles.com/6163661/his-name-is-timmy)
+- [Juno&#39;s descent into insanity &lpar;not pictured: squeaky toy&rpar;](https://news.puppy-snuggles.com/10406196/junos-descent-into-insanity-not-pictured-squeaky-toy)
+- [Most tolerant doggo ever](https://news.puppy-snuggles.com/8120406/most-tolerant-doggo-ever)
+- [In my fourth decade of life, I adopted my first doggy.](https://news.puppy-snuggles.com/10700047/in-my-fourth-decade-of-life-i-adopted-my-first-doggy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
