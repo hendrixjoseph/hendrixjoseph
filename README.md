@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Reggie looking very handsome at 1 Months.](https://news.puppy-snuggles.com/7585552/reggie-looking-very-handsome-at-1-months)
-- [His name is Timmy](https://news.puppy-snuggles.com/6163661/his-name-is-timmy)
-- [Juno&#39;s descent into insanity &lpar;not pictured: squeaky toy&rpar;](https://news.puppy-snuggles.com/10406196/junos-descent-into-insanity-not-pictured-squeaky-toy)
-- [Most tolerant doggo ever](https://news.puppy-snuggles.com/8120406/most-tolerant-doggo-ever)
-- [In my fourth decade of life, I adopted my first doggy.](https://news.puppy-snuggles.com/10700047/in-my-fourth-decade-of-life-i-adopted-my-first-doggy)
+- [Here’s a pic of two happy pups to brighten ur day &amp;amp;lt;3](https://news.puppy-snuggles.com/12188945/heres-a-pic-of-two-happy-pups-to-brighten-ur-day-lt3)
+- [My pooch being dumb](https://news.puppy-snuggles.com/9166213/my-pooch-being-dumb)
+- [Percival Norman... the Italian Spinone Couch Hog](https://news.puppy-snuggles.com/9263019/percival-norman-the-italian-spinone-couch-hog)
+- [Macchiato enjoying her new bed by reenacting the Pup and the Pea](https://news.puppy-snuggles.com/12180256/macchiato-enjoying-her-new-bed-by-reenacting-the-pup-and-the-pea)
+- [Jasper reckons his new home is pretty good.](https://news.puppy-snuggles.com/9571993/jasper-reckons-his-new-home-is-pretty-good)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
