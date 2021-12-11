@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s a pic of two happy pups to brighten ur day &amp;amp;lt;3](https://news.puppy-snuggles.com/12188945/heres-a-pic-of-two-happy-pups-to-brighten-ur-day-lt3)
-- [My pooch being dumb](https://news.puppy-snuggles.com/9166213/my-pooch-being-dumb)
-- [Percival Norman... the Italian Spinone Couch Hog](https://news.puppy-snuggles.com/9263019/percival-norman-the-italian-spinone-couch-hog)
 - [Macchiato enjoying her new bed by reenacting the Pup and the Pea](https://news.puppy-snuggles.com/12180256/macchiato-enjoying-her-new-bed-by-reenacting-the-pup-and-the-pea)
-- [Jasper reckons his new home is pretty good.](https://news.puppy-snuggles.com/9571993/jasper-reckons-his-new-home-is-pretty-good)
+- [3 Couch Potatoes](https://news.puppy-snuggles.com/12222389/3-couch-potatoes)
+- [The happy girl I look after. I love her so much!](https://news.puppy-snuggles.com/12188941/the-happy-girl-i-look-after-i-love-her-so-much)
+- [Snow doggo today](https://news.puppy-snuggles.com/12222390/snow-doggo-today)
+- [My old boy Marley being dapper like usual!](https://news.puppy-snuggles.com/12188942/my-old-boy-marley-being-dapper-like-usual)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
