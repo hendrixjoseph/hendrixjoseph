@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Macchiato enjoying her new bed by reenacting the Pup and the Pea](https://news.puppy-snuggles.com/12180256/macchiato-enjoying-her-new-bed-by-reenacting-the-pup-and-the-pea)
-- [3 Couch Potatoes](https://news.puppy-snuggles.com/12222389/3-couch-potatoes)
-- [The happy girl I look after. I love her so much!](https://news.puppy-snuggles.com/12188941/the-happy-girl-i-look-after-i-love-her-so-much)
-- [Snow doggo today](https://news.puppy-snuggles.com/12222390/snow-doggo-today)
-- [My old boy Marley being dapper like usual!](https://news.puppy-snuggles.com/12188942/my-old-boy-marley-being-dapper-like-usual)
+- [Caleb’s results are in! I think he’s a unique mix. Gotta love shelter dogs.](https://news.puppy-snuggles.com/12250730/calebs-results-are-in-i-think-hes-a-unique-mix-gotta-love-shelter-dogs)
+- [Wiggle Butt Puppies](https://news.puppy-snuggles.com/4531766/wiggle-butt-puppies)
+- [After losing our big fella &amp;amp;quot;Phil&amp;amp;quot; to cancer early this year, we swore we were done with dogs. It&#39;s just too hard to say goodbye. Well, that lasted all of 7 months. Say hello to our pretty girl &amp;amp;quot;Sky&amp;amp;quot;. Just adopted from the HS. 2 yr old mutt, sweet as can be.](https://news.puppy-snuggles.com/10176656/after-losing-our-big-fella-quotphilquot-to-cancer-early-this-year-we-swore-we-were-done-with-dogs-its-just-too-hard-to-say-goodbye-well-that-lasted-all-of-7-months-say-hello-to-our-pretty-girl-quotskyquot-just-adopted-from-the-hs-2-yr-old-mutt-sweet-as-can-be)
+- [Do I look smarter in glasses?](https://news.puppy-snuggles.com/6292114/do-i-look-smarter-in-glasses)
+- [got a tattoo of my dog pearl a while back in memory of her. tattoo is made by memlena_tattoo.](https://news.puppy-snuggles.com/7318102/got-a-tattoo-of-my-dog-pearl-a-while-back-in-memory-of-her-tattoo-is-made-by-memlena-tattoo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
