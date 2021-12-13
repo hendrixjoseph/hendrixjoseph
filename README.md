@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s a video game that no one but you seems to remember?](https://www.reddit.com/r/AskReddit/comments/re7ssr/whats_a_video_game_that_no_one_but_you_seems_to/ho78pdw/)
+- [/u/joehx on Daily FI discussion thread - Saturday, December 11, 2021](https://www.reddit.com/r/financialindependence/comments/rdwp22/daily_fi_discussion_thread_saturday_december_11/ho75lo0/)
 - [/u/joehx on What&#39;s the smallest hill you&#39;ll die on?](https://www.reddit.com/r/AskReddit/comments/rbvjpo/whats_the_smallest_hill_youll_die_on/hnshzw6/)
 - [/u/joehx on Frustration Friday Weekly Thread - Week of December 03, 2021](https://www.reddit.com/r/churning/comments/r7vrvm/frustration_friday_weekly_thread_week_of_december/hn5leq2/)
 - [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn3uczy/)
-- [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn2vbif/)
-- [/u/joehx on What book do you wish you never read?](https://www.reddit.com/r/AskReddit/comments/r820zm/what_book_do_you_wish_you_never_read/hn2uvkr/)
 <!-- REDDIT:END -->
