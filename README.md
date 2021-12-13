@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Caleb’s results are in! I think he’s a unique mix. Gotta love shelter dogs.](https://news.puppy-snuggles.com/12250730/calebs-results-are-in-i-think-hes-a-unique-mix-gotta-love-shelter-dogs)
-- [Wiggle Butt Puppies](https://news.puppy-snuggles.com/4531766/wiggle-butt-puppies)
-- [After losing our big fella &amp;amp;quot;Phil&amp;amp;quot; to cancer early this year, we swore we were done with dogs. It&#39;s just too hard to say goodbye. Well, that lasted all of 7 months. Say hello to our pretty girl &amp;amp;quot;Sky&amp;amp;quot;. Just adopted from the HS. 2 yr old mutt, sweet as can be.](https://news.puppy-snuggles.com/10176656/after-losing-our-big-fella-quotphilquot-to-cancer-early-this-year-we-swore-we-were-done-with-dogs-its-just-too-hard-to-say-goodbye-well-that-lasted-all-of-7-months-say-hello-to-our-pretty-girl-quotskyquot-just-adopted-from-the-hs-2-yr-old-mutt-sweet-as-can-be)
-- [Do I look smarter in glasses?](https://news.puppy-snuggles.com/6292114/do-i-look-smarter-in-glasses)
-- [got a tattoo of my dog pearl a while back in memory of her. tattoo is made by memlena_tattoo.](https://news.puppy-snuggles.com/7318102/got-a-tattoo-of-my-dog-pearl-a-while-back-in-memory-of-her-tattoo-is-made-by-memlena-tattoo)
+- [Elmo arrived at his forever home today and is ready to rock ‘n roll!](https://news.puppy-snuggles.com/6992949/elmo-arrived-at-his-forever-home-today-and-is-ready-to-rock-n-roll)
+- [Beau is growing up 🥺](https://news.puppy-snuggles.com/8030977/beau-is-growing-up)
+- [LMAO he caught me taking a picture of him](https://news.puppy-snuggles.com/7099522/lmao-he-caught-me-taking-a-picture-of-him)
+- [Jackson wishing everyone a Happy Sunday](https://news.puppy-snuggles.com/10525780/jackson-wishing-everyone-a-happy-sunday)
+- [Rango really wants to play with the horses](https://news.puppy-snuggles.com/12263115/rango-really-wants-to-play-with-the-horses)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
