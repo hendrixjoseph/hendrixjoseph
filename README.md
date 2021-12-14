@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Elmo arrived at his forever home today and is ready to rock ‘n roll!](https://news.puppy-snuggles.com/6992949/elmo-arrived-at-his-forever-home-today-and-is-ready-to-rock-n-roll)
-- [Beau is growing up 🥺](https://news.puppy-snuggles.com/8030977/beau-is-growing-up)
-- [LMAO he caught me taking a picture of him](https://news.puppy-snuggles.com/7099522/lmao-he-caught-me-taking-a-picture-of-him)
-- [Jackson wishing everyone a Happy Sunday](https://news.puppy-snuggles.com/10525780/jackson-wishing-everyone-a-happy-sunday)
-- [Rango really wants to play with the horses](https://news.puppy-snuggles.com/12263115/rango-really-wants-to-play-with-the-horses)
+- [Shout out to all the amputees who don’t give a rip about being “different.” &lpar;My childhood dog, Tommy&rpar;](https://news.puppy-snuggles.com/12274048/shout-out-to-all-the-amputees-who-dont-give-a-rip-about-being-different-my-childhood-dog-tommy)
+- [Can you guess my name?](https://news.puppy-snuggles.com/12286999/can-you-guess-my-name)
+- [Dog sitting for my friend today](https://news.puppy-snuggles.com/9368397/dog-sitting-for-my-friend-today)
+- [Can I have treats?](https://news.puppy-snuggles.com/12293514/can-i-have-treats)
+- [Anyone elses&#39; dog do this?](https://news.puppy-snuggles.com/12280302/anyone-elses-dog-do-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
