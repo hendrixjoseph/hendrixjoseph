@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shout out to all the amputees who don’t give a rip about being “different.” &lpar;My childhood dog, Tommy&rpar;](https://news.puppy-snuggles.com/12274048/shout-out-to-all-the-amputees-who-dont-give-a-rip-about-being-different-my-childhood-dog-tommy)
-- [Can you guess my name?](https://news.puppy-snuggles.com/12286999/can-you-guess-my-name)
-- [Dog sitting for my friend today](https://news.puppy-snuggles.com/9368397/dog-sitting-for-my-friend-today)
-- [Can I have treats?](https://news.puppy-snuggles.com/12293514/can-i-have-treats)
-- [Anyone elses&#39; dog do this?](https://news.puppy-snuggles.com/12280302/anyone-elses-dog-do-this)
+- [Peanut our 7 week old toy poodle!](https://news.puppy-snuggles.com/10691485/peanut-our-7-week-old-toy-poodle)
+- [He wants to sleep with us!](https://news.puppy-snuggles.com/7379923/he-wants-to-sleep-with-us)
+- [Queso loves a good romp through the country](https://news.puppy-snuggles.com/12335029/queso-loves-a-good-romp-through-the-country)
+- [Sír Carlos](https://news.puppy-snuggles.com/9426015/sir-carlos)
+- [My boy Moss, giving his best smile.](https://news.puppy-snuggles.com/9328689/my-boy-moss-giving-his-best-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
