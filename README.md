@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Peanut our 7 week old toy poodle!](https://news.puppy-snuggles.com/10691485/peanut-our-7-week-old-toy-poodle)
-- [He wants to sleep with us!](https://news.puppy-snuggles.com/7379923/he-wants-to-sleep-with-us)
-- [Queso loves a good romp through the country](https://news.puppy-snuggles.com/12335029/queso-loves-a-good-romp-through-the-country)
-- [Sír Carlos](https://news.puppy-snuggles.com/9426015/sir-carlos)
-- [My boy Moss, giving his best smile.](https://news.puppy-snuggles.com/9328689/my-boy-moss-giving-his-best-smile)
+- [This tough baby is still here and doing better - she&#39;s fighting Lyme and had a bad weekend, including losing her eyesight. Vet was getting me ready to say goodbye yesterday but she is fighting back and happy today! Just took a 1/2 hour break from work to cuddle with her.](https://news.puppy-snuggles.com/12369691/this-tough-baby-is-still-here-and-doing-better-shes-fighting-lyme-and-had-a-bad-weekend-including-losing-her-eyesight-vet-was-getting-me-ready-to-say-goodbye-yesterday-but-she-is-fighting-back-and-happy-today-just-took-a-12-hour-break-from-work-to-cuddle-with-her)
+- [Merry Christmas from Izzy!](https://news.puppy-snuggles.com/12352928/merry-christmas-from-izzy)
+- [If you are a dog lover,You can see this video and enjoy the fun.](https://news.puppy-snuggles.com/12369692/if-you-are-a-dog-loveryou-can-see-this-video-and-enjoy-the-fun)
+- [he’s happy after the dog park🤍](https://news.puppy-snuggles.com/12369690/hes-happy-after-the-dog-park)
+- [My new puppy Annie got bullied straight off the GSD sub. Give her some love.](https://news.puppy-snuggles.com/5161652/my-new-puppy-annie-got-bullied-straight-off-the-gsd-sub-give-her-some-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
