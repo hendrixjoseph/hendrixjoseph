@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This tough baby is still here and doing better - she&#39;s fighting Lyme and had a bad weekend, including losing her eyesight. Vet was getting me ready to say goodbye yesterday but she is fighting back and happy today! Just took a 1/2 hour break from work to cuddle with her.](https://news.puppy-snuggles.com/12369691/this-tough-baby-is-still-here-and-doing-better-shes-fighting-lyme-and-had-a-bad-weekend-including-losing-her-eyesight-vet-was-getting-me-ready-to-say-goodbye-yesterday-but-she-is-fighting-back-and-happy-today-just-took-a-12-hour-break-from-work-to-cuddle-with-her)
-- [Merry Christmas from Izzy!](https://news.puppy-snuggles.com/12352928/merry-christmas-from-izzy)
-- [If you are a dog lover,You can see this video and enjoy the fun.](https://news.puppy-snuggles.com/12369692/if-you-are-a-dog-loveryou-can-see-this-video-and-enjoy-the-fun)
-- [he’s happy after the dog park🤍](https://news.puppy-snuggles.com/12369690/hes-happy-after-the-dog-park)
-- [My new puppy Annie got bullied straight off the GSD sub. Give her some love.](https://news.puppy-snuggles.com/5161652/my-new-puppy-annie-got-bullied-straight-off-the-gsd-sub-give-her-some-love)
+- [https://youtu.be/iyex8i4r8Jk](https://news.puppy-snuggles.com/12096961/httpsyoutubeiyex8i4r8jk)
+- [My goodest girl](https://news.puppy-snuggles.com/11919828/my-goodest-girl)
+- [Benny crossed the rainbow bridge today. Thank you for 13 years of friendship my good boy. You will always be my first dog 💔](https://news.puppy-snuggles.com/7374386/benny-crossed-the-rainbow-bridge-today-thank-you-for-13-years-of-friendship-my-good-boy-you-will-always-be-my-first-dog)
+- [Pages of doggos :&rpar; done in ballpoint and blue pencil :D](https://news.puppy-snuggles.com/11177911/pages-of-doggos-done-in-ballpoint-and-blue-pencil-d)
+- [Maybe more of a smirk](https://news.puppy-snuggles.com/8350857/maybe-more-of-a-smirk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
