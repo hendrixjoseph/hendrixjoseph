@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [https://youtu.be/iyex8i4r8Jk](https://news.puppy-snuggles.com/12096961/httpsyoutubeiyex8i4r8jk)
-- [My goodest girl](https://news.puppy-snuggles.com/11919828/my-goodest-girl)
-- [Benny crossed the rainbow bridge today. Thank you for 13 years of friendship my good boy. You will always be my first dog 💔](https://news.puppy-snuggles.com/7374386/benny-crossed-the-rainbow-bridge-today-thank-you-for-13-years-of-friendship-my-good-boy-you-will-always-be-my-first-dog)
-- [Pages of doggos :&rpar; done in ballpoint and blue pencil :D](https://news.puppy-snuggles.com/11177911/pages-of-doggos-done-in-ballpoint-and-blue-pencil-d)
-- [Maybe more of a smirk](https://news.puppy-snuggles.com/8350857/maybe-more-of-a-smirk)
+- [My foster dog who I&#39;ve been calling Big Dawg &lpar;official name Metallica&rpar;, who I suspect came from a hoarding colony, loving his new hedgie toy](https://news.puppy-snuggles.com/12238696/my-foster-dog-who-ive-been-calling-big-dawg-official-name-metallica-who-i-suspect-came-from-a-hoarding-colony-loving-his-new-hedgie-toy)
+- [My baby boy giving me a hug](https://news.puppy-snuggles.com/11726152/my-baby-boy-giving-me-a-hug)
+- [Those pretty eyes](https://news.puppy-snuggles.com/8483300/those-pretty-eyes)
+- [Our puppy as 1 month old and now at 8 months old her name is Molly](https://news.puppy-snuggles.com/12138806/our-puppy-as-1-month-old-and-now-at-8-months-old-her-name-is-molly)
+- [This little one is terrified after rockets attack last night](https://news.puppy-snuggles.com/5997204/this-little-one-is-terrified-after-rockets-attack-last-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
