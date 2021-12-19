@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My foster dog who I&#39;ve been calling Big Dawg &lpar;official name Metallica&rpar;, who I suspect came from a hoarding colony, loving his new hedgie toy](https://news.puppy-snuggles.com/12238696/my-foster-dog-who-ive-been-calling-big-dawg-official-name-metallica-who-i-suspect-came-from-a-hoarding-colony-loving-his-new-hedgie-toy)
-- [My baby boy giving me a hug](https://news.puppy-snuggles.com/11726152/my-baby-boy-giving-me-a-hug)
-- [Those pretty eyes](https://news.puppy-snuggles.com/8483300/those-pretty-eyes)
-- [Our puppy as 1 month old and now at 8 months old her name is Molly](https://news.puppy-snuggles.com/12138806/our-puppy-as-1-month-old-and-now-at-8-months-old-her-name-is-molly)
-- [This little one is terrified after rockets attack last night](https://news.puppy-snuggles.com/5997204/this-little-one-is-terrified-after-rockets-attack-last-night)
+- [Our Noah boy wanted to wish everyone a happy Thanksgiving week. May your bellies and hearts be full this week.](https://news.puppy-snuggles.com/11658819/our-noah-boy-wanted-to-wish-everyone-a-happy-thanksgiving-week-may-your-bellies-and-hearts-be-full-this-week)
+- [Adoption day vs 30 days later! I&#39;m so happy I have Igor in my life](https://news.puppy-snuggles.com/8773932/adoption-day-vs-30-days-later-im-so-happy-i-have-igor-in-my-life)
+- [My mum &lpar;RIP&rpar; and Ally &lpar;RIP&rpar; 1980](https://news.puppy-snuggles.com/12034306/my-mum-rip-and-ally-rip-1980)
+- [Charlie smiling after playing with dad!!!](https://news.puppy-snuggles.com/11334101/charlie-smiling-after-playing-with-dad)
+- [Grandma sent sweaters! Sis needs to grow into them.](https://news.puppy-snuggles.com/12034305/grandma-sent-sweaters-sis-needs-to-grow-into-them)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
