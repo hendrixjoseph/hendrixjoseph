@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our Noah boy wanted to wish everyone a happy Thanksgiving week. May your bellies and hearts be full this week.](https://news.puppy-snuggles.com/11658819/our-noah-boy-wanted-to-wish-everyone-a-happy-thanksgiving-week-may-your-bellies-and-hearts-be-full-this-week)
-- [Adoption day vs 30 days later! I&#39;m so happy I have Igor in my life](https://news.puppy-snuggles.com/8773932/adoption-day-vs-30-days-later-im-so-happy-i-have-igor-in-my-life)
-- [My mum &lpar;RIP&rpar; and Ally &lpar;RIP&rpar; 1980](https://news.puppy-snuggles.com/12034306/my-mum-rip-and-ally-rip-1980)
-- [Charlie smiling after playing with dad!!!](https://news.puppy-snuggles.com/11334101/charlie-smiling-after-playing-with-dad)
-- [Grandma sent sweaters! Sis needs to grow into them.](https://news.puppy-snuggles.com/12034305/grandma-sent-sweaters-sis-needs-to-grow-into-them)
+- [RIP to my beautiful Ness. 16 years of a beautiful amazing life. I couldn&#39;t have asked for a better friend. She was there for me when nobody else was. She was one of the sweetest most precious cuddly bears. Figured I&#39;d share some cute pics of her to this dog-loving community.](https://news.puppy-snuggles.com/6851457/rip-to-my-beautiful-ness-16-years-of-a-beautiful-amazing-life-i-couldnt-have-asked-for-a-better-friend-she-was-there-for-me-when-nobody-else-was-she-was-one-of-the-sweetest-most-precious-cuddly-bears-figured-id-share-some-cute-pics-of-her-to-this-dog-loving-community)
+- [Showing off her teefies](https://news.puppy-snuggles.com/11289638/showing-off-her-teefies)
+- [Meet Dyson!](https://news.puppy-snuggles.com/12096957/meet-dyson)
+- [Sang Hanukkah Songs with My mom a couple nights ago! FUN!](https://news.puppy-snuggles.com/12004418/sang-hanukkah-songs-with-my-mom-a-couple-nights-ago-fun)
+- [We lost our little girl to CHF today. She deteriorated out of nowhere and we had to make the call fast to end her suffering. This is the first time I lose anyone and my god it hurts so much. She was the sweetest little angel.](https://news.puppy-snuggles.com/10260296/we-lost-our-little-girl-to-chf-today-she-deteriorated-out-of-nowhere-and-we-had-to-make-the-call-fast-to-end-her-suffering-this-is-the-first-time-i-lose-anyone-and-my-god-it-hurts-so-much-she-was-the-sweetest-little-angel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
