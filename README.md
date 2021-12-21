@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP to my beautiful Ness. 16 years of a beautiful amazing life. I couldn&#39;t have asked for a better friend. She was there for me when nobody else was. She was one of the sweetest most precious cuddly bears. Figured I&#39;d share some cute pics of her to this dog-loving community.](https://news.puppy-snuggles.com/6851457/rip-to-my-beautiful-ness-16-years-of-a-beautiful-amazing-life-i-couldnt-have-asked-for-a-better-friend-she-was-there-for-me-when-nobody-else-was-she-was-one-of-the-sweetest-most-precious-cuddly-bears-figured-id-share-some-cute-pics-of-her-to-this-dog-loving-community)
-- [Showing off her teefies](https://news.puppy-snuggles.com/11289638/showing-off-her-teefies)
-- [Meet Dyson!](https://news.puppy-snuggles.com/12096957/meet-dyson)
-- [Sang Hanukkah Songs with My mom a couple nights ago! FUN!](https://news.puppy-snuggles.com/12004418/sang-hanukkah-songs-with-my-mom-a-couple-nights-ago-fun)
-- [We lost our little girl to CHF today. She deteriorated out of nowhere and we had to make the call fast to end her suffering. This is the first time I lose anyone and my god it hurts so much. She was the sweetest little angel.](https://news.puppy-snuggles.com/10260296/we-lost-our-little-girl-to-chf-today-she-deteriorated-out-of-nowhere-and-we-had-to-make-the-call-fast-to-end-her-suffering-this-is-the-first-time-i-lose-anyone-and-my-god-it-hurts-so-much-she-was-the-sweetest-little-angel)
+- [Happy birthday to my best friend Stewart, 15 today.](https://news.puppy-snuggles.com/12428913/happy-birthday-to-my-best-friend-stewart-15-today)
+- [Bentley crashed after a hard day at work](https://news.puppy-snuggles.com/12522097/bentley-crashed-after-a-hard-day-at-work)
+- [The smiling girl](https://news.puppy-snuggles.com/12506005/the-smiling-girl)
+- [A beautiful girl enjoying a day at the dog park 😊❤️](https://news.puppy-snuggles.com/11334098/a-beautiful-girl-enjoying-a-day-at-the-dog-park)
+- [Took a picture of my dog yawning and forgot to turn off the flash lmao](https://news.puppy-snuggles.com/12522096/took-a-picture-of-my-dog-yawning-and-forgot-to-turn-off-the-flash-lmao)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
