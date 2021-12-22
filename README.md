@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy birthday to my best friend Stewart, 15 today.](https://news.puppy-snuggles.com/12428913/happy-birthday-to-my-best-friend-stewart-15-today)
-- [Bentley crashed after a hard day at work](https://news.puppy-snuggles.com/12522097/bentley-crashed-after-a-hard-day-at-work)
-- [The smiling girl](https://news.puppy-snuggles.com/12506005/the-smiling-girl)
-- [A beautiful girl enjoying a day at the dog park 😊❤️](https://news.puppy-snuggles.com/11334098/a-beautiful-girl-enjoying-a-day-at-the-dog-park)
-- [Took a picture of my dog yawning and forgot to turn off the flash lmao](https://news.puppy-snuggles.com/12522096/took-a-picture-of-my-dog-yawning-and-forgot-to-turn-off-the-flash-lmao)
+- [Heffs pile of wrinkles](https://news.puppy-snuggles.com/12556145/heffs-pile-of-wrinkles)
+- [Some perfect pictures of the best boy who crossed the Rainbow bridge Saturday night. Thank you for the 14 amazing years, Diesel.](https://news.puppy-snuggles.com/12539249/some-perfect-pictures-of-the-best-boy-who-crossed-the-rainbow-bridge-saturday-night-thank-you-for-the-14-amazing-years-diesel)
+- [Tongue out with a cute smile](https://news.puppy-snuggles.com/12522090/tongue-out-with-a-cute-smile)
+- [My Dog rexy 11 years old passed away last night. I&#39;ve never been so hurt.](https://news.puppy-snuggles.com/12546819/my-dog-rexy-11-years-old-passed-away-last-night-ive-never-been-so-hurt)
+- [Dog gate](https://news.puppy-snuggles.com/12556147/dog-gate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
