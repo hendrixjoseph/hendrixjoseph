@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Heffs pile of wrinkles](https://news.puppy-snuggles.com/12556145/heffs-pile-of-wrinkles)
-- [Some perfect pictures of the best boy who crossed the Rainbow bridge Saturday night. Thank you for the 14 amazing years, Diesel.](https://news.puppy-snuggles.com/12539249/some-perfect-pictures-of-the-best-boy-who-crossed-the-rainbow-bridge-saturday-night-thank-you-for-the-14-amazing-years-diesel)
-- [Tongue out with a cute smile](https://news.puppy-snuggles.com/12522090/tongue-out-with-a-cute-smile)
-- [My Dog rexy 11 years old passed away last night. I&#39;ve never been so hurt.](https://news.puppy-snuggles.com/12546819/my-dog-rexy-11-years-old-passed-away-last-night-ive-never-been-so-hurt)
-- [Dog gate](https://news.puppy-snuggles.com/12556147/dog-gate)
+- [A rare picture of Bleu, when he&#39;s not destroying the house](https://news.puppy-snuggles.com/12588545/a-rare-picture-of-bleu-when-hes-not-destroying-the-house)
+- [Caption this image](https://news.puppy-snuggles.com/12491919/caption-this-image)
+- [My baby girl Mia](https://news.puppy-snuggles.com/8790796/my-baby-girl-mia)
+- [Whatcha doin dad?](https://news.puppy-snuggles.com/12522091/whatcha-doin-dad)
+- [Photoshoot with Bash!](https://news.puppy-snuggles.com/12499192/photoshoot-with-bash)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
