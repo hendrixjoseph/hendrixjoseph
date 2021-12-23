@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What isn&#39;t a cult but feels like a cult?](https://www.reddit.com/r/AskReddit/comments/rlray8/what_isnt_a_cult_but_feels_like_a_cult/hpk2c5c/)
+- [/u/joehx on Weekly Self-Promotion Thread - December 22, 2021](https://www.reddit.com/r/financialindependence/comments/rm212i/weekly_selfpromotion_thread_december_22_2021/hpk17qr/)
 - [December 2021 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/rkqoij/december_2021_blog_statistics/)
 - [/u/joehx on What is a conversation people are having today that would be ridiculous 10 years ago?](https://www.reddit.com/r/AskReddit/comments/rjj53x/what_is_a_conversation_people_are_having_today/hp4kwan/)
 - [/u/joehx on What are you getting your mother for Christmas this year?](https://www.reddit.com/r/AskReddit/comments/rivyok/what_are_you_getting_your_mother_for_christmas/hozxdcc/)
-- [/u/joehx on What are you getting your mother for Christmas this year?](https://www.reddit.com/r/AskReddit/comments/rivyok/what_are_you_getting_your_mother_for_christmas/hozupgy/)
-- [What are you getting your mother for Christmas this year?](https://www.reddit.com/r/AskReddit/comments/rivyok/what_are_you_getting_your_mother_for_christmas/)
 <!-- REDDIT:END -->
