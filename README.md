@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A rare picture of Bleu, when he&#39;s not destroying the house](https://news.puppy-snuggles.com/12588545/a-rare-picture-of-bleu-when-hes-not-destroying-the-house)
-- [Caption this image](https://news.puppy-snuggles.com/12491919/caption-this-image)
-- [My baby girl Mia](https://news.puppy-snuggles.com/8790796/my-baby-girl-mia)
-- [Whatcha doin dad?](https://news.puppy-snuggles.com/12522091/whatcha-doin-dad)
-- [Photoshoot with Bash!](https://news.puppy-snuggles.com/12499192/photoshoot-with-bash)
+- [Vicious hairy beast in attack mode.](https://news.puppy-snuggles.com/11538899/vicious-hairy-beast-in-attack-mode)
+- [My happy mountain girl 🏔](https://news.puppy-snuggles.com/10682664/my-happy-mountain-girl)
+- [Our little boy Pazuzu!](https://news.puppy-snuggles.com/9874733/our-little-boy-pazuzu)
+- [When you try to eat a pizza in solitude.](https://news.puppy-snuggles.com/9453522/when-you-try-to-eat-a-pizza-in-solitude)
+- [Hii everyone! New to the group! I love waving hello 🐶🐶](https://news.puppy-snuggles.com/6955624/hii-everyone-new-to-the-group-i-love-waving-hello)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
