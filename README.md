@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Vicious hairy beast in attack mode.](https://news.puppy-snuggles.com/11538899/vicious-hairy-beast-in-attack-mode)
-- [My happy mountain girl 🏔](https://news.puppy-snuggles.com/10682664/my-happy-mountain-girl)
-- [Our little boy Pazuzu!](https://news.puppy-snuggles.com/9874733/our-little-boy-pazuzu)
-- [When you try to eat a pizza in solitude.](https://news.puppy-snuggles.com/9453522/when-you-try-to-eat-a-pizza-in-solitude)
-- [Hii everyone! New to the group! I love waving hello 🐶🐶](https://news.puppy-snuggles.com/6955624/hii-everyone-new-to-the-group-i-love-waving-hello)
+- [Em&#39;s subtle smile with a not so subtle underbite.](https://news.puppy-snuggles.com/8701209/ems-subtle-smile-with-a-not-so-subtle-underbite)
+- [George in the landscape](https://news.puppy-snuggles.com/4125090/george-in-the-landscape)
+- [Howling at fire trucks](https://news.puppy-snuggles.com/7099528/howling-at-fire-trucks)
+- [All things bright and beautiful](https://news.puppy-snuggles.com/9395247/all-things-bright-and-beautiful)
+- [Woof woof](https://news.puppy-snuggles.com/7892139/woof-woof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
