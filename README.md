@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Em&#39;s subtle smile with a not so subtle underbite.](https://news.puppy-snuggles.com/8701209/ems-subtle-smile-with-a-not-so-subtle-underbite)
-- [George in the landscape](https://news.puppy-snuggles.com/4125090/george-in-the-landscape)
-- [Howling at fire trucks](https://news.puppy-snuggles.com/7099528/howling-at-fire-trucks)
-- [All things bright and beautiful](https://news.puppy-snuggles.com/9395247/all-things-bright-and-beautiful)
-- [Woof woof](https://news.puppy-snuggles.com/7892139/woof-woof)
+- [Pepper the Bernese Mountain Dog](https://news.puppy-snuggles.com/9416509/pepper-the-bernese-mountain-dog)
+- [A good boy indeed.](https://news.puppy-snuggles.com/11885438/a-good-boy-indeed)
+- [Happy Humphrey does a frolic](https://news.puppy-snuggles.com/12293513/happy-humphrey-does-a-frolic)
+- [My new foster pup Lacey. First dog since my pup passed away last month. She’s soo sweet I really hope to find her a good home.](https://news.puppy-snuggles.com/12671821/my-new-foster-pup-lacey-first-dog-since-my-pup-passed-away-last-month-shes-soo-sweet-i-really-hope-to-find-her-a-good-home)
+- [More of Lula](https://news.puppy-snuggles.com/7636954/more-of-lula)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
