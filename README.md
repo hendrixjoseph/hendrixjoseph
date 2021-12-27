@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pepper the Bernese Mountain Dog](https://news.puppy-snuggles.com/9416509/pepper-the-bernese-mountain-dog)
-- [A good boy indeed.](https://news.puppy-snuggles.com/11885438/a-good-boy-indeed)
-- [Happy Humphrey does a frolic](https://news.puppy-snuggles.com/12293513/happy-humphrey-does-a-frolic)
-- [My new foster pup Lacey. First dog since my pup passed away last month. She’s soo sweet I really hope to find her a good home.](https://news.puppy-snuggles.com/12671821/my-new-foster-pup-lacey-first-dog-since-my-pup-passed-away-last-month-shes-soo-sweet-i-really-hope-to-find-her-a-good-home)
-- [More of Lula](https://news.puppy-snuggles.com/7636954/more-of-lula)
+- [Lots of personality in this room. From left: Pyrenees/Austrian cattle dog/border collie &lpar;2 years&rpar;, German shepherd/cattle dog/kookie &lpar;5&rpar;, and husky/poodle &lpar;2 months&rpar;](https://news.puppy-snuggles.com/7410620/lots-of-personality-in-this-room-from-left-pyreneesaustrian-cattle-dogborder-collie-2-years-german-shepherdcattle-dogkookie-5-and-huskypoodle-2-months)
+- [Merry Xmas from the crew](https://news.puppy-snuggles.com/12693280/merry-xmas-from-the-crew)
+- [Reggie is all smiles when seeing me for the first time after lockdown](https://news.puppy-snuggles.com/6710773/reggie-is-all-smiles-when-seeing-me-for-the-first-time-after-lockdown)
+- [My girl, Ash.](https://news.puppy-snuggles.com/11037962/my-girl-ash)
+- [Look at my handsome boy!](https://news.puppy-snuggles.com/7625225/look-at-my-handsome-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
