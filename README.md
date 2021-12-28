@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lots of personality in this room. From left: Pyrenees/Austrian cattle dog/border collie &lpar;2 years&rpar;, German shepherd/cattle dog/kookie &lpar;5&rpar;, and husky/poodle &lpar;2 months&rpar;](https://news.puppy-snuggles.com/7410620/lots-of-personality-in-this-room-from-left-pyreneesaustrian-cattle-dogborder-collie-2-years-german-shepherdcattle-dogkookie-5-and-huskypoodle-2-months)
-- [Merry Xmas from the crew](https://news.puppy-snuggles.com/12693280/merry-xmas-from-the-crew)
-- [Reggie is all smiles when seeing me for the first time after lockdown](https://news.puppy-snuggles.com/6710773/reggie-is-all-smiles-when-seeing-me-for-the-first-time-after-lockdown)
-- [My girl, Ash.](https://news.puppy-snuggles.com/11037962/my-girl-ash)
-- [Look at my handsome boy!](https://news.puppy-snuggles.com/7625225/look-at-my-handsome-boy)
+- [My mood this autumn haha](https://news.puppy-snuggles.com/11676122/my-mood-this-autumn-haha)
+- [Relaxing all day watching TV](https://news.puppy-snuggles.com/12718989/relaxing-all-day-watching-tv)
+- [Big happy goof](https://news.puppy-snuggles.com/9546122/big-happy-goof)
+- [My girl, Olga🤎](https://news.puppy-snuggles.com/9409177/my-girl-olga)
+- [My derp dog loves to lay like this](https://news.puppy-snuggles.com/8477064/my-derp-dog-loves-to-lay-like-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
