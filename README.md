@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mood this autumn haha](https://news.puppy-snuggles.com/11676122/my-mood-this-autumn-haha)
-- [Relaxing all day watching TV](https://news.puppy-snuggles.com/12718989/relaxing-all-day-watching-tv)
-- [Big happy goof](https://news.puppy-snuggles.com/9546122/big-happy-goof)
-- [My girl, Olga🤎](https://news.puppy-snuggles.com/9409177/my-girl-olga)
-- [My derp dog loves to lay like this](https://news.puppy-snuggles.com/8477064/my-derp-dog-loves-to-lay-like-this)
+- [Mission failed successfully! Both were fosters 3 years apart.](https://news.puppy-snuggles.com/12748796/mission-failed-successfully-both-were-fosters-3-years-apart)
+- [Happy weekend!](https://news.puppy-snuggles.com/12027599/happy-weekend)
+- [My Best Friend Penny&lpar; 7 yrs old&rpar; is coming to the end of the road. She was diagnosed with Gastric Cancer and given a week left of life. She&#39;s still strong enough for some adventures. What do you recommend doing or going to give her the best week of her life?](https://news.puppy-snuggles.com/12280301/my-best-friend-penny-7-yrs-old-is-coming-to-the-end-of-the-road-she-was-diagnosed-with-gastric-cancer-and-given-a-week-left-of-life-shes-still-strong-enough-for-some-adventures-what-do-you-recommend-doing-or-going-to-give-her-the-best-week-of-her-life)
+- [Chibs went to the groomer today, and was dubbed &amp;amp;quot;The sweetest Frenchie we have ever worked with!&amp;amp;quot;.](https://news.puppy-snuggles.com/10038940/chibs-went-to-the-groomer-today-and-was-dubbed-quotthe-sweetest-frenchie-we-have-ever-worked-withquot)
+- [Making Sure My Dog Lives Forever, Even If He Passes.](https://news.puppy-snuggles.com/4600716/making-sure-my-dog-lives-forever-even-if-he-passes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
