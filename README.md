@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet girl, Latte, enjoying her first snow &amp;amp;lt;3](https://news.puppy-snuggles.com/12777748/my-sweet-girl-latte-enjoying-her-first-snow-lt3)
-- [Our nervous pup on her first trip to the pub! She only barked at the barman once!](https://news.puppy-snuggles.com/8044298/our-nervous-pup-on-her-first-trip-to-the-pub-she-only-barked-at-the-barman-once)
-- [This Is how je looked small](https://news.puppy-snuggles.com/6844815/this-is-how-je-looked-small)
-- [This picture made my heart cry. My grandfather and dog in one picture enjoying each other.](https://news.puppy-snuggles.com/8996910/this-picture-made-my-heart-cry-my-grandfather-and-dog-in-one-picture-enjoying-each-other)
-- [One year later, still a lil big baby dog on a log](https://news.puppy-snuggles.com/9901604/one-year-later-still-a-lil-big-baby-dog-on-a-log)
+- [these eyes are boundless](https://news.puppy-snuggles.com/12799838/these-eyes-are-boundless)
+- [Paradise for every dog](https://news.puppy-snuggles.com/12807550/paradise-for-every-dog)
+- [We said goodbye to PJ today](https://news.puppy-snuggles.com/12807552/we-said-goodbye-to-pj-today)
+- [This is brilliant](https://news.puppy-snuggles.com/12807551/this-is-brilliant)
+- [In 3 hours I say goodbye to this beautiful 15 year old girl. I asked her to get me through this year, and she did. I owe her everything.](https://news.puppy-snuggles.com/12807554/in-3-hours-i-say-goodbye-to-this-beautiful-15-year-old-girl-i-asked-her-to-get-me-through-this-year-and-she-did-i-owe-her-everything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
