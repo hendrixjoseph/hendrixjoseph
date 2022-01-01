@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [these eyes are boundless](https://news.puppy-snuggles.com/12799838/these-eyes-are-boundless)
-- [Paradise for every dog](https://news.puppy-snuggles.com/12807550/paradise-for-every-dog)
-- [We said goodbye to PJ today](https://news.puppy-snuggles.com/12807552/we-said-goodbye-to-pj-today)
-- [This is brilliant](https://news.puppy-snuggles.com/12807551/this-is-brilliant)
-- [In 3 hours I say goodbye to this beautiful 15 year old girl. I asked her to get me through this year, and she did. I owe her everything.](https://news.puppy-snuggles.com/12807554/in-3-hours-i-say-goodbye-to-this-beautiful-15-year-old-girl-i-asked-her-to-get-me-through-this-year-and-she-did-i-owe-her-everything)
+- [Cookies](https://news.puppy-snuggles.com/11676124/cookies)
+- [Breed guesses?](https://news.puppy-snuggles.com/12829576/breed-guesses)
+- [The longest journey](https://news.puppy-snuggles.com/12829578/the-longest-journey)
+- [A super dramatic roll over trick!](https://news.puppy-snuggles.com/12836152/a-super-dramatic-roll-over-trick)
+- [My husband developed a fever and our rescue lab mix Daisy, won’t leave his side. She’s even been sleeping with her head on his head.](https://news.puppy-snuggles.com/12829575/my-husband-developed-a-fever-and-our-rescue-lab-mix-daisy-wont-leave-his-side-shes-even-been-sleeping-with-her-head-on-his-head)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
