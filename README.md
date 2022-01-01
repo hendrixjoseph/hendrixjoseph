@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on The 13 tho...](https://www.reddit.com/r/ProgrammerHumor/comments/rszzpd/the_13_tho/hqqb7cc/)
 - [What was the best thing that happened to you in 2021?](https://www.reddit.com/r/AskReddit/comments/rs6zb5/what_was_the_best_thing_that_happened_to_you_in/)
 - [/u/joehx on Daily FI discussion thread - Thursday, December 30, 2021](https://www.reddit.com/r/financialindependence/comments/rry9ex/daily_fi_discussion_thread_thursday_december_30/hqkdhbk/)
 - [/u/joehx on Best no annual fee credit card with no foreign transaction fees?](https://www.reddit.com/r/CreditCards/comments/rqm9qw/best_no_annual_fee_credit_card_with_no_foreign/hqb3x1s/)
 - [/u/joehx on What just screams “I’m a piece of shit”?](https://www.reddit.com/r/AskReddit/comments/rohnvi/what_just_screams_im_a_piece_of_shit/hpz9oer/)
-- [/u/joehx on What isn&#39;t a cult but feels like a cult?](https://www.reddit.com/r/AskReddit/comments/rlray8/what_isnt_a_cult_but_feels_like_a_cult/hpk2c5c/)
 <!-- REDDIT:END -->
