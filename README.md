@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cookies](https://news.puppy-snuggles.com/11676124/cookies)
-- [Breed guesses?](https://news.puppy-snuggles.com/12829576/breed-guesses)
-- [The longest journey](https://news.puppy-snuggles.com/12829578/the-longest-journey)
-- [A super dramatic roll over trick!](https://news.puppy-snuggles.com/12836152/a-super-dramatic-roll-over-trick)
-- [My husband developed a fever and our rescue lab mix Daisy, won’t leave his side. She’s even been sleeping with her head on his head.](https://news.puppy-snuggles.com/12829575/my-husband-developed-a-fever-and-our-rescue-lab-mix-daisy-wont-leave-his-side-shes-even-been-sleeping-with-her-head-on-his-head)
+- [Minion detected](https://news.puppy-snuggles.com/12597291/minion-detected)
+- [Tank never moved.](https://news.puppy-snuggles.com/7724988/tank-never-moved)
+- [The boy has grown up. [Tornjak]](https://news.puppy-snuggles.com/9628639/the-boy-has-grown-up-tornjak)
+- [puppy cuddles=puppy smiles](https://news.puppy-snuggles.com/7025047/puppy-cuddlespuppy-smiles)
+- [Happiest in the forest!](https://news.puppy-snuggles.com/11395070/happiest-in-the-forest)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
