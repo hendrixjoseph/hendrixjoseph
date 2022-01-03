@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Minion detected](https://news.puppy-snuggles.com/12597291/minion-detected)
-- [Tank never moved.](https://news.puppy-snuggles.com/7724988/tank-never-moved)
-- [The boy has grown up. [Tornjak]](https://news.puppy-snuggles.com/9628639/the-boy-has-grown-up-tornjak)
-- [puppy cuddles=puppy smiles](https://news.puppy-snuggles.com/7025047/puppy-cuddlespuppy-smiles)
-- [Happiest in the forest!](https://news.puppy-snuggles.com/11395070/happiest-in-the-forest)
+- [Yoga pup](https://news.puppy-snuggles.com/11558410/yoga-pup)
+- [3 dogs](https://news.puppy-snuggles.com/12885245/3-dogs)
+- [This is Fonzie. He is half golden retriever, half Akita. He has a golden face &amp;amp;amp; body with a brindle coat. He is beautiful and chill and I love him more than anything. Enjoy :&rpar;](https://news.puppy-snuggles.com/7644258/this-is-fonzie-he-is-half-golden-retriever-half-akita-he-has-a-golden-face-amp-body-with-a-brindle-coat-he-is-beautiful-and-chill-and-i-love-him-more-than-anything-enjoy)
+- [The happiest thing for dog is food](https://news.puppy-snuggles.com/12079823/the-happiest-thing-for-dog-is-food)
+- [The little guy likes to be alive and kicking, and finally he gets tired](https://news.puppy-snuggles.com/9728802/the-little-guy-likes-to-be-alive-and-kicking-and-finally-he-gets-tired)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
