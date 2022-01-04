@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yoga pup](https://news.puppy-snuggles.com/11558410/yoga-pup)
-- [3 dogs](https://news.puppy-snuggles.com/12885245/3-dogs)
-- [This is Fonzie. He is half golden retriever, half Akita. He has a golden face &amp;amp;amp; body with a brindle coat. He is beautiful and chill and I love him more than anything. Enjoy :&rpar;](https://news.puppy-snuggles.com/7644258/this-is-fonzie-he-is-half-golden-retriever-half-akita-he-has-a-golden-face-amp-body-with-a-brindle-coat-he-is-beautiful-and-chill-and-i-love-him-more-than-anything-enjoy)
-- [The happiest thing for dog is food](https://news.puppy-snuggles.com/12079823/the-happiest-thing-for-dog-is-food)
-- [The little guy likes to be alive and kicking, and finally he gets tired](https://news.puppy-snuggles.com/9728802/the-little-guy-likes-to-be-alive-and-kicking-and-finally-he-gets-tired)
+- [It’s 7 degrees in Anchorage today, but Ember is prepared for a walk around a frozen lake.](https://news.puppy-snuggles.com/11452986/its-7-degrees-in-anchorage-today-but-ember-is-prepared-for-a-walk-around-a-frozen-lake)
+- [Hello, i want to introduce myself! My name is Mia and this is my beatiful dog daisy! i wish everyone a great day! &amp;amp;lt;3](https://news.puppy-snuggles.com/10227138/hello-i-want-to-introduce-myself-my-name-is-mia-and-this-is-my-beatiful-dog-daisy-i-wish-everyone-a-great-day-lt3)
+- [Visiting Taal volcano, Philippines](https://news.puppy-snuggles.com/10045115/visiting-taal-volcano-philippines)
+- [Proud to bring you home buddy](https://news.puppy-snuggles.com/11945409/proud-to-bring-you-home-buddy)
+- [Ace needs a friend](https://news.puppy-snuggles.com/8904982/ace-needs-a-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
