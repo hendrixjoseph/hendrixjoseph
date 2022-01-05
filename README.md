@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s 7 degrees in Anchorage today, but Ember is prepared for a walk around a frozen lake.](https://news.puppy-snuggles.com/11452986/its-7-degrees-in-anchorage-today-but-ember-is-prepared-for-a-walk-around-a-frozen-lake)
-- [Hello, i want to introduce myself! My name is Mia and this is my beatiful dog daisy! i wish everyone a great day! &amp;amp;lt;3](https://news.puppy-snuggles.com/10227138/hello-i-want-to-introduce-myself-my-name-is-mia-and-this-is-my-beatiful-dog-daisy-i-wish-everyone-a-great-day-lt3)
-- [Visiting Taal volcano, Philippines](https://news.puppy-snuggles.com/10045115/visiting-taal-volcano-philippines)
-- [Proud to bring you home buddy](https://news.puppy-snuggles.com/11945409/proud-to-bring-you-home-buddy)
-- [Ace needs a friend](https://news.puppy-snuggles.com/8904982/ace-needs-a-friend)
+- [Almost 1 years old my boy is growing fast and looking like a dog](https://news.puppy-snuggles.com/11838632/almost-1-years-old-my-boy-is-growing-fast-and-looking-like-a-dog)
+- [I made dog tag from polymer clay](https://news.puppy-snuggles.com/10141669/i-made-dog-tag-from-polymer-clay)
+- [New addition to the family!](https://news.puppy-snuggles.com/11395073/new-addition-to-the-family)
+- [First day home and the first time in the park](https://news.puppy-snuggles.com/12947232/first-day-home-and-the-first-time-in-the-park)
+- [They say this beagle basset maybe mix is too big. Even though we don’t over feed him. Is it possible that he’s naturally big?](https://news.puppy-snuggles.com/7548332/they-say-this-beagle-basset-maybe-mix-is-too-big-even-though-we-dont-over-feed-him-is-it-possible-that-hes-naturally-big)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
