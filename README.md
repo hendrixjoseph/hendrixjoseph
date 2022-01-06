@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Almost 1 years old my boy is growing fast and looking like a dog](https://news.puppy-snuggles.com/11838632/almost-1-years-old-my-boy-is-growing-fast-and-looking-like-a-dog)
-- [I made dog tag from polymer clay](https://news.puppy-snuggles.com/10141669/i-made-dog-tag-from-polymer-clay)
-- [New addition to the family!](https://news.puppy-snuggles.com/11395073/new-addition-to-the-family)
-- [First day home and the first time in the park](https://news.puppy-snuggles.com/12947232/first-day-home-and-the-first-time-in-the-park)
-- [They say this beagle basset maybe mix is too big. Even though we don’t over feed him. Is it possible that he’s naturally big?](https://news.puppy-snuggles.com/7548332/they-say-this-beagle-basset-maybe-mix-is-too-big-even-though-we-dont-over-feed-him-is-it-possible-that-hes-naturally-big)
+- [Our rescue, Sadie. Weeks one &lpar;with us&rpar; and six months down the track. Don&#39;t worry she&#39;s not mistreated, she just has resting sad face.](https://news.puppy-snuggles.com/4489797/our-rescue-sadie-weeks-one-with-us-and-six-months-down-the-track-dont-worry-shes-not-mistreated-she-just-has-resting-sad-face)
+- [I&#39;ve been sick from the booster shot and my baby girl never left my side](https://news.puppy-snuggles.com/12981228/ive-been-sick-from-the-booster-shot-and-my-baby-girl-never-left-my-side)
+- [10 years old, but still has the smile of a puppy!](https://news.puppy-snuggles.com/7915224/10-years-old-but-still-has-the-smile-of-a-puppy)
+- [Just a few popular dog breeds then vs now - please stop breeding dog breeds with such exaggerated features their health suffers.](https://news.puppy-snuggles.com/12021015/just-a-few-popular-dog-breeds-then-vs-now-please-stop-breeding-dog-breeds-with-such-exaggerated-features-their-health-suffers)
+- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
