@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our rescue, Sadie. Weeks one &lpar;with us&rpar; and six months down the track. Don&#39;t worry she&#39;s not mistreated, she just has resting sad face.](https://news.puppy-snuggles.com/4489797/our-rescue-sadie-weeks-one-with-us-and-six-months-down-the-track-dont-worry-shes-not-mistreated-she-just-has-resting-sad-face)
-- [I&#39;ve been sick from the booster shot and my baby girl never left my side](https://news.puppy-snuggles.com/12981228/ive-been-sick-from-the-booster-shot-and-my-baby-girl-never-left-my-side)
-- [10 years old, but still has the smile of a puppy!](https://news.puppy-snuggles.com/7915224/10-years-old-but-still-has-the-smile-of-a-puppy)
-- [Just a few popular dog breeds then vs now - please stop breeding dog breeds with such exaggerated features their health suffers.](https://news.puppy-snuggles.com/12021015/just-a-few-popular-dog-breeds-then-vs-now-please-stop-breeding-dog-breeds-with-such-exaggerated-features-their-health-suffers)
-- [Dog Kept Guard Over Owner David Deshon Who Was Found Dead In Snow](https://news.puppy-snuggles.com/3911808/dog-kept-guard-over-owner-david-deshon-who-was-found-dead-in-snow)
+- [Took this on my phone and had to share, my favourite girl!](https://news.puppy-snuggles.com/7491073/took-this-on-my-phone-and-had-to-share-my-favourite-girl)
+- [My dog Bruno &lpar;12&rpar; unexpectedly passed away today. May he have all the treats over the rainbow 🌈](https://news.puppy-snuggles.com/13013997/my-dog-bruno-12-unexpectedly-passed-away-today-may-he-have-all-the-treats-over-the-rainbow)
+- [don’t really know what the point of this post is but this is my first christmas without my dog since i was 6 or 7 and it’s really strange so i wanted to share her here &amp;amp;lt;3](https://news.puppy-snuggles.com/12238692/dont-really-know-what-the-point-of-this-post-is-but-this-is-my-first-christmas-without-my-dog-since-i-was-6-or-7-and-its-really-strange-so-i-wanted-to-share-her-here-lt3)
+- [Tribute to my first boy, Finn](https://news.puppy-snuggles.com/12096956/tribute-to-my-first-boy-finn)
+- [Wow, nice teefs!](https://news.puppy-snuggles.com/11254034/wow-nice-teefs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
