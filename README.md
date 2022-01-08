@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Took this on my phone and had to share, my favourite girl!](https://news.puppy-snuggles.com/7491073/took-this-on-my-phone-and-had-to-share-my-favourite-girl)
-- [My dog Bruno &lpar;12&rpar; unexpectedly passed away today. May he have all the treats over the rainbow 🌈](https://news.puppy-snuggles.com/13013997/my-dog-bruno-12-unexpectedly-passed-away-today-may-he-have-all-the-treats-over-the-rainbow)
-- [don’t really know what the point of this post is but this is my first christmas without my dog since i was 6 or 7 and it’s really strange so i wanted to share her here &amp;amp;lt;3](https://news.puppy-snuggles.com/12238692/dont-really-know-what-the-point-of-this-post-is-but-this-is-my-first-christmas-without-my-dog-since-i-was-6-or-7-and-its-really-strange-so-i-wanted-to-share-her-here-lt3)
-- [Tribute to my first boy, Finn](https://news.puppy-snuggles.com/12096956/tribute-to-my-first-boy-finn)
-- [Wow, nice teefs!](https://news.puppy-snuggles.com/11254034/wow-nice-teefs)
+- [Hiking with corgis by the nigardsbreen glacier national park in Norway 🐶](https://news.puppy-snuggles.com/4116924/hiking-with-corgis-by-the-nigardsbreen-glacier-national-park-in-norway)
+- [Happy gotcha day to our Bridget. Two years ago she came for a sleepover and never left.](https://news.puppy-snuggles.com/11244722/happy-gotcha-day-to-our-bridget-two-years-ago-she-came-for-a-sleepover-and-never-left)
+- [So heartbroken to have lost my best friend of almost 15 yrs. You were the best boy Jack 💔](https://news.puppy-snuggles.com/13047104/so-heartbroken-to-have-lost-my-best-friend-of-almost-15-yrs-you-were-the-best-boy-jack)
+- [Clementine on her way to her furever home!](https://news.puppy-snuggles.com/13047105/clementine-on-her-way-to-her-furever-home)
+- [The most bad ass dog ever](https://news.puppy-snuggles.com/13047106/the-most-bad-ass-dog-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
