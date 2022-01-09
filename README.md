@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hiking with corgis by the nigardsbreen glacier national park in Norway 🐶](https://news.puppy-snuggles.com/4116924/hiking-with-corgis-by-the-nigardsbreen-glacier-national-park-in-norway)
-- [Happy gotcha day to our Bridget. Two years ago she came for a sleepover and never left.](https://news.puppy-snuggles.com/11244722/happy-gotcha-day-to-our-bridget-two-years-ago-she-came-for-a-sleepover-and-never-left)
-- [So heartbroken to have lost my best friend of almost 15 yrs. You were the best boy Jack 💔](https://news.puppy-snuggles.com/13047104/so-heartbroken-to-have-lost-my-best-friend-of-almost-15-yrs-you-were-the-best-boy-jack)
-- [Clementine on her way to her furever home!](https://news.puppy-snuggles.com/13047105/clementine-on-her-way-to-her-furever-home)
-- [The most bad ass dog ever](https://news.puppy-snuggles.com/13047106/the-most-bad-ass-dog-ever)
+- [My doggo Maq looks like Dollar Tree Theodore Roosevelt](https://news.puppy-snuggles.com/13069020/my-doggo-maq-looks-like-dollar-tree-theodore-roosevelt)
+- [His first smile](https://news.puppy-snuggles.com/5302072/his-first-smile)
+- [This is the Good Boy Sid. He always looks depressed but he&#39;s The Good Boy. Tell him he is a good boy or perish.](https://news.puppy-snuggles.com/13075147/this-is-the-good-boy-sid-he-always-looks-depressed-but-hes-the-good-boy-tell-him-he-is-a-good-boy-or-perish)
+- [Keep your little pals warm](https://news.puppy-snuggles.com/13075145/keep-your-little-pals-warm)
+- [Power of his nose is to great](https://news.puppy-snuggles.com/13069019/power-of-his-nose-is-to-great)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
