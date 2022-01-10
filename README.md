@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My doggo Maq looks like Dollar Tree Theodore Roosevelt](https://news.puppy-snuggles.com/13069020/my-doggo-maq-looks-like-dollar-tree-theodore-roosevelt)
-- [His first smile](https://news.puppy-snuggles.com/5302072/his-first-smile)
-- [This is the Good Boy Sid. He always looks depressed but he&#39;s The Good Boy. Tell him he is a good boy or perish.](https://news.puppy-snuggles.com/13075147/this-is-the-good-boy-sid-he-always-looks-depressed-but-hes-the-good-boy-tell-him-he-is-a-good-boy-or-perish)
-- [Keep your little pals warm](https://news.puppy-snuggles.com/13075145/keep-your-little-pals-warm)
-- [Power of his nose is to great](https://news.puppy-snuggles.com/13069019/power-of-his-nose-is-to-great)
+- [My puppy doing his best smile](https://news.puppy-snuggles.com/10024106/my-puppy-doing-his-best-smile)
+- [Memphis Belle - Breed mix?](https://news.puppy-snuggles.com/13075140/memphis-belle-breed-mix)
+- [Vet tech sent me a picture of Maggie’s first visit!](https://news.puppy-snuggles.com/4531765/vet-tech-sent-me-a-picture-of-maggies-first-visit)
+- [A bundle of happiness](https://news.puppy-snuggles.com/9490070/a-bundle-of-happiness)
+- [Old man is all ears.](https://news.puppy-snuggles.com/13099237/old-man-is-all-ears)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
