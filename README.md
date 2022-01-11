@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy doing his best smile](https://news.puppy-snuggles.com/10024106/my-puppy-doing-his-best-smile)
-- [Memphis Belle - Breed mix?](https://news.puppy-snuggles.com/13075140/memphis-belle-breed-mix)
-- [Vet tech sent me a picture of Maggie’s first visit!](https://news.puppy-snuggles.com/4531765/vet-tech-sent-me-a-picture-of-maggies-first-visit)
-- [A bundle of happiness](https://news.puppy-snuggles.com/9490070/a-bundle-of-happiness)
-- [Old man is all ears.](https://news.puppy-snuggles.com/13099237/old-man-is-all-ears)
+- [How boopable is my nose on a scale from 1-have to boop?](https://news.puppy-snuggles.com/6975366/how-boopable-is-my-nose-on-a-scale-from-1-have-to-boop)
+- [Another gem from her smol phase VS at 7 months](https://news.puppy-snuggles.com/13120940/another-gem-from-her-smol-phase-vs-at-7-months)
+- [Absolutely loves her Thames beach visits!](https://news.puppy-snuggles.com/13120938/absolutely-loves-her-thames-beach-visits)
+- [I adopted him [white] today...I have another female dog [black] named Kira... Any name suggestions for the new pupper](https://news.puppy-snuggles.com/13120939/i-adopted-him-white-todayi-have-another-female-dog-black-named-kira-any-name-suggestions-for-the-new-pupper)
+- [Guard Dog on Duty](https://news.puppy-snuggles.com/13120935/guard-dog-on-duty)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
