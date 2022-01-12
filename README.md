@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How boopable is my nose on a scale from 1-have to boop?](https://news.puppy-snuggles.com/6975366/how-boopable-is-my-nose-on-a-scale-from-1-have-to-boop)
-- [Another gem from her smol phase VS at 7 months](https://news.puppy-snuggles.com/13120940/another-gem-from-her-smol-phase-vs-at-7-months)
-- [Absolutely loves her Thames beach visits!](https://news.puppy-snuggles.com/13120938/absolutely-loves-her-thames-beach-visits)
-- [I adopted him [white] today...I have another female dog [black] named Kira... Any name suggestions for the new pupper](https://news.puppy-snuggles.com/13120939/i-adopted-him-white-todayi-have-another-female-dog-black-named-kira-any-name-suggestions-for-the-new-pupper)
-- [Guard Dog on Duty](https://news.puppy-snuggles.com/13120935/guard-dog-on-duty)
+- [be happy](https://news.puppy-snuggles.com/13163369/be-happy)
+- [Wally the waterdog](https://news.puppy-snuggles.com/6817465/wally-the-waterdog)
+- [Athena Olive the prettiest tripod](https://news.puppy-snuggles.com/13163364/athena-olive-the-prettiest-tripod)
+- [My better half](https://news.puppy-snuggles.com/13163368/my-better-half)
+- [He seems to take special care of him](https://news.puppy-snuggles.com/13163365/he-seems-to-take-special-care-of-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
