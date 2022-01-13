@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - January 12, 2022](https://www.reddit.com/r/financialindependence/comments/s22qk6/weekly_selfpromotion_thread_january_12_2022/hscggji/)
+- [2022 New Year&#39;s Resolutions &amp;amp; Goals](https://www.reddit.com/r/Blogswap/comments/s1v1r6/2022_new_years_resolutions_amp_goals/)
 - [/u/joehx on People who stop 10-15 feet from the line at a stoplight, why?](https://www.reddit.com/r/AskReddit/comments/ryqqd1/people_who_stop_1015_feet_from_the_line_at_a/hrtwin7/)
 - [/u/joehx on The 13 tho...](https://www.reddit.com/r/ProgrammerHumor/comments/rszzpd/the_13_tho/hqqb7cc/)
 - [What was the best thing that happened to you in 2021?](https://www.reddit.com/r/AskReddit/comments/rs6zb5/what_was_the_best_thing_that_happened_to_you_in/)
-- [/u/joehx on Daily FI discussion thread - Thursday, December 30, 2021](https://www.reddit.com/r/financialindependence/comments/rry9ex/daily_fi_discussion_thread_thursday_december_30/hqkdhbk/)
-- [/u/joehx on Best no annual fee credit card with no foreign transaction fees?](https://www.reddit.com/r/CreditCards/comments/rqm9qw/best_no_annual_fee_credit_card_with_no_foreign/hqb3x1s/)
 <!-- REDDIT:END -->
