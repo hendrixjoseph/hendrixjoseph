@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [be happy](https://news.puppy-snuggles.com/13163369/be-happy)
-- [Wally the waterdog](https://news.puppy-snuggles.com/6817465/wally-the-waterdog)
-- [Athena Olive the prettiest tripod](https://news.puppy-snuggles.com/13163364/athena-olive-the-prettiest-tripod)
-- [My better half](https://news.puppy-snuggles.com/13163368/my-better-half)
-- [He seems to take special care of him](https://news.puppy-snuggles.com/13163365/he-seems-to-take-special-care-of-him)
+- [What a smart](https://news.puppy-snuggles.com/13199068/what-a-smart)
+- [You can tell my dog felt quite majestic in his little sweater](https://news.puppy-snuggles.com/13069017/you-can-tell-my-dog-felt-quite-majestic-in-his-little-sweater)
+- [I miss you every single day Honey, my sweet angel &lpar;swipe for a cute puppy picture&rpar;](https://news.puppy-snuggles.com/13199071/i-miss-you-every-single-day-honey-my-sweet-angel-swipe-for-a-cute-puppy-picture)
+- [Queen Reina wants to say hello!](https://news.puppy-snuggles.com/10304620/queen-reina-wants-to-say-hello)
+- [This is Luna! She likes rocks!](https://news.puppy-snuggles.com/7410617/this-is-luna-she-likes-rocks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
