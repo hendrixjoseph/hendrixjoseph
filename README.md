@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What a smart](https://news.puppy-snuggles.com/13199068/what-a-smart)
-- [You can tell my dog felt quite majestic in his little sweater](https://news.puppy-snuggles.com/13069017/you-can-tell-my-dog-felt-quite-majestic-in-his-little-sweater)
-- [I miss you every single day Honey, my sweet angel &lpar;swipe for a cute puppy picture&rpar;](https://news.puppy-snuggles.com/13199071/i-miss-you-every-single-day-honey-my-sweet-angel-swipe-for-a-cute-puppy-picture)
-- [Queen Reina wants to say hello!](https://news.puppy-snuggles.com/10304620/queen-reina-wants-to-say-hello)
-- [This is Luna! She likes rocks!](https://news.puppy-snuggles.com/7410617/this-is-luna-she-likes-rocks)
+- [Play rogue?](https://news.puppy-snuggles.com/13233636/play-rogue)
+- [Having fun at the dunes🐕](https://news.puppy-snuggles.com/7521481/having-fun-at-the-dunes)
+- [my benji bear 💙 the goodest boy](https://news.puppy-snuggles.com/10363115/my-benji-bear-the-goodest-boy)
+- [Tired out](https://news.puppy-snuggles.com/13233635/tired-out)
+- [puppy puppy puppy](https://news.puppy-snuggles.com/9755137/puppy-puppy-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
