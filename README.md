@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Posted last month about my girl saying goodbye, my wife got me a shadow box for her, got it set up last night. Love your babies as hard as you can!](https://news.puppy-snuggles.com/13267530/posted-last-month-about-my-girl-saying-goodbye-my-wife-got-me-a-shadow-box-for-her-got-it-set-up-last-night-love-your-babies-as-hard-as-you-can)
-- [yesterday was a perfect day for a walk around Bradford Reservoir.](https://news.puppy-snuggles.com/10266359/yesterday-was-a-perfect-day-for-a-walk-around-bradford-reservoir)
-- [people seemed to like the other picture of fox, so here&#39;s some more!](https://news.puppy-snuggles.com/13267536/people-seemed-to-like-the-other-picture-of-fox-so-heres-some-more)
-- [I - I&#39;m not a baby anymore... Right?](https://news.puppy-snuggles.com/13005329/i-im-not-a-baby-anymore-right)
-- [His face when he sees his ball](https://news.puppy-snuggles.com/6859474/his-face-when-he-sees-his-ball)
+- [My dogs looking at me like, &amp;amp;quot;We&#39;ve been pretty good. Why don&#39;t you take us for a walk or something?&amp;amp;quot;](https://news.puppy-snuggles.com/13295959/my-dogs-looking-at-me-like-quotweve-been-pretty-good-why-dont-you-take-us-for-a-walk-or-somethingquot)
+- [When i tell him we need to go home..](https://news.puppy-snuggles.com/13289369/when-i-tell-him-we-need-to-go-home)
+- [Just Chilling With My Eyes Closed, How Bout U?!](https://news.puppy-snuggles.com/13295957/just-chilling-with-my-eyes-closed-how-bout-u)
+- [My sweet girl Katrina turned 6 today](https://news.puppy-snuggles.com/9381726/my-sweet-girl-katrina-turned-6-today)
+- [It’s 0 degrees outside. We’ll stay here.](https://news.puppy-snuggles.com/13295958/its-0-degrees-outside-well-stay-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
