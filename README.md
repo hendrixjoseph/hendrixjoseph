@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dogs looking at me like, &amp;amp;quot;We&#39;ve been pretty good. Why don&#39;t you take us for a walk or something?&amp;amp;quot;](https://news.puppy-snuggles.com/13295959/my-dogs-looking-at-me-like-quotweve-been-pretty-good-why-dont-you-take-us-for-a-walk-or-somethingquot)
-- [When i tell him we need to go home..](https://news.puppy-snuggles.com/13289369/when-i-tell-him-we-need-to-go-home)
-- [Just Chilling With My Eyes Closed, How Bout U?!](https://news.puppy-snuggles.com/13295957/just-chilling-with-my-eyes-closed-how-bout-u)
-- [My sweet girl Katrina turned 6 today](https://news.puppy-snuggles.com/9381726/my-sweet-girl-katrina-turned-6-today)
-- [It’s 0 degrees outside. We’ll stay here.](https://news.puppy-snuggles.com/13295958/its-0-degrees-outside-well-stay-here)
+- [My King Cavalier dog keeps attacking his own foot periodically. Any ideas what the issue may be? I&#39;ve confirmed there&#39;s no sore on his foot that could be causing the irritation](https://news.puppy-snuggles.com/13315244/my-king-cavalier-dog-keeps-attacking-his-own-foot-periodically-any-ideas-what-the-issue-may-be-ive-confirmed-theres-no-sore-on-his-foot-that-could-be-causing-the-irritation)
+- [Happy 5th Birthday to this guy!](https://news.puppy-snuggles.com/5311831/happy-5th-birthday-to-this-guy)
+- [Meet Stanley, the newest member of our family!](https://news.puppy-snuggles.com/5176934/meet-stanley-the-newest-member-of-our-family)
+- [My delightful dog](https://news.puppy-snuggles.com/13295954/my-delightful-dog)
+- [Goldie, the sweetest pupper ever!](https://news.puppy-snuggles.com/10279626/goldie-the-sweetest-pupper-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
