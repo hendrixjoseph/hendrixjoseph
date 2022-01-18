@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My King Cavalier dog keeps attacking his own foot periodically. Any ideas what the issue may be? I&#39;ve confirmed there&#39;s no sore on his foot that could be causing the irritation](https://news.puppy-snuggles.com/13315244/my-king-cavalier-dog-keeps-attacking-his-own-foot-periodically-any-ideas-what-the-issue-may-be-ive-confirmed-theres-no-sore-on-his-foot-that-could-be-causing-the-irritation)
-- [Happy 5th Birthday to this guy!](https://news.puppy-snuggles.com/5311831/happy-5th-birthday-to-this-guy)
-- [Meet Stanley, the newest member of our family!](https://news.puppy-snuggles.com/5176934/meet-stanley-the-newest-member-of-our-family)
-- [My delightful dog](https://news.puppy-snuggles.com/13295954/my-delightful-dog)
-- [Goldie, the sweetest pupper ever!](https://news.puppy-snuggles.com/10279626/goldie-the-sweetest-pupper-ever)
+- [Koby being cheeky](https://news.puppy-snuggles.com/8069613/koby-being-cheeky)
+- [Just wanted to show the world how beautiful he was. RIP Tank](https://news.puppy-snuggles.com/11593178/just-wanted-to-show-the-world-how-beautiful-he-was-rip-tank)
+- [Last few days have been really rough, he had to get put down yesterday, &lpar;first two pics are the last I got of him&rpar;](https://news.puppy-snuggles.com/9954005/last-few-days-have-been-really-rough-he-had-to-get-put-down-yesterday-first-two-pics-are-the-last-i-got-of-him)
+- [Snuggled up with all the toys. My doggie parents have me spoiled.](https://news.puppy-snuggles.com/8155757/snuggled-up-with-all-the-toys-my-doggie-parents-have-me-spoiled)
+- [I literally just made a post saying how bad he Is on walks and I think he took that personally and decided to be completly good out of spite. I love him.](https://news.puppy-snuggles.com/13343045/i-literally-just-made-a-post-saying-how-bad-he-is-on-walks-and-i-think-he-took-that-personally-and-decided-to-be-completly-good-out-of-spite-i-love-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
