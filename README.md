@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Koby being cheeky](https://news.puppy-snuggles.com/8069613/koby-being-cheeky)
-- [Just wanted to show the world how beautiful he was. RIP Tank](https://news.puppy-snuggles.com/11593178/just-wanted-to-show-the-world-how-beautiful-he-was-rip-tank)
-- [Last few days have been really rough, he had to get put down yesterday, &lpar;first two pics are the last I got of him&rpar;](https://news.puppy-snuggles.com/9954005/last-few-days-have-been-really-rough-he-had-to-get-put-down-yesterday-first-two-pics-are-the-last-i-got-of-him)
-- [Snuggled up with all the toys. My doggie parents have me spoiled.](https://news.puppy-snuggles.com/8155757/snuggled-up-with-all-the-toys-my-doggie-parents-have-me-spoiled)
-- [I literally just made a post saying how bad he Is on walks and I think he took that personally and decided to be completly good out of spite. I love him.](https://news.puppy-snuggles.com/13343045/i-literally-just-made-a-post-saying-how-bad-he-is-on-walks-and-i-think-he-took-that-personally-and-decided-to-be-completly-good-out-of-spite-i-love-him)
+- [Sweet Little Annie Mae](https://news.puppy-snuggles.com/11851700/sweet-little-annie-mae)
+- [Ears big enough to take off😁](https://news.puppy-snuggles.com/10767732/ears-big-enough-to-take-off)
+- [Since alot are doing it - Rate my dog](https://news.puppy-snuggles.com/12222388/since-alot-are-doing-it-rate-my-dog)
+- [My dogs give off drastically different vibes](https://news.puppy-snuggles.com/13328440/my-dogs-give-off-drastically-different-vibes)
+- [Our spoiled Aussie/Beagle mix puppy.](https://news.puppy-snuggles.com/11460698/our-spoiled-aussiebeagle-mix-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
