@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sweet Little Annie Mae](https://news.puppy-snuggles.com/11851700/sweet-little-annie-mae)
-- [Ears big enough to take off😁](https://news.puppy-snuggles.com/10767732/ears-big-enough-to-take-off)
-- [Since alot are doing it - Rate my dog](https://news.puppy-snuggles.com/12222388/since-alot-are-doing-it-rate-my-dog)
-- [My dogs give off drastically different vibes](https://news.puppy-snuggles.com/13328440/my-dogs-give-off-drastically-different-vibes)
-- [Our spoiled Aussie/Beagle mix puppy.](https://news.puppy-snuggles.com/11460698/our-spoiled-aussiebeagle-mix-puppy)
+- [The happy bunch](https://news.puppy-snuggles.com/8037953/the-happy-bunch)
+- [‘Weight is overrated. Pet me instead’ 🐶](https://news.puppy-snuggles.com/13409541/weight-is-overrated-pet-me-instead)
+- [Best movie partner](https://news.puppy-snuggles.com/11488162/best-movie-partner)
+- [She grew up to be the dog version of Ronaldo 🥺](https://news.puppy-snuggles.com/9091285/she-grew-up-to-be-the-dog-version-of-ronaldo)
+- [Bridget and her candy cane nails for her last comfort dog visit of the year.](https://news.puppy-snuggles.com/12421881/bridget-and-her-candy-cane-nails-for-her-last-comfort-dog-visit-of-the-year)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
