@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The happy bunch](https://news.puppy-snuggles.com/8037953/the-happy-bunch)
-- [‘Weight is overrated. Pet me instead’ 🐶](https://news.puppy-snuggles.com/13409541/weight-is-overrated-pet-me-instead)
-- [Best movie partner](https://news.puppy-snuggles.com/11488162/best-movie-partner)
-- [She grew up to be the dog version of Ronaldo 🥺](https://news.puppy-snuggles.com/9091285/she-grew-up-to-be-the-dog-version-of-ronaldo)
-- [Bridget and her candy cane nails for her last comfort dog visit of the year.](https://news.puppy-snuggles.com/12421881/bridget-and-her-candy-cane-nails-for-her-last-comfort-dog-visit-of-the-year)
+- [Attention please. Look at my dog.](https://news.puppy-snuggles.com/11935498/attention-please-look-at-my-dog)
+- [Mid-walk rest always keeps this girl smiling](https://news.puppy-snuggles.com/11236684/mid-walk-rest-always-keeps-this-girl-smiling)
+- [Did a good boy, right after bath.](https://news.puppy-snuggles.com/13419007/did-a-good-boy-right-after-bath)
+- [Happy smiling faces](https://news.puppy-snuggles.com/13443962/happy-smiling-faces)
+- [The sweetest boy, Otis](https://news.puppy-snuggles.com/13443963/the-sweetest-boy-otis)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
