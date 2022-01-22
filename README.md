@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Attention please. Look at my dog.](https://news.puppy-snuggles.com/11935498/attention-please-look-at-my-dog)
-- [Mid-walk rest always keeps this girl smiling](https://news.puppy-snuggles.com/11236684/mid-walk-rest-always-keeps-this-girl-smiling)
-- [Did a good boy, right after bath.](https://news.puppy-snuggles.com/13419007/did-a-good-boy-right-after-bath)
-- [Happy smiling faces](https://news.puppy-snuggles.com/13443962/happy-smiling-faces)
-- [The sweetest boy, Otis](https://news.puppy-snuggles.com/13443963/the-sweetest-boy-otis)
+- [Woofessor Winnie.](https://news.puppy-snuggles.com/7529052/woofessor-winnie)
+- [What breed? I have a dna test so i do know](https://news.puppy-snuggles.com/13145565/what-breed-i-have-a-dna-test-so-i-do-know)
+- [One year update of my sweet girl.](https://news.puppy-snuggles.com/11996164/one-year-update-of-my-sweet-girl)
+- [Fairfield woman accused of killing dogs turns down plea bargain](https://news.puppy-snuggles.com/10429041/fairfield-woman-accused-of-killing-dogs-turns-down-plea-bargain)
+- [My boy is celebrating his 6 months anniversary &amp;amp;lt;3](https://news.puppy-snuggles.com/12620893/my-boy-is-celebrating-his-6-months-anniversary-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
