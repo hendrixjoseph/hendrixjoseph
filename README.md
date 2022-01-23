@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Woofessor Winnie.](https://news.puppy-snuggles.com/7529052/woofessor-winnie)
-- [What breed? I have a dna test so i do know](https://news.puppy-snuggles.com/13145565/what-breed-i-have-a-dna-test-so-i-do-know)
-- [One year update of my sweet girl.](https://news.puppy-snuggles.com/11996164/one-year-update-of-my-sweet-girl)
-- [Fairfield woman accused of killing dogs turns down plea bargain](https://news.puppy-snuggles.com/10429041/fairfield-woman-accused-of-killing-dogs-turns-down-plea-bargain)
-- [My boy is celebrating his 6 months anniversary &amp;amp;lt;3](https://news.puppy-snuggles.com/12620893/my-boy-is-celebrating-his-6-months-anniversary-lt3)
+- [Eileen has three legs, and an under-bite.](https://news.puppy-snuggles.com/12311095/eileen-has-three-legs-and-an-under-bite)
+- [When the owner is an idiot](https://news.puppy-snuggles.com/13485832/when-the-owner-is-an-idiot)
+- [Boomer](https://news.puppy-snuggles.com/13289374/boomer)
+- [Look who is not allowed in the kitchen](https://news.puppy-snuggles.com/5292806/look-who-is-not-allowed-in-the-kitchen)
+- [Meet Finn! He&#39;s a 2.5 month old Heeler mix and a good little boy.](https://news.puppy-snuggles.com/13499791/meet-finn-hes-a-25-month-old-heeler-mix-and-a-good-little-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
