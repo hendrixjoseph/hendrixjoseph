@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Eileen has three legs, and an under-bite.](https://news.puppy-snuggles.com/12311095/eileen-has-three-legs-and-an-under-bite)
-- [When the owner is an idiot](https://news.puppy-snuggles.com/13485832/when-the-owner-is-an-idiot)
-- [Boomer](https://news.puppy-snuggles.com/13289374/boomer)
-- [Look who is not allowed in the kitchen](https://news.puppy-snuggles.com/5292806/look-who-is-not-allowed-in-the-kitchen)
-- [Meet Finn! He&#39;s a 2.5 month old Heeler mix and a good little boy.](https://news.puppy-snuggles.com/13499791/meet-finn-hes-a-25-month-old-heeler-mix-and-a-good-little-boy)
+- [louie after a long hard day of barking , peeing and eating](https://news.puppy-snuggles.com/13393452/louie-after-a-long-hard-day-of-barking-peeing-and-eating)
+- [Cute little baby](https://news.puppy-snuggles.com/13529925/cute-little-baby)
+- [This is the youngest member in my family](https://news.puppy-snuggles.com/7892131/this-is-the-youngest-member-in-my-family)
+- [All of the good bois!!](https://news.puppy-snuggles.com/12905889/all-of-the-good-bois)
+- [Just went back to work this month..and missing my Rocko. Husband has been taking good care of him. He sent me this pic randomly because he knew I missed my little guy](https://news.puppy-snuggles.com/10285807/just-went-back-to-work-this-monthand-missing-my-rocko-husband-has-been-taking-good-care-of-him-he-sent-me-this-pic-randomly-because-he-knew-i-missed-my-little-guy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
