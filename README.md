@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Eddie Munster giving Remi attitude](https://news.puppy-snuggles.com/8871128/eddie-munster-giving-remi-attitude)
-- [Had to say goodbye to Molly today. She was such a sweet girl and had the best smile.](https://news.puppy-snuggles.com/11368099/had-to-say-goodbye-to-molly-today-she-was-such-a-sweet-girl-and-had-the-best-smile)
-- [Our little fur family is complete](https://news.puppy-snuggles.com/7575833/our-little-fur-family-is-complete)
-- [4 year challenge.](https://news.puppy-snuggles.com/13375855/4-year-challenge)
-- [Unpugged from the matrix](https://news.puppy-snuggles.com/7536889/unpugged-from-the-matrix)
+- [close the curtain ... I have my own atmosphere here](https://news.puppy-snuggles.com/13375850/close-the-curtain-i-have-my-own-atmosphere-here)
+- [I think have enough to make dog hair yarn and knit a sweater! Lol](https://news.puppy-snuggles.com/13529920/i-think-have-enough-to-make-dog-hair-yarn-and-knit-a-sweater-lol)
+- [Shes getting old but shes still as adorable as ever](https://news.puppy-snuggles.com/7244600/shes-getting-old-but-shes-still-as-adorable-as-ever)
+- [Woof woof](https://news.puppy-snuggles.com/7892139/woof-woof)
+- [Meet the Dude. Sweetest, smelliest, most loyal rescue pup I&#39;ve ever had.](https://news.puppy-snuggles.com/7744338/meet-the-dude-sweetest-smelliest-most-loyal-rescue-pup-ive-ever-had)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
