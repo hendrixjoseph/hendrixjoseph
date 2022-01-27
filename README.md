@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [close the curtain ... I have my own atmosphere here](https://news.puppy-snuggles.com/13375850/close-the-curtain-i-have-my-own-atmosphere-here)
-- [I think have enough to make dog hair yarn and knit a sweater! Lol](https://news.puppy-snuggles.com/13529920/i-think-have-enough-to-make-dog-hair-yarn-and-knit-a-sweater-lol)
-- [Shes getting old but shes still as adorable as ever](https://news.puppy-snuggles.com/7244600/shes-getting-old-but-shes-still-as-adorable-as-ever)
-- [Woof woof](https://news.puppy-snuggles.com/7892139/woof-woof)
-- [Meet the Dude. Sweetest, smelliest, most loyal rescue pup I&#39;ve ever had.](https://news.puppy-snuggles.com/7744338/meet-the-dude-sweetest-smelliest-most-loyal-rescue-pup-ive-ever-had)
+- [Our 6yo English Toy Terrier just had 3 teeth removed, still slightly smiling](https://news.puppy-snuggles.com/13582004/our-6yo-english-toy-terrier-just-had-3-teeth-removed-still-slightly-smiling)
+- [Case of the Mondays](https://news.puppy-snuggles.com/7416693/case-of-the-mondays)
+- [I love how this guy turned out! Painted as a gift :&rpar;](https://news.puppy-snuggles.com/13624079/i-love-how-this-guy-turned-out-painted-as-a-gift)
+- [Atlas&lpar;age 3&rpar; really likes his dragon. One of the only plush animals he hasn&#39;t destroyed so far 😁](https://news.puppy-snuggles.com/12712022/atlasage-3-really-likes-his-dragon-one-of-the-only-plush-animals-he-hasnt-destroyed-so-far)
+- [Meet Argus! He is turning 11 weeks today and is just getting cuter and cuter every day!](https://news.puppy-snuggles.com/13599984/meet-argus-he-is-turning-11-weeks-today-and-is-just-getting-cuter-and-cuter-every-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
