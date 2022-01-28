@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Life Changing Books &lpar;according to hackers&rpar;](https://www.reddit.com/r/booklists/comments/se0ll7/life_changing_books_according_to_hackers/hui04kd/)
+- [Life Changing Books &lpar;according to hackers&rpar;](https://www.reddit.com/r/booklists/comments/se0ll7/life_changing_books_according_to_hackers/)
 - [/u/joehx on Monthly Employment/Corporate Questions and Discussion Megathread - January 2022](https://www.reddit.com/r/NorthropGrumman/comments/rtiz9f/monthly_employmentcorporate_questions_and/hsize9u/)
 - [/u/joehx on Weekly Self-Promotion Thread - January 12, 2022](https://www.reddit.com/r/financialindependence/comments/s22qk6/weekly_selfpromotion_thread_january_12_2022/hscggji/)
 - [2022 New Year&#39;s Resolutions &amp;amp; Goals](https://www.reddit.com/r/Blogswap/comments/s1v1r6/2022_new_years_resolutions_amp_goals/)
-- [/u/joehx on People who stop 10-15 feet from the line at a stoplight, why?](https://www.reddit.com/r/AskReddit/comments/ryqqd1/people_who_stop_1015_feet_from_the_line_at_a/hrtwin7/)
-- [/u/joehx on The 13 tho...](https://www.reddit.com/r/ProgrammerHumor/comments/rszzpd/the_13_tho/hqqb7cc/)
 <!-- REDDIT:END -->
