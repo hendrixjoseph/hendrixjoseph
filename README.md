@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our 6yo English Toy Terrier just had 3 teeth removed, still slightly smiling](https://news.puppy-snuggles.com/13582004/our-6yo-english-toy-terrier-just-had-3-teeth-removed-still-slightly-smiling)
-- [Case of the Mondays](https://news.puppy-snuggles.com/7416693/case-of-the-mondays)
-- [I love how this guy turned out! Painted as a gift :&rpar;](https://news.puppy-snuggles.com/13624079/i-love-how-this-guy-turned-out-painted-as-a-gift)
-- [Atlas&lpar;age 3&rpar; really likes his dragon. One of the only plush animals he hasn&#39;t destroyed so far 😁](https://news.puppy-snuggles.com/12712022/atlasage-3-really-likes-his-dragon-one-of-the-only-plush-animals-he-hasnt-destroyed-so-far)
-- [Meet Argus! He is turning 11 weeks today and is just getting cuter and cuter every day!](https://news.puppy-snuggles.com/13599984/meet-argus-he-is-turning-11-weeks-today-and-is-just-getting-cuter-and-cuter-every-day)
+- [Made it 12 years :-&lpar; You will be missed. &lpar;She had Degenerative myelopathy. It just kept progressing.&rpar;](https://news.puppy-snuggles.com/8270183/made-it-12-years-you-will-be-missed-she-had-degenerative-myelopathy-it-just-kept-progressing)
+- [Probably one of my favorite pictures of Bella Rose.](https://news.puppy-snuggles.com/13657742/probably-one-of-my-favorite-pictures-of-bella-rose)
+- [For my Cake Day, I bring you a glorious puppy smile 🥰🥺](https://news.puppy-snuggles.com/9971613/for-my-cake-day-i-bring-you-a-glorious-puppy-smile)
+- [I love how they pick the front leg up when they&#39;re pointing at something..](https://news.puppy-snuggles.com/5256920/i-love-how-they-pick-the-front-leg-up-when-theyre-pointing-at-something)
+- [My best friend, Ziggy. We&#39;ve been together 4 years.](https://news.puppy-snuggles.com/7388517/my-best-friend-ziggy-weve-been-together-4-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
