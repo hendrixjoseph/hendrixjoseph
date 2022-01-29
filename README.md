@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Made it 12 years :-&lpar; You will be missed. &lpar;She had Degenerative myelopathy. It just kept progressing.&rpar;](https://news.puppy-snuggles.com/8270183/made-it-12-years-you-will-be-missed-she-had-degenerative-myelopathy-it-just-kept-progressing)
-- [Probably one of my favorite pictures of Bella Rose.](https://news.puppy-snuggles.com/13657742/probably-one-of-my-favorite-pictures-of-bella-rose)
-- [For my Cake Day, I bring you a glorious puppy smile 🥰🥺](https://news.puppy-snuggles.com/9971613/for-my-cake-day-i-bring-you-a-glorious-puppy-smile)
-- [I love how they pick the front leg up when they&#39;re pointing at something..](https://news.puppy-snuggles.com/5256920/i-love-how-they-pick-the-front-leg-up-when-theyre-pointing-at-something)
-- [My best friend, Ziggy. We&#39;ve been together 4 years.](https://news.puppy-snuggles.com/7388517/my-best-friend-ziggy-weve-been-together-4-years)
+- [How this dog looks at me sometimes 😍](https://news.puppy-snuggles.com/13666626/how-this-dog-looks-at-me-sometimes)
+- [This creatures name was Tutu. She was as derpy and lovable as she looks. At age 14, she was surrendered to the shelter by her former owners. She was believed to be a hospice case. I couldn’t let her spend her last days in a cage. BUT! I got 2.5 amazing years with her. I miss you, Toots.](https://news.puppy-snuggles.com/13681962/this-creatures-name-was-tutu-she-was-as-derpy-and-lovable-as-she-looks-at-age-14-she-was-surrendered-to-the-shelter-by-her-former-owners-she-was-believed-to-be-a-hospice-case-i-couldnt-let-her-spend-her-last-days-in-a-cage-but-i-got-25-amazing-years-with-her-i-miss-you-toots)
+- [Post dolphin spotting on our walk!🐬❤️](https://news.puppy-snuggles.com/10726593/post-dolphin-spotting-on-our-walk)
+- [This chimken doesn’t taste quite right…](https://news.puppy-snuggles.com/10647673/this-chimken-doesnt-taste-quite-right)
+- [Sleepover night!](https://news.puppy-snuggles.com/13608296/sleepover-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
