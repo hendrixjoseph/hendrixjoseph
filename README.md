@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How this dog looks at me sometimes 😍](https://news.puppy-snuggles.com/13666626/how-this-dog-looks-at-me-sometimes)
-- [This creatures name was Tutu. She was as derpy and lovable as she looks. At age 14, she was surrendered to the shelter by her former owners. She was believed to be a hospice case. I couldn’t let her spend her last days in a cage. BUT! I got 2.5 amazing years with her. I miss you, Toots.](https://news.puppy-snuggles.com/13681962/this-creatures-name-was-tutu-she-was-as-derpy-and-lovable-as-she-looks-at-age-14-she-was-surrendered-to-the-shelter-by-her-former-owners-she-was-believed-to-be-a-hospice-case-i-couldnt-let-her-spend-her-last-days-in-a-cage-but-i-got-25-amazing-years-with-her-i-miss-you-toots)
-- [Post dolphin spotting on our walk!🐬❤️](https://news.puppy-snuggles.com/10726593/post-dolphin-spotting-on-our-walk)
-- [This chimken doesn’t taste quite right…](https://news.puppy-snuggles.com/10647673/this-chimken-doesnt-taste-quite-right)
-- [Sleepover night!](https://news.puppy-snuggles.com/13608296/sleepover-night)
+- [If you can&#39;t hide the evidence, just pretend you&#39;re the victim](https://news.puppy-snuggles.com/11452978/if-you-cant-hide-the-evidence-just-pretend-youre-the-victim)
+- [Can anyone tell me what mix breed of dog this is?](https://news.puppy-snuggles.com/8359164/can-anyone-tell-me-what-mix-breed-of-dog-this-is)
+- [Today was 2 weeks without this sweet girl, I am missing my Sodapop so much. She’s been by my side for over 15 years and I wasn’t ready yet. But are we ever really ready to lose them? I don’t think so.](https://news.puppy-snuggles.com/7756461/today-was-2-weeks-without-this-sweet-girl-i-am-missing-my-sodapop-so-much-shes-been-by-my-side-for-over-15-years-and-i-wasnt-ready-yet-but-are-we-ever-really-ready-to-lose-them-i-dont-think-so)
+- [My doggo. But I don&#39;t know which breed he is. Can anyone please tell me?](https://news.puppy-snuggles.com/12671820/my-doggo-but-i-dont-know-which-breed-he-is-can-anyone-please-tell-me)
+- [Jack, I want you to draw me like one of your French poodles](https://news.puppy-snuggles.com/13375853/jack-i-want-you-to-draw-me-like-one-of-your-french-poodles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
