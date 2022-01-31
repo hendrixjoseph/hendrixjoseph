@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you can&#39;t hide the evidence, just pretend you&#39;re the victim](https://news.puppy-snuggles.com/11452978/if-you-cant-hide-the-evidence-just-pretend-youre-the-victim)
-- [Can anyone tell me what mix breed of dog this is?](https://news.puppy-snuggles.com/8359164/can-anyone-tell-me-what-mix-breed-of-dog-this-is)
-- [Today was 2 weeks without this sweet girl, I am missing my Sodapop so much. She’s been by my side for over 15 years and I wasn’t ready yet. But are we ever really ready to lose them? I don’t think so.](https://news.puppy-snuggles.com/7756461/today-was-2-weeks-without-this-sweet-girl-i-am-missing-my-sodapop-so-much-shes-been-by-my-side-for-over-15-years-and-i-wasnt-ready-yet-but-are-we-ever-really-ready-to-lose-them-i-dont-think-so)
-- [My doggo. But I don&#39;t know which breed he is. Can anyone please tell me?](https://news.puppy-snuggles.com/12671820/my-doggo-but-i-dont-know-which-breed-he-is-can-anyone-please-tell-me)
-- [Jack, I want you to draw me like one of your French poodles](https://news.puppy-snuggles.com/13375853/jack-i-want-you-to-draw-me-like-one-of-your-french-poodles)
+- [My husband and I are trying to befriend a local &lpar;supposed&rpar; stray. Could not get her to go through the house to the backyard though 😥 I guess we&#39;ll have to keep trying](https://news.puppy-snuggles.com/12206575/my-husband-and-i-are-trying-to-befriend-a-local-supposed-stray-could-not-get-her-to-go-through-the-house-to-the-backyard-though-i-guess-well-have-to-keep-trying)
+- [My best boy](https://news.puppy-snuggles.com/13744873/my-best-boy)
+- [Dog drawing](https://news.puppy-snuggles.com/12027604/dog-drawing)
+- [My 1st birthday!](https://news.puppy-snuggles.com/12531162/my-1st-birthday)
+- [Noble doggy](https://news.puppy-snuggles.com/9062700/noble-doggy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
