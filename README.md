@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [My boy Moss, giving his best smile.](https://news.puppy-snuggles.com/9328689/my-boy-moss-giving-his-best-smile)
+- [Frank with his favourite ball](https://news.puppy-snuggles.com/13774969/frank-with-his-favourite-ball)
 - [My husband and I are trying to befriend a local &lpar;supposed&rpar; stray. Could not get her to go through the house to the backyard though 😥 I guess we&#39;ll have to keep trying](https://news.puppy-snuggles.com/12206575/my-husband-and-i-are-trying-to-befriend-a-local-supposed-stray-could-not-get-her-to-go-through-the-house-to-the-backyard-though-i-guess-well-have-to-keep-trying)
-- [My best boy](https://news.puppy-snuggles.com/13744873/my-best-boy)
-- [Dog drawing](https://news.puppy-snuggles.com/12027604/dog-drawing)
-- [My 1st birthday!](https://news.puppy-snuggles.com/12531162/my-1st-birthday)
-- [Noble doggy](https://news.puppy-snuggles.com/9062700/noble-doggy)
+- [My 10 year old Arctic wolf/husky, Faelan Elizabeth, was diagnosed with liver cancer today and we only have a few days left with her. She is just too magnificent for me not to share her with everyone I can.](https://news.puppy-snuggles.com/11885437/my-10-year-old-arctic-wolfhusky-faelan-elizabeth-was-diagnosed-with-liver-cancer-today-and-we-only-have-a-few-days-left-with-her-she-is-just-too-magnificent-for-me-not-to-share-her-with-everyone-i-can)
+- [OH REACTION](https://news.puppy-snuggles.com/7630497/oh-reaction)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
