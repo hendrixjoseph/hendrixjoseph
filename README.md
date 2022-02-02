@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Moss, giving his best smile.](https://news.puppy-snuggles.com/9328689/my-boy-moss-giving-his-best-smile)
-- [Frank with his favourite ball](https://news.puppy-snuggles.com/13774969/frank-with-his-favourite-ball)
 - [My husband and I are trying to befriend a local &lpar;supposed&rpar; stray. Could not get her to go through the house to the backyard though 😥 I guess we&#39;ll have to keep trying](https://news.puppy-snuggles.com/12206575/my-husband-and-i-are-trying-to-befriend-a-local-supposed-stray-could-not-get-her-to-go-through-the-house-to-the-backyard-though-i-guess-well-have-to-keep-trying)
-- [My 10 year old Arctic wolf/husky, Faelan Elizabeth, was diagnosed with liver cancer today and we only have a few days left with her. She is just too magnificent for me not to share her with everyone I can.](https://news.puppy-snuggles.com/11885437/my-10-year-old-arctic-wolfhusky-faelan-elizabeth-was-diagnosed-with-liver-cancer-today-and-we-only-have-a-few-days-left-with-her-she-is-just-too-magnificent-for-me-not-to-share-her-with-everyone-i-can)
-- [OH REACTION](https://news.puppy-snuggles.com/7630497/oh-reaction)
+- [A Street Dog](https://news.puppy-snuggles.com/13808430/a-street-dog)
+- [Guess his breed? Hint- 3 things, one is not dog.](https://news.puppy-snuggles.com/12230890/guess-his-breed-hint-3-things-one-is-not-dog)
+- [When you&#39;re arthritic &amp;amp;amp; cold but mom just got your puppy blanket out of the dryer.](https://news.puppy-snuggles.com/12466842/when-youre-arthritic-amp-cold-but-mom-just-got-your-puppy-blanket-out-of-the-dryer)
+- [Another smile from my čsv Grace](https://news.puppy-snuggles.com/13765711/another-smile-from-my-csv-grace)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
