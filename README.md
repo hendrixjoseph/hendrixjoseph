@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My husband and I are trying to befriend a local &lpar;supposed&rpar; stray. Could not get her to go through the house to the backyard though 😥 I guess we&#39;ll have to keep trying](https://news.puppy-snuggles.com/12206575/my-husband-and-i-are-trying-to-befriend-a-local-supposed-stray-could-not-get-her-to-go-through-the-house-to-the-backyard-though-i-guess-well-have-to-keep-trying)
-- [A Street Dog](https://news.puppy-snuggles.com/13808430/a-street-dog)
-- [Guess his breed? Hint- 3 things, one is not dog.](https://news.puppy-snuggles.com/12230890/guess-his-breed-hint-3-things-one-is-not-dog)
-- [When you&#39;re arthritic &amp;amp;amp; cold but mom just got your puppy blanket out of the dryer.](https://news.puppy-snuggles.com/12466842/when-youre-arthritic-amp-cold-but-mom-just-got-your-puppy-blanket-out-of-the-dryer)
-- [Another smile from my čsv Grace](https://news.puppy-snuggles.com/13765711/another-smile-from-my-csv-grace)
+- [Can’t help but smile every time I see Micah staring at her like “Really?” :D](https://news.puppy-snuggles.com/5121362/cant-help-but-smile-every-time-i-see-micah-staring-at-her-like-really-d)
+- [Even a shelter dog can be cute #adopt &lpar;scroll to see before&rpar;](https://news.puppy-snuggles.com/8238974/even-a-shelter-dog-can-be-cute-adopt-scroll-to-see-before)
+- [Yup.](https://news.puppy-snuggles.com/7860966/yup)
+- [Autumn and the pup](https://news.puppy-snuggles.com/10719869/autumn-and-the-pup)
+- [blop](https://news.puppy-snuggles.com/13842445/blop)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
