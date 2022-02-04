@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Grandma Smith&#39;s Bible](https://www.joehxblog.com/grandma-smiths-bible/)
 - [January 2022 Blog Statistics](https://www.joehxblog.com/january-2022-blog-statistics/)
 - [2022 New Year&#39;s Resolutions &amp; Goals](https://www.joehxblog.com/2022-new-years-resolutions-goals/)
 - [December 2021 Book Reading List](https://www.joehxblog.com/december-2021-book-reading-list/)
 - [Pei is Dead](https://www.joehxblog.com/pei-is-dead/)
-- [Life Changing Books &lpar;according to hackers&rpar;](https://www.joehxblog.com/life-changing-books-according-to-hackers/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
