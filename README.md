@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can’t help but smile every time I see Micah staring at her like “Really?” :D](https://news.puppy-snuggles.com/5121362/cant-help-but-smile-every-time-i-see-micah-staring-at-her-like-really-d)
-- [Even a shelter dog can be cute #adopt &lpar;scroll to see before&rpar;](https://news.puppy-snuggles.com/8238974/even-a-shelter-dog-can-be-cute-adopt-scroll-to-see-before)
-- [Yup.](https://news.puppy-snuggles.com/7860966/yup)
-- [Autumn and the pup](https://news.puppy-snuggles.com/10719869/autumn-and-the-pup)
-- [blop](https://news.puppy-snuggles.com/13842445/blop)
+- [Tiny nose](https://news.puppy-snuggles.com/13774972/tiny-nose)
+- [This is Scamp! We rescued him from a Romanian kill shelter less than a month ago. He is really settling in to his new home now - and for the first time in his life, he has a family :&rpar;](https://news.puppy-snuggles.com/7185041/this-is-scamp-we-rescued-him-from-a-romanian-kill-shelter-less-than-a-month-ago-he-is-really-settling-in-to-his-new-home-now-and-for-the-first-time-in-his-life-he-has-a-family)
+- [Dog travels to a dog park by himself &lpar;also a video in the comments&rpar;](https://news.puppy-snuggles.com/13874306/dog-travels-to-a-dog-park-by-himself-also-a-video-in-the-comments)
+- [My Baby Leo walks on grass for the first time ever](https://news.puppy-snuggles.com/13865746/my-baby-leo-walks-on-grass-for-the-first-time-ever)
+- [Do you like my noise?🥺](https://news.puppy-snuggles.com/13865745/do-you-like-my-noise)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
