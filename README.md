@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Tax Thursday Thread for the week of February 03, 2022](https://www.reddit.com/r/personalfinance/comments/sjgert/tax_thursday_thread_for_the_week_of_february_03/hvk2zy1/)
 - [What was one time you really messed up?](https://www.reddit.com/r/AskReddit/comments/shyadu/what_was_one_time_you_really_messed_up/)
 - [/u/joehx on Life Changing Books &lpar;according to hackers&rpar;](https://www.reddit.com/r/booklists/comments/se0ll7/life_changing_books_according_to_hackers/hui04kd/)
 - [Life Changing Books &lpar;according to hackers&rpar;](https://www.reddit.com/r/booklists/comments/se0ll7/life_changing_books_according_to_hackers/)
 - [/u/joehx on Monthly Employment/Corporate Questions and Discussion Megathread - January 2022](https://www.reddit.com/r/NorthropGrumman/comments/rtiz9f/monthly_employmentcorporate_questions_and/hsize9u/)
-- [/u/joehx on Weekly Self-Promotion Thread - January 12, 2022](https://www.reddit.com/r/financialindependence/comments/s22qk6/weekly_selfpromotion_thread_january_12_2022/hscggji/)
 <!-- REDDIT:END -->
