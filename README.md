@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tiny nose](https://news.puppy-snuggles.com/13774972/tiny-nose)
-- [This is Scamp! We rescued him from a Romanian kill shelter less than a month ago. He is really settling in to his new home now - and for the first time in his life, he has a family :&rpar;](https://news.puppy-snuggles.com/7185041/this-is-scamp-we-rescued-him-from-a-romanian-kill-shelter-less-than-a-month-ago-he-is-really-settling-in-to-his-new-home-now-and-for-the-first-time-in-his-life-he-has-a-family)
-- [Dog travels to a dog park by himself &lpar;also a video in the comments&rpar;](https://news.puppy-snuggles.com/13874306/dog-travels-to-a-dog-park-by-himself-also-a-video-in-the-comments)
-- [My Baby Leo walks on grass for the first time ever](https://news.puppy-snuggles.com/13865746/my-baby-leo-walks-on-grass-for-the-first-time-ever)
-- [Do you like my noise?🥺](https://news.puppy-snuggles.com/13865745/do-you-like-my-noise)
+- [My dog is now 1 year old, wishing more years with him.](https://news.puppy-snuggles.com/10955734/my-dog-is-now-1-year-old-wishing-more-years-with-him)
+- [She does this every time a blanket is around...](https://news.puppy-snuggles.com/13883240/she-does-this-every-time-a-blanket-is-around)
+- [It’s been 4 years since we adopted Dallas. He’s 11 and the heckin’ goodest boy. 13/10](https://news.puppy-snuggles.com/12206571/its-been-4-years-since-we-adopted-dallas-hes-11-and-the-heckin-goodest-boy-1310)
+- [Some terrifying pictures of my low quality dog](https://news.puppy-snuggles.com/7724992/some-terrifying-pictures-of-my-low-quality-dog)
+- [Pictures of my dog taken by a pet photographer 🥰](https://news.puppy-snuggles.com/11935495/pictures-of-my-dog-taken-by-a-pet-photographer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
