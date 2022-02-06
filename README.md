@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is now 1 year old, wishing more years with him.](https://news.puppy-snuggles.com/10955734/my-dog-is-now-1-year-old-wishing-more-years-with-him)
-- [She does this every time a blanket is around...](https://news.puppy-snuggles.com/13883240/she-does-this-every-time-a-blanket-is-around)
-- [It’s been 4 years since we adopted Dallas. He’s 11 and the heckin’ goodest boy. 13/10](https://news.puppy-snuggles.com/12206571/its-been-4-years-since-we-adopted-dallas-hes-11-and-the-heckin-goodest-boy-1310)
-- [Some terrifying pictures of my low quality dog](https://news.puppy-snuggles.com/7724992/some-terrifying-pictures-of-my-low-quality-dog)
-- [Pictures of my dog taken by a pet photographer 🥰](https://news.puppy-snuggles.com/11935495/pictures-of-my-dog-taken-by-a-pet-photographer)
+- [I’m not worthy of my fur baby.](https://news.puppy-snuggles.com/12588540/im-not-worthy-of-my-fur-baby)
+- [Made by omica photography](https://news.puppy-snuggles.com/5362645/made-by-omica-photography)
+- [Those eyes 💙](https://news.puppy-snuggles.com/7850739/those-eyes)
+- [The dog was lonely](https://news.puppy-snuggles.com/10949966/the-dog-was-lonely)
+- [Yep, I&#39;m very comfortable. Thanks.](https://news.puppy-snuggles.com/5538489/yep-im-very-comfortable-thanks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
