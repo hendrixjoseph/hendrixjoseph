@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m not worthy of my fur baby.](https://news.puppy-snuggles.com/12588540/im-not-worthy-of-my-fur-baby)
-- [Made by omica photography](https://news.puppy-snuggles.com/5362645/made-by-omica-photography)
-- [Those eyes 💙](https://news.puppy-snuggles.com/7850739/those-eyes)
-- [The dog was lonely](https://news.puppy-snuggles.com/10949966/the-dog-was-lonely)
-- [Yep, I&#39;m very comfortable. Thanks.](https://news.puppy-snuggles.com/5538489/yep-im-very-comfortable-thanks)
+- [Can you stay home with me instead of going to work?](https://news.puppy-snuggles.com/10638108/can-you-stay-home-with-me-instead-of-going-to-work)
+- [This is the cutest gift I have ever received!](https://news.puppy-snuggles.com/11495751/this-is-the-cutest-gift-i-have-ever-received)
+- [Piccolo, a husky puppy :&rpar;](https://news.puppy-snuggles.com/5181509/piccolo-a-husky-puppy)
+- [Happy fall, furriends! &lpar;Snow, 6mo Samoyed&rpar;](https://news.puppy-snuggles.com/10150591/happy-fall-furriends-snow-6mo-samoyed)
+- [The pupper is getting more comfortable in his new home](https://news.puppy-snuggles.com/13783955/the-pupper-is-getting-more-comfortable-in-his-new-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
