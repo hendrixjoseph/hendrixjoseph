@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can you stay home with me instead of going to work?](https://news.puppy-snuggles.com/10638108/can-you-stay-home-with-me-instead-of-going-to-work)
-- [This is the cutest gift I have ever received!](https://news.puppy-snuggles.com/11495751/this-is-the-cutest-gift-i-have-ever-received)
-- [Piccolo, a husky puppy :&rpar;](https://news.puppy-snuggles.com/5181509/piccolo-a-husky-puppy)
-- [Happy fall, furriends! &lpar;Snow, 6mo Samoyed&rpar;](https://news.puppy-snuggles.com/10150591/happy-fall-furriends-snow-6mo-samoyed)
-- [The pupper is getting more comfortable in his new home](https://news.puppy-snuggles.com/13783955/the-pupper-is-getting-more-comfortable-in-his-new-home)
+- [Zuko fell asleep in his food bowl](https://news.puppy-snuggles.com/13980625/zuko-fell-asleep-in-his-food-bowl)
+- [cute :3](https://news.puppy-snuggles.com/13980624/cute-3)
+- [First boat experience was a success!](https://news.puppy-snuggles.com/7221804/first-boat-experience-was-a-success)
+- [my baby&#39;s birthday](https://news.puppy-snuggles.com/13980627/my-babys-birthday)
+- [Me and my family are probably getting this little guy this week](https://news.puppy-snuggles.com/13980626/me-and-my-family-are-probably-getting-this-little-guy-this-week)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
