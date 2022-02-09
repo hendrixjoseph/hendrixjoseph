@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Zuko fell asleep in his food bowl](https://news.puppy-snuggles.com/13980625/zuko-fell-asleep-in-his-food-bowl)
-- [cute :3](https://news.puppy-snuggles.com/13980624/cute-3)
-- [First boat experience was a success!](https://news.puppy-snuggles.com/7221804/first-boat-experience-was-a-success)
-- [my baby&#39;s birthday](https://news.puppy-snuggles.com/13980627/my-babys-birthday)
-- [Me and my family are probably getting this little guy this week](https://news.puppy-snuggles.com/13980626/me-and-my-family-are-probably-getting-this-little-guy-this-week)
+- [Dreaming sweetly](https://news.puppy-snuggles.com/11236686/dreaming-sweetly)
+- [Nosy neighbors](https://news.puppy-snuggles.com/5650113/nosy-neighbors)
+- [Dogs and cats loves](https://news.puppy-snuggles.com/12112118/dogs-and-cats-loves)
+- [Hiking with my sweet dog!](https://news.puppy-snuggles.com/10936404/hiking-with-my-sweet-dog)
+- [Molly’s face is so enlightening when I get home from work](https://news.puppy-snuggles.com/10201407/mollys-face-is-so-enlightening-when-i-get-home-from-work)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
