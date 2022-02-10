@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dreaming sweetly](https://news.puppy-snuggles.com/11236686/dreaming-sweetly)
-- [Nosy neighbors](https://news.puppy-snuggles.com/5650113/nosy-neighbors)
-- [Dogs and cats loves](https://news.puppy-snuggles.com/12112118/dogs-and-cats-loves)
-- [Hiking with my sweet dog!](https://news.puppy-snuggles.com/10936404/hiking-with-my-sweet-dog)
-- [Molly’s face is so enlightening when I get home from work](https://news.puppy-snuggles.com/10201407/mollys-face-is-so-enlightening-when-i-get-home-from-work)
+- [Enzo wishes everyone a Happy Easter](https://news.puppy-snuggles.com/5165902/enzo-wishes-everyone-a-happy-easter)
+- [My first dog, Podrick the dog!](https://news.puppy-snuggles.com/14046367/my-first-dog-podrick-the-dog)
+- [Designed and cut a dog silhouette into a gemstone. Very proud of this!](https://news.puppy-snuggles.com/10327580/designed-and-cut-a-dog-silhouette-into-a-gemstone-very-proud-of-this)
+- [This photo makes me so happy](https://news.puppy-snuggles.com/7860962/this-photo-makes-me-so-happy)
+- [Charlie the best, calmest boy ever!](https://news.puppy-snuggles.com/5311834/charlie-the-best-calmest-boy-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
