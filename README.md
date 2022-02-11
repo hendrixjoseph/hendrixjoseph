@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [*Free* Netflix Jr. Magazine - starting in April](https://www.reddit.com/r/freebies/comments/sp92m2/free_netflix_jr_magazine_starting_in_april/)
 - [/u/joehx on ELI5: how can something contain more sugar than its serving size?](https://www.reddit.com/r/explainlikeimfive/comments/snw2jz/eli5_how_can_something_contain_more_sugar_than/hw7z000/)
 - [/u/joehx on ELI5: how can something contain more sugar than its serving size?](https://www.reddit.com/r/explainlikeimfive/comments/snw2jz/eli5_how_can_something_contain_more_sugar_than/hw63bmx/)
 - [/u/joehx on ELI5: how can something contain more sugar than its serving size?](https://www.reddit.com/r/explainlikeimfive/comments/snw2jz/eli5_how_can_something_contain_more_sugar_than/hw5h4c1/)
 - [/u/joehx on Tax Thursday Thread for the week of February 03, 2022](https://www.reddit.com/r/personalfinance/comments/sjgert/tax_thursday_thread_for_the_week_of_february_03/hvk2zy1/)
-- [What was one time you really messed up?](https://www.reddit.com/r/AskReddit/comments/shyadu/what_was_one_time_you_really_messed_up/)
 <!-- REDDIT:END -->
