@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Enzo wishes everyone a Happy Easter](https://news.puppy-snuggles.com/5165902/enzo-wishes-everyone-a-happy-easter)
-- [My first dog, Podrick the dog!](https://news.puppy-snuggles.com/14046367/my-first-dog-podrick-the-dog)
-- [Designed and cut a dog silhouette into a gemstone. Very proud of this!](https://news.puppy-snuggles.com/10327580/designed-and-cut-a-dog-silhouette-into-a-gemstone-very-proud-of-this)
-- [This photo makes me so happy](https://news.puppy-snuggles.com/7860962/this-photo-makes-me-so-happy)
-- [Charlie the best, calmest boy ever!](https://news.puppy-snuggles.com/5311834/charlie-the-best-calmest-boy-ever)
+- [Cutest gap ever woof](https://news.puppy-snuggles.com/7476020/cutest-gap-ever-woof)
+- [Pita ready for adventure](https://news.puppy-snuggles.com/11299058/pita-ready-for-adventure)
+- [King of his castle.](https://news.puppy-snuggles.com/13591138/king-of-his-castle)
+- [Eddie on his first time off the lead/leash](https://news.puppy-snuggles.com/7681071/eddie-on-his-first-time-off-the-leadleash)
+- [Our Dog :&rpar;](https://news.puppy-snuggles.com/7280206/our-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
