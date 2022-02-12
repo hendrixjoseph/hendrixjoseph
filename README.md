@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cutest gap ever woof](https://news.puppy-snuggles.com/7476020/cutest-gap-ever-woof)
-- [Pita ready for adventure](https://news.puppy-snuggles.com/11299058/pita-ready-for-adventure)
-- [King of his castle.](https://news.puppy-snuggles.com/13591138/king-of-his-castle)
-- [Eddie on his first time off the lead/leash](https://news.puppy-snuggles.com/7681071/eddie-on-his-first-time-off-the-leadleash)
-- [Our Dog :&rpar;](https://news.puppy-snuggles.com/7280206/our-dog)
+- [My cute but weird dog Mabel](https://news.puppy-snuggles.com/14112680/my-cute-but-weird-dog-mabel)
+- [Do you think she would be a good influencer?](https://news.puppy-snuggles.com/10856213/do-you-think-she-would-be-a-good-influencer)
+- [Guess my breeds](https://news.puppy-snuggles.com/12671819/guess-my-breeds)
+- [Taken today at Kaiser’s 10th birthday celebration in the Norwegian forest by their cabin! His favorite place! His owner was very touched and delighted at all the birthday wishes you sent him. Thank you!](https://news.puppy-snuggles.com/13690527/taken-today-at-kaisers-10th-birthday-celebration-in-the-norwegian-forest-by-their-cabin-his-favorite-place-his-owner-was-very-touched-and-delighted-at-all-the-birthday-wishes-you-sent-him-thank-you)
+- [Isn’t she just so pretty](https://news.puppy-snuggles.com/11228159/isnt-she-just-so-pretty)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
