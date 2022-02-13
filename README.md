@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My cute but weird dog Mabel](https://news.puppy-snuggles.com/14112680/my-cute-but-weird-dog-mabel)
-- [Do you think she would be a good influencer?](https://news.puppy-snuggles.com/10856213/do-you-think-she-would-be-a-good-influencer)
-- [Guess my breeds](https://news.puppy-snuggles.com/12671819/guess-my-breeds)
-- [Taken today at Kaiser’s 10th birthday celebration in the Norwegian forest by their cabin! His favorite place! His owner was very touched and delighted at all the birthday wishes you sent him. Thank you!](https://news.puppy-snuggles.com/13690527/taken-today-at-kaisers-10th-birthday-celebration-in-the-norwegian-forest-by-their-cabin-his-favorite-place-his-owner-was-very-touched-and-delighted-at-all-the-birthday-wishes-you-sent-him-thank-you)
-- [Isn’t she just so pretty](https://news.puppy-snuggles.com/11228159/isnt-she-just-so-pretty)
+- [Kyah has always been a smiler 🥰](https://news.puppy-snuggles.com/8960530/kyah-has-always-been-a-smiler)
+- [My baby boy Zeus! Love him](https://news.puppy-snuggles.com/14141768/my-baby-boy-zeus-love-him)
+- [My spoiled dog everytime I sit down at the dinner table.](https://news.puppy-snuggles.com/13549517/my-spoiled-dog-everytime-i-sit-down-at-the-dinner-table)
+- [Super good boi Zuko!! &lpar;16 weeks old&rpar;](https://news.puppy-snuggles.com/5454403/super-good-boi-zuko-16-weeks-old)
+- [doggo in the sun](https://news.puppy-snuggles.com/12155152/doggo-in-the-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
