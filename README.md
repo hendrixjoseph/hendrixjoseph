@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Kyah has always been a smiler 🥰](https://news.puppy-snuggles.com/8960530/kyah-has-always-been-a-smiler)
-- [My baby boy Zeus! Love him](https://news.puppy-snuggles.com/14141768/my-baby-boy-zeus-love-him)
-- [My spoiled dog everytime I sit down at the dinner table.](https://news.puppy-snuggles.com/13549517/my-spoiled-dog-everytime-i-sit-down-at-the-dinner-table)
-- [Super good boi Zuko!! &lpar;16 weeks old&rpar;](https://news.puppy-snuggles.com/5454403/super-good-boi-zuko-16-weeks-old)
-- [doggo in the sun](https://news.puppy-snuggles.com/12155152/doggo-in-the-sun)
+- [❄️Snow zoomies❄️](https://news.puppy-snuggles.com/14167203/snow-zoomies)
+- [This was the first picture we took with the vintage camera](https://news.puppy-snuggles.com/5351865/this-was-the-first-picture-we-took-with-the-vintage-camera)
+- [do you have any advice to stop my dog from peeing on my bed](https://news.puppy-snuggles.com/3759541/do-you-have-any-advice-to-stop-my-dog-from-peeing-on-my-bed)
+- [Riley &lpar;12&rpar; Chuck &lpar;3&rpar; and Stanley&lpar;3&rpar; I had a wicked migraine yesterday and was in bed all day. they never left my side. I had to get up for them to go out or eat, my husband would try to get them out and they were not having it, it&#39;s a pain but nice to know how much they love me. Boops for all!](https://news.puppy-snuggles.com/14161135/riley-12-chuck-3-and-stanley3-i-had-a-wicked-migraine-yesterday-and-was-in-bed-all-day-they-never-left-my-side-i-had-to-get-up-for-them-to-go-out-or-eat-my-husband-would-try-to-get-them-out-and-they-were-not-having-it-its-a-pain-but-nice-to-know-how-much-they-love-me-boops-for-all)
+- [Miss Nova](https://news.puppy-snuggles.com/13062400/miss-nova)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
