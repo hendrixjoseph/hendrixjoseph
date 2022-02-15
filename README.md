@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [❄️Snow zoomies❄️](https://news.puppy-snuggles.com/14167203/snow-zoomies)
-- [This was the first picture we took with the vintage camera](https://news.puppy-snuggles.com/5351865/this-was-the-first-picture-we-took-with-the-vintage-camera)
-- [do you have any advice to stop my dog from peeing on my bed](https://news.puppy-snuggles.com/3759541/do-you-have-any-advice-to-stop-my-dog-from-peeing-on-my-bed)
-- [Riley &lpar;12&rpar; Chuck &lpar;3&rpar; and Stanley&lpar;3&rpar; I had a wicked migraine yesterday and was in bed all day. they never left my side. I had to get up for them to go out or eat, my husband would try to get them out and they were not having it, it&#39;s a pain but nice to know how much they love me. Boops for all!](https://news.puppy-snuggles.com/14161135/riley-12-chuck-3-and-stanley3-i-had-a-wicked-migraine-yesterday-and-was-in-bed-all-day-they-never-left-my-side-i-had-to-get-up-for-them-to-go-out-or-eat-my-husband-would-try-to-get-them-out-and-they-were-not-having-it-its-a-pain-but-nice-to-know-how-much-they-love-me-boops-for-all)
-- [Miss Nova](https://news.puppy-snuggles.com/13062400/miss-nova)
+- [Womans Best Friend Too!](https://news.puppy-snuggles.com/10691483/womans-best-friend-too)
+- [Car rides make him sleepy](https://news.puppy-snuggles.com/5765600/car-rides-make-him-sleepy)
+- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
+- [Shame one day he’ll be too big to sleep in my lap like this](https://news.puppy-snuggles.com/14174214/shame-one-day-hell-be-too-big-to-sleep-in-my-lap-like-this)
+- [Liles is happy bc her 4th home is her FUREVER home! &lpar;Liles, 4y, pit mix, rescued&rpar;](https://news.puppy-snuggles.com/5520925/liles-is-happy-bc-her-4th-home-is-her-furever-home-liles-4y-pit-mix-rescued)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
