@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Womans Best Friend Too!](https://news.puppy-snuggles.com/10691483/womans-best-friend-too)
-- [Car rides make him sleepy](https://news.puppy-snuggles.com/5765600/car-rides-make-him-sleepy)
-- [Well hello there. 🌿🐶](https://news.puppy-snuggles.com/3975461/well-hello-there)
-- [Shame one day he’ll be too big to sleep in my lap like this](https://news.puppy-snuggles.com/14174214/shame-one-day-hell-be-too-big-to-sleep-in-my-lap-like-this)
-- [Liles is happy bc her 4th home is her FUREVER home! &lpar;Liles, 4y, pit mix, rescued&rpar;](https://news.puppy-snuggles.com/5520925/liles-is-happy-bc-her-4th-home-is-her-furever-home-liles-4y-pit-mix-rescued)
+- [Not a thought in his head](https://news.puppy-snuggles.com/5202029/not-a-thought-in-his-head)
+- [It has been one year and I still miss you just as much. Rip Domino.](https://news.puppy-snuggles.com/6318636/it-has-been-one-year-and-i-still-miss-you-just-as-much-rip-domino)
+- [Dogs ask for so little but deserve so much.](https://news.puppy-snuggles.com/7664394/dogs-ask-for-so-little-but-deserve-so-much)
+- [Happy 2nd birthday Noodle!](https://news.puppy-snuggles.com/14174209/happy-2nd-birthday-noodle)
+- [i can jump - i&#39;m a horse](https://news.puppy-snuggles.com/14161137/i-can-jump-im-a-horse)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
