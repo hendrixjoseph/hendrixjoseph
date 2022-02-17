@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Not a thought in his head](https://news.puppy-snuggles.com/5202029/not-a-thought-in-his-head)
-- [It has been one year and I still miss you just as much. Rip Domino.](https://news.puppy-snuggles.com/6318636/it-has-been-one-year-and-i-still-miss-you-just-as-much-rip-domino)
-- [Dogs ask for so little but deserve so much.](https://news.puppy-snuggles.com/7664394/dogs-ask-for-so-little-but-deserve-so-much)
-- [Happy 2nd birthday Noodle!](https://news.puppy-snuggles.com/14174209/happy-2nd-birthday-noodle)
-- [i can jump - i&#39;m a horse](https://news.puppy-snuggles.com/14161137/i-can-jump-im-a-horse)
+- [My dog spike always looks nervous](https://news.puppy-snuggles.com/14265544/my-dog-spike-always-looks-nervous)
+- [My boy Charley approaching his first birthday in a couple months!](https://news.puppy-snuggles.com/9015888/my-boy-charley-approaching-his-first-birthday-in-a-couple-months)
+- [From this to that](https://news.puppy-snuggles.com/14265558/from-this-to-that)
+- [Chewbarka](https://news.puppy-snuggles.com/8182945/chewbarka)
+- [@ssend.noods being oddly happy](https://news.puppy-snuggles.com/8457910/at-ssendnoods-being-oddly-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
