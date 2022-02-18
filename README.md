@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog spike always looks nervous](https://news.puppy-snuggles.com/14265544/my-dog-spike-always-looks-nervous)
-- [My boy Charley approaching his first birthday in a couple months!](https://news.puppy-snuggles.com/9015888/my-boy-charley-approaching-his-first-birthday-in-a-couple-months)
-- [From this to that](https://news.puppy-snuggles.com/14265558/from-this-to-that)
-- [Chewbarka](https://news.puppy-snuggles.com/8182945/chewbarka)
-- [@ssend.noods being oddly happy](https://news.puppy-snuggles.com/8457910/at-ssendnoods-being-oddly-happy)
+- [My cute little guy got into something he shouldn&#39;t have. He&#39;s going to have surgery but don&#39;t think he&#39;ll survive. Whatever happens he&#39;ll always be my best boy ❤](https://news.puppy-snuggles.com/11910690/my-cute-little-guy-got-into-something-he-shouldnt-have-hes-going-to-have-surgery-but-dont-think-hell-survive-whatever-happens-hell-always-be-my-best-boy)
+- [No one is getting me out of bed today](https://news.puppy-snuggles.com/14291074/no-one-is-getting-me-out-of-bed-today)
+- [how is my new hat~](https://news.puppy-snuggles.com/7951906/how-is-my-new-hat)
+- [Peanut and Jelly love a smile](https://news.puppy-snuggles.com/8292609/peanut-and-jelly-love-a-smile)
+- [How to give an Australian Shepard a bath](https://news.puppy-snuggles.com/9884016/how-to-give-an-australian-shepard-a-bath)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
