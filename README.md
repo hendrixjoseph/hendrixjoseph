@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best buddy had his eye removed =&lpar;](https://news.puppy-snuggles.com/9108306/my-best-buddy-had-his-eye-removed)
-- [Lenny, Finn &amp;amp;amp; Petunia!!](https://news.puppy-snuggles.com/14333676/lenny-finn-amp-petunia)
-- [Pretty doggo](https://news.puppy-snuggles.com/11764432/pretty-doggo)
-- [Doggo with a jobbo](https://news.puppy-snuggles.com/11055336/doggo-with-a-jobbo)
-- [Aurora is very pleased with the good job she did of de-organising under the bed!](https://news.puppy-snuggles.com/7945211/aurora-is-very-pleased-with-the-good-job-she-did-of-de-organising-under-the-bed)
+- [My good friend lola](https://news.puppy-snuggles.com/12956414/my-good-friend-lola)
+- [My dog sleeps with his eyes open](https://news.puppy-snuggles.com/13366775/my-dog-sleeps-with-his-eyes-open)
+- [Alfred enjoying a Sunny day after a looooong time.](https://news.puppy-snuggles.com/14360678/alfred-enjoying-a-sunny-day-after-a-looooong-time)
+- [I think she deserves lots of boops](https://news.puppy-snuggles.com/12769799/i-think-she-deserves-lots-of-boops)
+- [Baby girl](https://news.puppy-snuggles.com/13302793/baby-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
