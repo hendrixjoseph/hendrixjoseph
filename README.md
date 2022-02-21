@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My good friend lola](https://news.puppy-snuggles.com/12956414/my-good-friend-lola)
-- [My dog sleeps with his eyes open](https://news.puppy-snuggles.com/13366775/my-dog-sleeps-with-his-eyes-open)
-- [Alfred enjoying a Sunny day after a looooong time.](https://news.puppy-snuggles.com/14360678/alfred-enjoying-a-sunny-day-after-a-looooong-time)
-- [I think she deserves lots of boops](https://news.puppy-snuggles.com/12769799/i-think-she-deserves-lots-of-boops)
-- [Baby girl](https://news.puppy-snuggles.com/13302793/baby-girl)
+- [Someone likes the time they&#39;re having 🤗](https://news.puppy-snuggles.com/11280359/someone-likes-the-time-theyre-having)
+- [I was not expecting that](https://news.puppy-snuggles.com/12268759/i-was-not-expecting-that)
+- [The best workout partner](https://news.puppy-snuggles.com/10838837/the-best-workout-partner)
+- [Crismas](https://news.puppy-snuggles.com/12105027/crismas)
+- [Best movie partner](https://news.puppy-snuggles.com/11488162/best-movie-partner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
