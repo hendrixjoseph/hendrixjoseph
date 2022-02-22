@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Someone likes the time they&#39;re having 🤗](https://news.puppy-snuggles.com/11280359/someone-likes-the-time-theyre-having)
-- [I was not expecting that](https://news.puppy-snuggles.com/12268759/i-was-not-expecting-that)
-- [The best workout partner](https://news.puppy-snuggles.com/10838837/the-best-workout-partner)
-- [Crismas](https://news.puppy-snuggles.com/12105027/crismas)
-- [Best movie partner](https://news.puppy-snuggles.com/11488162/best-movie-partner)
+- [Can anyone guess Luna&#39;s breed?](https://news.puppy-snuggles.com/14412080/can-anyone-guess-lunas-breed)
+- [My derp dog loves to lay like this](https://news.puppy-snuggles.com/8477064/my-derp-dog-loves-to-lay-like-this)
+- [This is Rosie. She is an old girl, but very sweet nonetheless.](https://news.puppy-snuggles.com/14412079/this-is-rosie-she-is-an-old-girl-but-very-sweet-nonetheless)
+- [Happy Wee Man sleeping with a smile and his nose all pushed over 🙂](https://news.puppy-snuggles.com/14412081/happy-wee-man-sleeping-with-a-smile-and-his-nose-all-pushed-over)
+- [Finally got a doggo of my own, this is Dogmeat!](https://news.puppy-snuggles.com/14412084/finally-got-a-doggo-of-my-own-this-is-dogmeat)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
