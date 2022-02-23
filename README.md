@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can anyone guess Luna&#39;s breed?](https://news.puppy-snuggles.com/14412080/can-anyone-guess-lunas-breed)
-- [My derp dog loves to lay like this](https://news.puppy-snuggles.com/8477064/my-derp-dog-loves-to-lay-like-this)
-- [This is Rosie. She is an old girl, but very sweet nonetheless.](https://news.puppy-snuggles.com/14412079/this-is-rosie-she-is-an-old-girl-but-very-sweet-nonetheless)
-- [Happy Wee Man sleeping with a smile and his nose all pushed over 🙂](https://news.puppy-snuggles.com/14412081/happy-wee-man-sleeping-with-a-smile-and-his-nose-all-pushed-over)
-- [Finally got a doggo of my own, this is Dogmeat!](https://news.puppy-snuggles.com/14412084/finally-got-a-doggo-of-my-own-this-is-dogmeat)
+- [Smiley Snow!](https://news.puppy-snuggles.com/14443621/smiley-snow)
+- [He always lays down like this](https://news.puppy-snuggles.com/14434888/he-always-lays-down-like-this)
+- [My dog had to be put down today, her is the last photo of my best friend.](https://news.puppy-snuggles.com/14443626/my-dog-had-to-be-put-down-today-her-is-the-last-photo-of-my-best-friend)
+- [Hennessy looking picture perfect](https://news.puppy-snuggles.com/14426539/hennessy-looking-picture-perfect)
+- [The friendship stick](https://news.puppy-snuggles.com/14434889/the-friendship-stick)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
