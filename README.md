@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiley Snow!](https://news.puppy-snuggles.com/14443621/smiley-snow)
-- [He always lays down like this](https://news.puppy-snuggles.com/14434888/he-always-lays-down-like-this)
-- [My dog had to be put down today, her is the last photo of my best friend.](https://news.puppy-snuggles.com/14443626/my-dog-had-to-be-put-down-today-her-is-the-last-photo-of-my-best-friend)
-- [Hennessy looking picture perfect](https://news.puppy-snuggles.com/14426539/hennessy-looking-picture-perfect)
-- [The friendship stick](https://news.puppy-snuggles.com/14434889/the-friendship-stick)
+- [My girl Ruby Rose turned 13! 🎉](https://news.puppy-snuggles.com/14477277/my-girl-ruby-rose-turned-13)
+- [Everyone meet Biscuit!](https://news.puppy-snuggles.com/14390914/everyone-meet-biscuit)
+- [My favorite little face to come home to in the evenings!](https://news.puppy-snuggles.com/14477280/my-favorite-little-face-to-come-home-to-in-the-evenings)
+- [My mom got me this stupid backpack because she said it would help my anxiety on walks &lpar;it does&rpar; and give me a job to do. 😒 I guess I do look handsome in it, though.](https://news.puppy-snuggles.com/14477282/my-mom-got-me-this-stupid-backpack-because-she-said-it-would-help-my-anxiety-on-walks-it-does-and-give-me-a-job-to-do-i-guess-i-do-look-handsome-in-it-though)
+- [My dog Lola passed away last night. Sharing her smile.](https://news.puppy-snuggles.com/13351553/my-dog-lola-passed-away-last-night-sharing-her-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
