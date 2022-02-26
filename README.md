@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I made a little crocheted copy of this adorable toy terrier &amp;amp;lt;3](https://news.puppy-snuggles.com/14510444/i-made-a-little-crocheted-copy-of-this-adorable-toy-terrier-lt3)
-- [Update on the dog from my last post took her to the vet and she has hookworms but is on medication now. Now that the bloating has gone down you can see her rib cage and bloodwork shows she was moderately dehydrated. But we have got her to drink plenty of water and eat a little](https://news.puppy-snuggles.com/14485929/update-on-the-dog-from-my-last-post-took-her-to-the-vet-and-she-has-hookworms-but-is-on-medication-now-now-that-the-bloating-has-gone-down-you-can-see-her-rib-cage-and-bloodwork-shows-she-was-moderately-dehydrated-but-we-have-got-her-to-drink-plenty-of-water-and-eat-a-little)
-- [The Golden Shepherd](https://news.puppy-snuggles.com/6570032/the-golden-shepherd)
-- [My Ying &amp;amp;amp; Yang](https://news.puppy-snuggles.com/14510441/my-ying-amp-yang)
-- [My best friend of the past decade passed away today. She fell off the couch two nights ago and wasn’t able to walk or stand. It was the final straw she had a lot of health issues but still, I’m absolutely wrecked today. Give your best friends a extra ear scratch for Sadie.](https://news.puppy-snuggles.com/14452717/my-best-friend-of-the-past-decade-passed-away-today-she-fell-off-the-couch-two-nights-ago-and-wasnt-able-to-walk-or-stand-it-was-the-final-straw-she-had-a-lot-of-health-issues-but-still-im-absolutely-wrecked-today-give-your-best-friends-a-extra-ear-scratch-for-sadie)
+- [My dog always sleeps with a paw in her mouth, anyone else ever see something like this before?](https://news.puppy-snuggles.com/5921346/my-dog-always-sleeps-with-a-paw-in-her-mouth-anyone-else-ever-see-something-like-this-before)
+- [I love you a lot of puppy who plays the little plane](https://news.puppy-snuggles.com/14543527/i-love-you-a-lot-of-puppy-who-plays-the-little-plane)
+- [Can we stay outside? Just a little bit longer, please? I promise to be good.](https://news.puppy-snuggles.com/14534534/can-we-stay-outside-just-a-little-bit-longer-please-i-promise-to-be-good)
+- [My dogs and my first post](https://news.puppy-snuggles.com/6817466/my-dogs-and-my-first-post)
+- [Spread the word](https://news.puppy-snuggles.com/14534536/spread-the-word)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
