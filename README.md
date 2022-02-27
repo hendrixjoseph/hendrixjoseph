@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog always sleeps with a paw in her mouth, anyone else ever see something like this before?](https://news.puppy-snuggles.com/5921346/my-dog-always-sleeps-with-a-paw-in-her-mouth-anyone-else-ever-see-something-like-this-before)
-- [I love you a lot of puppy who plays the little plane](https://news.puppy-snuggles.com/14543527/i-love-you-a-lot-of-puppy-who-plays-the-little-plane)
-- [Can we stay outside? Just a little bit longer, please? I promise to be good.](https://news.puppy-snuggles.com/14534534/can-we-stay-outside-just-a-little-bit-longer-please-i-promise-to-be-good)
-- [My dogs and my first post](https://news.puppy-snuggles.com/6817466/my-dogs-and-my-first-post)
-- [Spread the word](https://news.puppy-snuggles.com/14534536/spread-the-word)
+- [Pencil portrait of a puppy recent commission artwork](https://news.puppy-snuggles.com/14564506/pencil-portrait-of-a-puppy-recent-commission-artwork)
+- [Shadow smiling on his walk!](https://news.puppy-snuggles.com/14570528/shadow-smiling-on-his-walk)
+- [Me and my family are probably getting this little guy this week](https://news.puppy-snuggles.com/13980626/me-and-my-family-are-probably-getting-this-little-guy-this-week)
+- [Dogs grieve when a friend dies, study finds](https://news.puppy-snuggles.com/14562733/dogs-grieve-when-a-friend-dies-study-finds)
+- [Penny Lane is owning it!! 💯🐶](https://news.puppy-snuggles.com/14121630/penny-lane-is-owning-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
