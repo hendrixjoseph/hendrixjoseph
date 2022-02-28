@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pencil portrait of a puppy recent commission artwork](https://news.puppy-snuggles.com/14564506/pencil-portrait-of-a-puppy-recent-commission-artwork)
-- [Shadow smiling on his walk!](https://news.puppy-snuggles.com/14570528/shadow-smiling-on-his-walk)
-- [Me and my family are probably getting this little guy this week](https://news.puppy-snuggles.com/13980626/me-and-my-family-are-probably-getting-this-little-guy-this-week)
-- [Dogs grieve when a friend dies, study finds](https://news.puppy-snuggles.com/14562733/dogs-grieve-when-a-friend-dies-study-finds)
-- [Penny Lane is owning it!! 💯🐶](https://news.puppy-snuggles.com/14121630/penny-lane-is-owning-it)
+- [Golden retriever on a golden morning](https://news.puppy-snuggles.com/3695341/golden-retriever-on-a-golden-morning)
+- [Finally treated no more health issues, -- Just wished to share the happiness](https://news.puppy-snuggles.com/5756963/finally-treated-no-more-health-issues-just-wished-to-share-the-happiness)
+- [After eating our bodyweight in food](https://news.puppy-snuggles.com/11802143/after-eating-our-bodyweight-in-food)
+- [Smile of sunday ☀️](https://news.puppy-snuggles.com/14588414/smile-of-sunday)
+- [Those eyes 💙](https://news.puppy-snuggles.com/7850739/those-eyes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
