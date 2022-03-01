@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Golden retriever on a golden morning](https://news.puppy-snuggles.com/3695341/golden-retriever-on-a-golden-morning)
-- [Finally treated no more health issues, -- Just wished to share the happiness](https://news.puppy-snuggles.com/5756963/finally-treated-no-more-health-issues-just-wished-to-share-the-happiness)
-- [After eating our bodyweight in food](https://news.puppy-snuggles.com/11802143/after-eating-our-bodyweight-in-food)
-- [Smile of sunday ☀️](https://news.puppy-snuggles.com/14588414/smile-of-sunday)
-- [Those eyes 💙](https://news.puppy-snuggles.com/7850739/those-eyes)
+- [His accurate fortune cookie](https://news.puppy-snuggles.com/11764426/his-accurate-fortune-cookie)
+- [After work mental care](https://news.puppy-snuggles.com/14588415/after-work-mental-care)
+- [Happy Monday from my Sunshine!](https://news.puppy-snuggles.com/14617021/happy-monday-from-my-sunshine)
+- [Dog pencil portrait commission artwork](https://news.puppy-snuggles.com/12972039/dog-pencil-portrait-commission-artwork)
+- [It’s so hard to tell her no sometimes, but I gotta do my schoolwork](https://news.puppy-snuggles.com/10863416/its-so-hard-to-tell-her-no-sometimes-but-i-gotta-do-my-schoolwork)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
