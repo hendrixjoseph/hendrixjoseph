@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His accurate fortune cookie](https://news.puppy-snuggles.com/11764426/his-accurate-fortune-cookie)
-- [After work mental care](https://news.puppy-snuggles.com/14588415/after-work-mental-care)
-- [Happy Monday from my Sunshine!](https://news.puppy-snuggles.com/14617021/happy-monday-from-my-sunshine)
-- [Dog pencil portrait commission artwork](https://news.puppy-snuggles.com/12972039/dog-pencil-portrait-commission-artwork)
-- [It’s so hard to tell her no sometimes, but I gotta do my schoolwork](https://news.puppy-snuggles.com/10863416/its-so-hard-to-tell-her-no-sometimes-but-i-gotta-do-my-schoolwork)
+- [Not all Facebook memes hold truth, except for this one.](https://news.puppy-snuggles.com/8216834/not-all-facebook-memes-hold-truth-except-for-this-one)
+- [I was not expecting that](https://news.puppy-snuggles.com/12268759/i-was-not-expecting-that)
+- [She lost a leg to cancer 2 weeks ago and is milking it for all its worth in treats. Clever girl.](https://news.puppy-snuggles.com/7273537/she-lost-a-leg-to-cancer-2-weeks-ago-and-is-milking-it-for-all-its-worth-in-treats-clever-girl)
+- [My Baby Leo walks on grass for the first time ever](https://news.puppy-snuggles.com/13865746/my-baby-leo-walks-on-grass-for-the-first-time-ever)
+- [After the dog was hit by a pillow...](https://news.puppy-snuggles.com/11427166/after-the-dog-was-hit-by-a-pillow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
