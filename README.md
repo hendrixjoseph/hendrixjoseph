@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Not all Facebook memes hold truth, except for this one.](https://news.puppy-snuggles.com/8216834/not-all-facebook-memes-hold-truth-except-for-this-one)
-- [I was not expecting that](https://news.puppy-snuggles.com/12268759/i-was-not-expecting-that)
-- [She lost a leg to cancer 2 weeks ago and is milking it for all its worth in treats. Clever girl.](https://news.puppy-snuggles.com/7273537/she-lost-a-leg-to-cancer-2-weeks-ago-and-is-milking-it-for-all-its-worth-in-treats-clever-girl)
-- [My Baby Leo walks on grass for the first time ever](https://news.puppy-snuggles.com/13865746/my-baby-leo-walks-on-grass-for-the-first-time-ever)
-- [After the dog was hit by a pillow...](https://news.puppy-snuggles.com/11427166/after-the-dog-was-hit-by-a-pillow)
+- [Mr. Rosco P. Coltrane is the newest addition to our little family.](https://news.puppy-snuggles.com/7416694/mr-rosco-p-coltrane-is-the-newest-addition-to-our-little-family)
+- [Happy beagle smiles](https://news.puppy-snuggles.com/8740313/happy-beagle-smiles)
+- [First time dog owner. This is Ellie we adopted less than a week ago and our whole family is in love.](https://news.puppy-snuggles.com/12446479/first-time-dog-owner-this-is-ellie-we-adopted-less-than-a-week-ago-and-our-whole-family-is-in-love)
+- [The first picture of my dog](https://news.puppy-snuggles.com/14333674/the-first-picture-of-my-dog)
+- [Moose loves walks](https://news.puppy-snuggles.com/11443553/moose-loves-walks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
