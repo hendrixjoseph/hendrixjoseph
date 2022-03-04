@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mr. Rosco P. Coltrane is the newest addition to our little family.](https://news.puppy-snuggles.com/7416694/mr-rosco-p-coltrane-is-the-newest-addition-to-our-little-family)
-- [Happy beagle smiles](https://news.puppy-snuggles.com/8740313/happy-beagle-smiles)
-- [First time dog owner. This is Ellie we adopted less than a week ago and our whole family is in love.](https://news.puppy-snuggles.com/12446479/first-time-dog-owner-this-is-ellie-we-adopted-less-than-a-week-ago-and-our-whole-family-is-in-love)
-- [The first picture of my dog](https://news.puppy-snuggles.com/14333674/the-first-picture-of-my-dog)
-- [Moose loves walks](https://news.puppy-snuggles.com/11443553/moose-loves-walks)
+- [What&#39;s up Doc](https://news.puppy-snuggles.com/5496325/whats-up-doc)
+- [Cute Dog and Fall Leaves](https://news.puppy-snuggles.com/11892605/cute-dog-and-fall-leaves)
+- [Hii I&#39;m Triska! 🥰🦴🐾](https://news.puppy-snuggles.com/14426542/hii-im-triska)
+- [My greyhound. Dash. Ultra Derp](https://news.puppy-snuggles.com/13282432/my-greyhound-dash-ultra-derp)
+- [My gang made it to the beach today. &lpar;The white boxes on their collars are GPS trackers&rpar;](https://news.puppy-snuggles.com/10430989/my-gang-made-it-to-the-beach-today-the-white-boxes-on-their-collars-are-gps-trackers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
