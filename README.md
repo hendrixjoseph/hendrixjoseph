@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What&#39;s up Doc](https://news.puppy-snuggles.com/5496325/whats-up-doc)
-- [Cute Dog and Fall Leaves](https://news.puppy-snuggles.com/11892605/cute-dog-and-fall-leaves)
-- [Hii I&#39;m Triska! 🥰🦴🐾](https://news.puppy-snuggles.com/14426542/hii-im-triska)
-- [My greyhound. Dash. Ultra Derp](https://news.puppy-snuggles.com/13282432/my-greyhound-dash-ultra-derp)
-- [My gang made it to the beach today. &lpar;The white boxes on their collars are GPS trackers&rpar;](https://news.puppy-snuggles.com/10430989/my-gang-made-it-to-the-beach-today-the-white-boxes-on-their-collars-are-gps-trackers)
+- [My dog might be better then me](https://news.puppy-snuggles.com/5638737/my-dog-might-be-better-then-me)
+- [Willow](https://news.puppy-snuggles.com/12280305/willow)
+- [Post sniffers workout comfort](https://news.puppy-snuggles.com/14750927/post-sniffers-workout-comfort)
+- [Ewww I&#39;m not catching that dirty thing!!!](https://news.puppy-snuggles.com/11407522/ewww-im-not-catching-that-dirty-thing)
+- [New puppy!!!](https://news.puppy-snuggles.com/12981226/new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
