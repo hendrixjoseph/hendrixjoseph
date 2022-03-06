@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog might be better then me](https://news.puppy-snuggles.com/5638737/my-dog-might-be-better-then-me)
-- [Willow](https://news.puppy-snuggles.com/12280305/willow)
-- [Post sniffers workout comfort](https://news.puppy-snuggles.com/14750927/post-sniffers-workout-comfort)
-- [Ewww I&#39;m not catching that dirty thing!!!](https://news.puppy-snuggles.com/11407522/ewww-im-not-catching-that-dirty-thing)
-- [New puppy!!!](https://news.puppy-snuggles.com/12981226/new-puppy)
+- [An endearing evening with Yvie](https://news.puppy-snuggles.com/5351869/an-endearing-evening-with-yvie)
+- [German Shepherd &lpar;Ronin&rpar; enjoying the snow in Texas.](https://news.puppy-snuggles.com/4245381/german-shepherd-ronin-enjoying-the-snow-in-texas)
+- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
+- [there&#39;s a hammock that this pig takes up two thirds of the space](https://news.puppy-snuggles.com/6267807/theres-a-hammock-that-this-pig-takes-up-two-thirds-of-the-space)
+- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
