@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [An endearing evening with Yvie](https://news.puppy-snuggles.com/5351869/an-endearing-evening-with-yvie)
-- [German Shepherd &lpar;Ronin&rpar; enjoying the snow in Texas.](https://news.puppy-snuggles.com/4245381/german-shepherd-ronin-enjoying-the-snow-in-texas)
-- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
-- [there&#39;s a hammock that this pig takes up two thirds of the space](https://news.puppy-snuggles.com/6267807/theres-a-hammock-that-this-pig-takes-up-two-thirds-of-the-space)
-- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
+- [Do y’all accept gremlin smiles, too?](https://news.puppy-snuggles.com/14709758/do-yall-accept-gremlin-smiles-too)
+- [My puppy Daisy Wren is literally sunshine covered in fur. I swear my iCloud is like 99% photos of her smiling.](https://news.puppy-snuggles.com/9546126/my-puppy-daisy-wren-is-literally-sunshine-covered-in-fur-i-swear-my-icloud-is-like-99-photos-of-her-smiling)
+- [Had to let go of my old boy today, been there since i was 1. Fly high casper](https://news.puppy-snuggles.com/14779121/had-to-let-go-of-my-old-boy-today-been-there-since-i-was-1-fly-high-casper)
+- [My lil bagel has gained some weight after being spaded, but she’s in the right track to healthy weight and a continuous long life of smiles and unconditional love](https://news.puppy-snuggles.com/11954244/my-lil-bagel-has-gained-some-weight-after-being-spaded-but-shes-in-the-right-track-to-healthy-weight-and-a-continuous-long-life-of-smiles-and-unconditional-love)
+- [Say hello to Diamond!](https://news.puppy-snuggles.com/11726154/say-hello-to-diamond)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
