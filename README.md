@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do y’all accept gremlin smiles, too?](https://news.puppy-snuggles.com/14709758/do-yall-accept-gremlin-smiles-too)
-- [My puppy Daisy Wren is literally sunshine covered in fur. I swear my iCloud is like 99% photos of her smiling.](https://news.puppy-snuggles.com/9546126/my-puppy-daisy-wren-is-literally-sunshine-covered-in-fur-i-swear-my-icloud-is-like-99-photos-of-her-smiling)
-- [Had to let go of my old boy today, been there since i was 1. Fly high casper](https://news.puppy-snuggles.com/14779121/had-to-let-go-of-my-old-boy-today-been-there-since-i-was-1-fly-high-casper)
-- [My lil bagel has gained some weight after being spaded, but she’s in the right track to healthy weight and a continuous long life of smiles and unconditional love](https://news.puppy-snuggles.com/11954244/my-lil-bagel-has-gained-some-weight-after-being-spaded-but-shes-in-the-right-track-to-healthy-weight-and-a-continuous-long-life-of-smiles-and-unconditional-love)
-- [Say hello to Diamond!](https://news.puppy-snuggles.com/11726154/say-hello-to-diamond)
+- [Our recently adopted 10 month old Labradoodle loves rolling around in the grass with a toy.](https://news.puppy-snuggles.com/14803410/our-recently-adopted-10-month-old-labradoodle-loves-rolling-around-in-the-grass-with-a-toy)
+- [Sleepy sleeper 🖤](https://news.puppy-snuggles.com/14827992/sleepy-sleeper)
+- [I just photographed this beautiful huskey at the park.](https://news.puppy-snuggles.com/14827993/i-just-photographed-this-beautiful-huskey-at-the-park)
+- [This is my Max at the beach. Describing Max as a good boy is a serious under sell ❤️](https://news.puppy-snuggles.com/14827994/this-is-my-max-at-the-beach-describing-max-as-a-good-boy-is-a-serious-under-sell)
+- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
