@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our recently adopted 10 month old Labradoodle loves rolling around in the grass with a toy.](https://news.puppy-snuggles.com/14803410/our-recently-adopted-10-month-old-labradoodle-loves-rolling-around-in-the-grass-with-a-toy)
-- [Sleepy sleeper 🖤](https://news.puppy-snuggles.com/14827992/sleepy-sleeper)
-- [I just photographed this beautiful huskey at the park.](https://news.puppy-snuggles.com/14827993/i-just-photographed-this-beautiful-huskey-at-the-park)
-- [This is my Max at the beach. Describing Max as a good boy is a serious under sell ❤️](https://news.puppy-snuggles.com/14827994/this-is-my-max-at-the-beach-describing-max-as-a-good-boy-is-a-serious-under-sell)
-- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
+- [What&#39;s a cute boy](https://news.puppy-snuggles.com/12105026/whats-a-cute-boy)
+- [From this to that](https://news.puppy-snuggles.com/14265558/from-this-to-that)
+- [Not the beauty, not the Age....but the charme to give away.](https://news.puppy-snuggles.com/10621692/not-the-beauty-not-the-agebut-the-charme-to-give-away)
+- [We are now foster failures with this 13 year old lab](https://news.puppy-snuggles.com/11625959/we-are-now-foster-failures-with-this-13-year-old-lab)
+- [Hi I’m Cece. Come tuck with me.](https://news.puppy-snuggles.com/14862108/hi-im-cece-come-tuck-with-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
