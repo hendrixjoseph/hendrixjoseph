@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What&#39;s a cute boy](https://news.puppy-snuggles.com/12105026/whats-a-cute-boy)
-- [From this to that](https://news.puppy-snuggles.com/14265558/from-this-to-that)
-- [Not the beauty, not the Age....but the charme to give away.](https://news.puppy-snuggles.com/10621692/not-the-beauty-not-the-agebut-the-charme-to-give-away)
-- [We are now foster failures with this 13 year old lab](https://news.puppy-snuggles.com/11625959/we-are-now-foster-failures-with-this-13-year-old-lab)
+- [My pup is one!](https://news.puppy-snuggles.com/14862106/my-pup-is-one)
+- [Under the tree](https://news.puppy-snuggles.com/12146104/under-the-tree)
+- [Happy 15th bday to Butters](https://news.puppy-snuggles.com/6354120/happy-15th-bday-to-butters)
 - [Hi I’m Cece. Come tuck with me.](https://news.puppy-snuggles.com/14862108/hi-im-cece-come-tuck-with-me)
+- [Behold the majesty...](https://news.puppy-snuggles.com/12454044/behold-the-majesty)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
