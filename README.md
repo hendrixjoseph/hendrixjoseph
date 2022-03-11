@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pup is one!](https://news.puppy-snuggles.com/14862106/my-pup-is-one)
-- [Under the tree](https://news.puppy-snuggles.com/12146104/under-the-tree)
-- [Happy 15th bday to Butters](https://news.puppy-snuggles.com/6354120/happy-15th-bday-to-butters)
-- [Hi I’m Cece. Come tuck with me.](https://news.puppy-snuggles.com/14862108/hi-im-cece-come-tuck-with-me)
-- [Behold the majesty...](https://news.puppy-snuggles.com/12454044/behold-the-majesty)
+- [My mood this autumn haha](https://news.puppy-snuggles.com/11676122/my-mood-this-autumn-haha)
+- [Got a professional photo done of my doggo I think it turned out pretty well](https://news.puppy-snuggles.com/7287918/got-a-professional-photo-done-of-my-doggo-i-think-it-turned-out-pretty-well)
+- [Girl is saving dogs from dog shelter. Irpin&#39; city, Ukraine.](https://news.puppy-snuggles.com/14929458/girl-is-saving-dogs-from-dog-shelter-irpin-city-ukraine)
+- [Here’s my tucked in puppy Milo, getting ready to sleep off his dinner](https://news.puppy-snuggles.com/8168556/heres-my-tucked-in-puppy-milo-getting-ready-to-sleep-off-his-dinner)
+- [Happy 5th bday 🎂 to my LittleBear 💓 💖 💗 💕](https://news.puppy-snuggles.com/11827608/happy-5th-bday-to-my-littlebear)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
