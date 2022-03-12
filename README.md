@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mood this autumn haha](https://news.puppy-snuggles.com/11676122/my-mood-this-autumn-haha)
-- [Got a professional photo done of my doggo I think it turned out pretty well](https://news.puppy-snuggles.com/7287918/got-a-professional-photo-done-of-my-doggo-i-think-it-turned-out-pretty-well)
-- [Girl is saving dogs from dog shelter. Irpin&#39; city, Ukraine.](https://news.puppy-snuggles.com/14929458/girl-is-saving-dogs-from-dog-shelter-irpin-city-ukraine)
-- [Here’s my tucked in puppy Milo, getting ready to sleep off his dinner](https://news.puppy-snuggles.com/8168556/heres-my-tucked-in-puppy-milo-getting-ready-to-sleep-off-his-dinner)
-- [Happy 5th bday 🎂 to my LittleBear 💓 💖 💗 💕](https://news.puppy-snuggles.com/11827608/happy-5th-bday-to-my-littlebear)
+- [Dogs and cats loves](https://news.puppy-snuggles.com/12112118/dogs-and-cats-loves)
+- [Camouflage](https://news.puppy-snuggles.com/8890103/camouflage)
+- [Cruel couple starved puppy in ‘worst animal abuse case in 15 years’ – with dog left on brink of death](https://news.puppy-snuggles.com/14925419/cruel-couple-starved-puppy-in-worst-animal-abuse-case-in-15-years-with-dog-left-on-brink-of-death)
+- [A couple of sausage dogs, drawn for a lovely customer earlier this year in pastel and colour pencil on pastelmat &lpar;16&amp;amp;quot;x12&amp;amp;quot;&rpar;. Hope you like them! Happy Friday to you :&rpar;](https://news.puppy-snuggles.com/10456088/a-couple-of-sausage-dogs-drawn-for-a-lovely-customer-earlier-this-year-in-pastel-and-colour-pencil-on-pastelmat-16quotx12quot-hope-you-like-them-happy-friday-to-you)
+- [Stray nice doggo](https://news.puppy-snuggles.com/11504086/stray-nice-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
