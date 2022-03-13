@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs and cats loves](https://news.puppy-snuggles.com/12112118/dogs-and-cats-loves)
-- [Camouflage](https://news.puppy-snuggles.com/8890103/camouflage)
-- [Cruel couple starved puppy in ‘worst animal abuse case in 15 years’ – with dog left on brink of death](https://news.puppy-snuggles.com/14925419/cruel-couple-starved-puppy-in-worst-animal-abuse-case-in-15-years-with-dog-left-on-brink-of-death)
-- [A couple of sausage dogs, drawn for a lovely customer earlier this year in pastel and colour pencil on pastelmat &lpar;16&amp;amp;quot;x12&amp;amp;quot;&rpar;. Hope you like them! Happy Friday to you :&rpar;](https://news.puppy-snuggles.com/10456088/a-couple-of-sausage-dogs-drawn-for-a-lovely-customer-earlier-this-year-in-pastel-and-colour-pencil-on-pastelmat-16quotx12quot-hope-you-like-them-happy-friday-to-you)
-- [Stray nice doggo](https://news.puppy-snuggles.com/11504086/stray-nice-doggo)
+- [Pencil drawing of much sadness](https://news.puppy-snuggles.com/14984989/pencil-drawing-of-much-sadness)
+- [This good boy turns one today!](https://news.puppy-snuggles.com/14984991/this-good-boy-turns-one-today)
+- [Curious dog](https://news.puppy-snuggles.com/10311401/curious-dog)
+- [Excuse me Human! Do you have time to talk about your cars extended Warranty?](https://news.puppy-snuggles.com/13905783/excuse-me-human-do-you-have-time-to-talk-about-your-cars-extended-warranty)
+- [The wife and I transport animals between animal control and rescues in free time . This is Hank the Hunk](https://news.puppy-snuggles.com/13959949/the-wife-and-i-transport-animals-between-animal-control-and-rescues-in-free-time-this-is-hank-the-hunk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
