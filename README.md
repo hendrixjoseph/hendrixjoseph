@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pencil drawing of much sadness](https://news.puppy-snuggles.com/14984989/pencil-drawing-of-much-sadness)
-- [This good boy turns one today!](https://news.puppy-snuggles.com/14984991/this-good-boy-turns-one-today)
-- [Curious dog](https://news.puppy-snuggles.com/10311401/curious-dog)
-- [Excuse me Human! Do you have time to talk about your cars extended Warranty?](https://news.puppy-snuggles.com/13905783/excuse-me-human-do-you-have-time-to-talk-about-your-cars-extended-warranty)
-- [The wife and I transport animals between animal control and rescues in free time . This is Hank the Hunk](https://news.puppy-snuggles.com/13959949/the-wife-and-i-transport-animals-between-animal-control-and-rescues-in-free-time-this-is-hank-the-hunk)
+- [Зима близко!](https://news.puppy-snuggles.com/11667227/zima-blizko)
+- [Is it a bird? Is it a plane? No it&#39;s silly._.lucy](https://news.puppy-snuggles.com/8682102/is-it-a-bird-is-it-a-plane-no-its-silly-lucy)
+- [Akame, 9yo](https://news.puppy-snuggles.com/7548329/akame-9yo)
+- [My boyfriend has the cutest dog I’ve ever seen. Chow Chow mix](https://news.puppy-snuggles.com/11734604/my-boyfriend-has-the-cutest-dog-ive-ever-seen-chow-chow-mix)
+- [Ludo checking if walk time](https://news.puppy-snuggles.com/15014465/ludo-checking-if-walk-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
