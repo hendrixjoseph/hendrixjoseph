@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Зима близко!](https://news.puppy-snuggles.com/11667227/zima-blizko)
-- [Is it a bird? Is it a plane? No it&#39;s silly._.lucy](https://news.puppy-snuggles.com/8682102/is-it-a-bird-is-it-a-plane-no-its-silly-lucy)
-- [Akame, 9yo](https://news.puppy-snuggles.com/7548329/akame-9yo)
-- [My boyfriend has the cutest dog I’ve ever seen. Chow Chow mix](https://news.puppy-snuggles.com/11734604/my-boyfriend-has-the-cutest-dog-ive-ever-seen-chow-chow-mix)
-- [Ludo checking if walk time](https://news.puppy-snuggles.com/15014465/ludo-checking-if-walk-time)
+- [Our Cavaliers](https://news.puppy-snuggles.com/12188947/our-cavaliers)
+- [What breed is my newly adopted dog?](https://news.puppy-snuggles.com/13199066/what-breed-is-my-newly-adopted-dog)
+- [The afternoon is so peaceful](https://news.puppy-snuggles.com/7973976/the-afternoon-is-so-peaceful)
+- [Enjoy This Beautiful Story.](https://news.puppy-snuggles.com/8195563/enjoy-this-beautiful-story)
+- [I don&#39;t care what his breed is...Red is a good pupperz](https://news.puppy-snuggles.com/15043100/i-dont-care-what-his-breed-isred-is-a-good-pupperz)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
