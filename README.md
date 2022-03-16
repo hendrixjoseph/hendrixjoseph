@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our Cavaliers](https://news.puppy-snuggles.com/12188947/our-cavaliers)
-- [What breed is my newly adopted dog?](https://news.puppy-snuggles.com/13199066/what-breed-is-my-newly-adopted-dog)
-- [The afternoon is so peaceful](https://news.puppy-snuggles.com/7973976/the-afternoon-is-so-peaceful)
-- [Enjoy This Beautiful Story.](https://news.puppy-snuggles.com/8195563/enjoy-this-beautiful-story)
-- [I don&#39;t care what his breed is...Red is a good pupperz](https://news.puppy-snuggles.com/15043100/i-dont-care-what-his-breed-isred-is-a-good-pupperz)
+- [Hello .can you help me identify the breed of these dogs ?](https://news.puppy-snuggles.com/11717578/hello-can-you-help-me-identify-the-breed-of-these-dogs)
+- [Milo says “heyyyy just rollin in some dirt”](https://news.puppy-snuggles.com/11443557/milo-says-heyyyy-just-rollin-in-some-dirt)
+- [If you haven&#39;t smiled this morning :3 this is Cyla](https://news.puppy-snuggles.com/15077343/if-you-havent-smiled-this-morning-3-this-is-cyla)
+- [Cute Puppy Making Funny Noises With His Mum When She Kisses Him](https://news.puppy-snuggles.com/15067883/cute-puppy-making-funny-noises-with-his-mum-when-she-kisses-him)
+- [My good girl comforting my grandmother in her final hours](https://news.puppy-snuggles.com/15077344/my-good-girl-comforting-my-grandmother-in-her-final-hours)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
