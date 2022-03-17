@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello .can you help me identify the breed of these dogs ?](https://news.puppy-snuggles.com/11717578/hello-can-you-help-me-identify-the-breed-of-these-dogs)
-- [Milo says “heyyyy just rollin in some dirt”](https://news.puppy-snuggles.com/11443557/milo-says-heyyyy-just-rollin-in-some-dirt)
-- [If you haven&#39;t smiled this morning :3 this is Cyla](https://news.puppy-snuggles.com/15077343/if-you-havent-smiled-this-morning-3-this-is-cyla)
-- [Cute Puppy Making Funny Noises With His Mum When She Kisses Him](https://news.puppy-snuggles.com/15067883/cute-puppy-making-funny-noises-with-his-mum-when-she-kisses-him)
-- [My good girl comforting my grandmother in her final hours](https://news.puppy-snuggles.com/15077344/my-good-girl-comforting-my-grandmother-in-her-final-hours)
+- [How could you not want to boop this snoot?](https://news.puppy-snuggles.com/12938547/how-could-you-not-want-to-boop-this-snoot)
+- [Das a good boy](https://news.puppy-snuggles.com/8471189/das-a-good-boy)
+- [Riggs is tuckered after playtime, but still smiling. My happy boy!](https://news.puppy-snuggles.com/10150590/riggs-is-tuckered-after-playtime-but-still-smiling-my-happy-boy)
+- [My boy Jöel is happiest at the beach!](https://news.puppy-snuggles.com/12499190/my-boy-joel-is-happiest-at-the-beach)
+- [She unexpectedly passed away in her sleep yesterday but she had the biggest and warmest smile and I miss her so much](https://news.puppy-snuggles.com/13744870/she-unexpectedly-passed-away-in-her-sleep-yesterday-but-she-had-the-biggest-and-warmest-smile-and-i-miss-her-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
