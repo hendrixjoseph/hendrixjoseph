@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How could you not want to boop this snoot?](https://news.puppy-snuggles.com/12938547/how-could-you-not-want-to-boop-this-snoot)
-- [Das a good boy](https://news.puppy-snuggles.com/8471189/das-a-good-boy)
-- [Riggs is tuckered after playtime, but still smiling. My happy boy!](https://news.puppy-snuggles.com/10150590/riggs-is-tuckered-after-playtime-but-still-smiling-my-happy-boy)
-- [My boy Jöel is happiest at the beach!](https://news.puppy-snuggles.com/12499190/my-boy-joel-is-happiest-at-the-beach)
-- [She unexpectedly passed away in her sleep yesterday but she had the biggest and warmest smile and I miss her so much](https://news.puppy-snuggles.com/13744870/she-unexpectedly-passed-away-in-her-sleep-yesterday-but-she-had-the-biggest-and-warmest-smile-and-i-miss-her-so-much)
+- [Still has a puppy smile](https://news.puppy-snuggles.com/10371591/still-has-a-puppy-smile)
+- [Well, fudge. Vet hospital just confirmed our 10 year old good girl has late&lpar;ish&rpar; stage cancer in her sinuses 😢. They estimate a couple of months left, so we&#39;re going to treat her to absolutely everything between now and then.](https://news.puppy-snuggles.com/13850916/well-fudge-vet-hospital-just-confirmed-our-10-year-old-good-girl-has-lateish-stage-cancer-in-her-sinuses-they-estimate-a-couple-of-months-left-so-were-going-to-treat-her-to-absolutely-everything-between-now-and-then)
+- [The family dog, Chip](https://news.puppy-snuggles.com/12021013/the-family-dog-chip)
+- [L o a f](https://news.puppy-snuggles.com/6340872/l-o-a-f)
+- [What kind of dog this](https://news.puppy-snuggles.com/12360113/what-kind-of-dog-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
