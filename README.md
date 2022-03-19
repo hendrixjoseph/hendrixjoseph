@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s the difference between Computer Science and Computer Engineering?](https://www.reddit.com/r/computerscience/comments/thcidh/whats_the_difference_between_computer_science_and/i16u5g7/)
 - [/u/joehx on [Watsonian Answers Only] Why didn’t the Augment Virus-afflicted Klingons on K-7 recognize Worf as a Klingon?](https://www.reddit.com/r/startrek/comments/tac5qu/watsonian_answers_only_why_didnt_the_augment/hzzqbzb/)
 - [/u/joehx on What quietly screams ‘rich/wealthy’?](https://www.reddit.com/r/AskReddit/comments/t9g5it/what_quietly_screams_richwealthy/hzwk36j/)
 - [/u/joehx on Fancy key fob!](https://www.reddit.com/r/Justrolledintotheshop/comments/t988bz/fancy_key_fob/hzui787/)
 - [Free File Fillable Forms Federal Tax Return XML Error X0000-005](https://www.reddit.com/r/u_joehx/comments/t9gs0z/free_file_fillable_forms_federal_tax_return_xml/)
-- [February 2022 Book Reading List](https://www.reddit.com/r/u_joehx/comments/t5x2gi/february_2022_book_reading_list/)
 <!-- REDDIT:END -->
