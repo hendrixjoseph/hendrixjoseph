@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Still has a puppy smile](https://news.puppy-snuggles.com/10371591/still-has-a-puppy-smile)
-- [Well, fudge. Vet hospital just confirmed our 10 year old good girl has late&lpar;ish&rpar; stage cancer in her sinuses 😢. They estimate a couple of months left, so we&#39;re going to treat her to absolutely everything between now and then.](https://news.puppy-snuggles.com/13850916/well-fudge-vet-hospital-just-confirmed-our-10-year-old-good-girl-has-lateish-stage-cancer-in-her-sinuses-they-estimate-a-couple-of-months-left-so-were-going-to-treat-her-to-absolutely-everything-between-now-and-then)
-- [The family dog, Chip](https://news.puppy-snuggles.com/12021013/the-family-dog-chip)
-- [L o a f](https://news.puppy-snuggles.com/6340872/l-o-a-f)
-- [What kind of dog this](https://news.puppy-snuggles.com/12360113/what-kind-of-dog-this)
+- [Anybody know what breed my doggo is?](https://news.puppy-snuggles.com/12879300/anybody-know-what-breed-my-doggo-is)
+- [Sleepy baby](https://news.puppy-snuggles.com/3759535/sleepy-baby)
+- [This sweet vanilla caramel lowrider visits me at work often and makes happy noises when you give her cheek scratches](https://news.puppy-snuggles.com/14853122/this-sweet-vanilla-caramel-lowrider-visits-me-at-work-often-and-makes-happy-noises-when-you-give-her-cheek-scratches)
+- [Little Luzbe being cute!](https://news.puppy-snuggles.com/15043096/little-luzbe-being-cute)
+- [This is Charlie](https://news.puppy-snuggles.com/11315171/this-is-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
