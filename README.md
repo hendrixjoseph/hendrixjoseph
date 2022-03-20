@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Anybody know what breed my doggo is?](https://news.puppy-snuggles.com/12879300/anybody-know-what-breed-my-doggo-is)
-- [Sleepy baby](https://news.puppy-snuggles.com/3759535/sleepy-baby)
-- [This sweet vanilla caramel lowrider visits me at work often and makes happy noises when you give her cheek scratches](https://news.puppy-snuggles.com/14853122/this-sweet-vanilla-caramel-lowrider-visits-me-at-work-often-and-makes-happy-noises-when-you-give-her-cheek-scratches)
+- [Me and my dog Bobo! On adventure](https://news.puppy-snuggles.com/7973975/me-and-my-dog-bobo-on-adventure)
+- [A top view of my almost 9 week old American red nose Pitbull bully/collie mix named Zeus. His white lightning bolt and all 😍](https://news.puppy-snuggles.com/15043097/a-top-view-of-my-almost-9-week-old-american-red-nose-pitbull-bullycollie-mix-named-zeus-his-white-lightning-bolt-and-all)
 - [Little Luzbe being cute!](https://news.puppy-snuggles.com/15043096/little-luzbe-being-cute)
-- [This is Charlie](https://news.puppy-snuggles.com/11315171/this-is-charlie)
+- [My darling boy has officially become a teenager. Happy 13th birthday Tom](https://news.puppy-snuggles.com/15198012/my-darling-boy-has-officially-become-a-teenager-happy-13th-birthday-tom)
+- [I bought a beer cozy that looks like a ballistic vest and it fits on my dog](https://news.puppy-snuggles.com/10176655/i-bought-a-beer-cozy-that-looks-like-a-ballistic-vest-and-it-fits-on-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
