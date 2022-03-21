@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Me and my dog Bobo! On adventure](https://news.puppy-snuggles.com/7973975/me-and-my-dog-bobo-on-adventure)
-- [A top view of my almost 9 week old American red nose Pitbull bully/collie mix named Zeus. His white lightning bolt and all 😍](https://news.puppy-snuggles.com/15043097/a-top-view-of-my-almost-9-week-old-american-red-nose-pitbull-bullycollie-mix-named-zeus-his-white-lightning-bolt-and-all)
-- [Little Luzbe being cute!](https://news.puppy-snuggles.com/15043096/little-luzbe-being-cute)
-- [My darling boy has officially become a teenager. Happy 13th birthday Tom](https://news.puppy-snuggles.com/15198012/my-darling-boy-has-officially-become-a-teenager-happy-13th-birthday-tom)
-- [I bought a beer cozy that looks like a ballistic vest and it fits on my dog](https://news.puppy-snuggles.com/10176655/i-bought-a-beer-cozy-that-looks-like-a-ballistic-vest-and-it-fits-on-my-dog)
+- [Before and after daycare](https://news.puppy-snuggles.com/15192400/before-and-after-daycare)
+- [Just look at his face!](https://news.puppy-snuggles.com/15198014/just-look-at-his-face)
+- [Poldo, 20 years and 7 months old, sometimes falls asleep while eating.](https://news.puppy-snuggles.com/9789370/poldo-20-years-and-7-months-old-sometimes-falls-asleep-while-eating)
+- [Anyone know who this dog is?](https://news.puppy-snuggles.com/7333749/anyone-know-who-this-dog-is)
+- [more photos of this sweet girl. i’m so glad i found her.](https://news.puppy-snuggles.com/15167957/more-photos-of-this-sweet-girl-im-so-glad-i-found-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
