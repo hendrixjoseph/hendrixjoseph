@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Before and after daycare](https://news.puppy-snuggles.com/15192400/before-and-after-daycare)
-- [Just look at his face!](https://news.puppy-snuggles.com/15198014/just-look-at-his-face)
-- [Poldo, 20 years and 7 months old, sometimes falls asleep while eating.](https://news.puppy-snuggles.com/9789370/poldo-20-years-and-7-months-old-sometimes-falls-asleep-while-eating)
-- [Anyone know who this dog is?](https://news.puppy-snuggles.com/7333749/anyone-know-who-this-dog-is)
-- [more photos of this sweet girl. i’m so glad i found her.](https://news.puppy-snuggles.com/15167957/more-photos-of-this-sweet-girl-im-so-glad-i-found-her)
+- [Meet Maya, the 1yr old Samoyed!](https://news.puppy-snuggles.com/15256867/meet-maya-the-1yr-old-samoyed)
+- [My baby girl just turned 10!](https://news.puppy-snuggles.com/15256865/my-baby-girl-just-turned-10)
+- [Aww yiss](https://news.puppy-snuggles.com/7945213/aww-yiss)
+- [Professor Casper at your service.](https://news.puppy-snuggles.com/15256869/professor-casper-at-your-service)
+- [How should I name him? Only wrong answers](https://news.puppy-snuggles.com/15256864/how-should-i-name-him-only-wrong-answers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
