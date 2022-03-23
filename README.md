@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on How do you make money online ?](https://www.reddit.com/r/AskReddit/comments/tk9y9t/how_do_you_make_money_online/i1peqqk/)
+- [/u/joehx on How do you make money online ?](https://www.reddit.com/r/AskReddit/comments/tk9y9t/how_do_you_make_money_online/i1p1lr3/)
 - [/u/joehx on What is the &quot;coke vs. pepsi&quot; of your industry?](https://www.reddit.com/r/AskReddit/comments/tia69a/what_is_the_coke_vs_pepsi_of_your_industry/i1crs13/)
 - [/u/joehx on What&#39;s the difference between Computer Science and Computer Engineering?](https://www.reddit.com/r/computerscience/comments/thcidh/whats_the_difference_between_computer_science_and/i16u5g7/)
 - [/u/joehx on [Watsonian Answers Only] Why didn’t the Augment Virus-afflicted Klingons on K-7 recognize Worf as a Klingon?](https://www.reddit.com/r/startrek/comments/tac5qu/watsonian_answers_only_why_didnt_the_augment/hzzqbzb/)
-- [/u/joehx on What quietly screams ‘rich/wealthy’?](https://www.reddit.com/r/AskReddit/comments/t9g5it/what_quietly_screams_richwealthy/hzwk36j/)
-- [/u/joehx on Fancy key fob!](https://www.reddit.com/r/Justrolledintotheshop/comments/t988bz/fancy_key_fob/hzui787/)
 <!-- REDDIT:END -->
