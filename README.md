@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Maya, the 1yr old Samoyed!](https://news.puppy-snuggles.com/15256867/meet-maya-the-1yr-old-samoyed)
-- [My baby girl just turned 10!](https://news.puppy-snuggles.com/15256865/my-baby-girl-just-turned-10)
-- [Aww yiss](https://news.puppy-snuggles.com/7945213/aww-yiss)
-- [Professor Casper at your service.](https://news.puppy-snuggles.com/15256869/professor-casper-at-your-service)
-- [How should I name him? Only wrong answers](https://news.puppy-snuggles.com/15256864/how-should-i-name-him-only-wrong-answers)
+- [Have a good day](https://news.puppy-snuggles.com/15290082/have-a-good-day)
+- [This is boomer! Would like to introduce him to Reddit!](https://news.puppy-snuggles.com/8881253/this-is-boomer-would-like-to-introduce-him-to-reddit)
+- [Just swinging by to say hi](https://news.puppy-snuggles.com/9435580/just-swinging-by-to-say-hi)
+- [Lost my sweet Daisy a year ago now at the age of 15. Just wanted to show how beautiful she was](https://news.puppy-snuggles.com/14324520/lost-my-sweet-daisy-a-year-ago-now-at-the-age-of-15-just-wanted-to-show-how-beautiful-she-was)
+- [20 more days and i finally get to see my baby after 18 months of being abroad 🐾](https://news.puppy-snuggles.com/12188944/20-more-days-and-i-finally-get-to-see-my-baby-after-18-months-of-being-abroad)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
