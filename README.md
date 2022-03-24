@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Have a good day](https://news.puppy-snuggles.com/15290082/have-a-good-day)
-- [This is boomer! Would like to introduce him to Reddit!](https://news.puppy-snuggles.com/8881253/this-is-boomer-would-like-to-introduce-him-to-reddit)
-- [Just swinging by to say hi](https://news.puppy-snuggles.com/9435580/just-swinging-by-to-say-hi)
-- [Lost my sweet Daisy a year ago now at the age of 15. Just wanted to show how beautiful she was](https://news.puppy-snuggles.com/14324520/lost-my-sweet-daisy-a-year-ago-now-at-the-age-of-15-just-wanted-to-show-how-beautiful-she-was)
-- [20 more days and i finally get to see my baby after 18 months of being abroad 🐾](https://news.puppy-snuggles.com/12188944/20-more-days-and-i-finally-get-to-see-my-baby-after-18-months-of-being-abroad)
+- [Lol his guilty cute face.](https://news.puppy-snuggles.com/15323998/lol-his-guilty-cute-face)
+- [5 years ago, Tizzy was the smallest and the weakest in her litter. Looking back at those years, I think she made a wise decision of choosing to stay with us.](https://news.puppy-snuggles.com/5997205/5-years-ago-tizzy-was-the-smallest-and-the-weakest-in-her-litter-looking-back-at-those-years-i-think-she-made-a-wise-decision-of-choosing-to-stay-with-us)
+- [Always Smiling, my little Eva](https://news.puppy-snuggles.com/11037964/always-smiling-my-little-eva)
+- [Ready to swim](https://news.puppy-snuggles.com/8654377/ready-to-swim)
+- [when it&#39;s your first birthday and you get to spend it with your best friend.](https://news.puppy-snuggles.com/15323995/when-its-your-first-birthday-and-you-get-to-spend-it-with-your-best-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
