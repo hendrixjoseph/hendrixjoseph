@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lol his guilty cute face.](https://news.puppy-snuggles.com/15323998/lol-his-guilty-cute-face)
-- [5 years ago, Tizzy was the smallest and the weakest in her litter. Looking back at those years, I think she made a wise decision of choosing to stay with us.](https://news.puppy-snuggles.com/5997205/5-years-ago-tizzy-was-the-smallest-and-the-weakest-in-her-litter-looking-back-at-those-years-i-think-she-made-a-wise-decision-of-choosing-to-stay-with-us)
-- [Always Smiling, my little Eva](https://news.puppy-snuggles.com/11037964/always-smiling-my-little-eva)
-- [Ready to swim](https://news.puppy-snuggles.com/8654377/ready-to-swim)
-- [when it&#39;s your first birthday and you get to spend it with your best friend.](https://news.puppy-snuggles.com/15323995/when-its-your-first-birthday-and-you-get-to-spend-it-with-your-best-friend)
+- [I draw realistic pet portraits. Swipe for more! 😃](https://news.puppy-snuggles.com/12473324/i-draw-realistic-pet-portraits-swipe-for-more)
+- [Hail and farewell, my little man. You were the *best* boy.](https://news.puppy-snuggles.com/8367060/hail-and-farewell-my-little-man-you-were-the-best-boy)
+- [Loki is a smiley girl](https://news.puppy-snuggles.com/12146103/loki-is-a-smiley-girl)
+- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
+- [This is Hank and he is very happy](https://news.puppy-snuggles.com/12360115/this-is-hank-and-he-is-very-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
