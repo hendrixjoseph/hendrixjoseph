@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I draw realistic pet portraits. Swipe for more! 😃](https://news.puppy-snuggles.com/12473324/i-draw-realistic-pet-portraits-swipe-for-more)
-- [Hail and farewell, my little man. You were the *best* boy.](https://news.puppy-snuggles.com/8367060/hail-and-farewell-my-little-man-you-were-the-best-boy)
-- [Loki is a smiley girl](https://news.puppy-snuggles.com/12146103/loki-is-a-smiley-girl)
-- [I work at a vet center. My colleague visited with her Succes Dog the other day.](https://news.puppy-snuggles.com/5638738/i-work-at-a-vet-center-my-colleague-visited-with-her-succes-dog-the-other-day)
-- [This is Hank and he is very happy](https://news.puppy-snuggles.com/12360115/this-is-hank-and-he-is-very-happy)
+- [he is trying to figure out what I&#39;m about to do as much as I&#39;m trying to figure out what he&#39;s about to do](https://news.puppy-snuggles.com/15390379/he-is-trying-to-figure-out-what-im-about-to-do-as-much-as-im-trying-to-figure-out-what-hes-about-to-do)
+- [The struggle is real](https://news.puppy-snuggles.com/6425887/the-struggle-is-real)
+- [Dog rescued from Deadly Oil Pit - Happy Ending](https://news.puppy-snuggles.com/8535221/dog-rescued-from-deadly-oil-pit-happy-ending)
+- [Trooper, this boy has been with me since I was 6. Love this dude](https://news.puppy-snuggles.com/6780490/trooper-this-boy-has-been-with-me-since-i-was-6-love-this-dude)
+- [My dog always looks sad but this is too much](https://news.puppy-snuggles.com/5466223/my-dog-always-looks-sad-but-this-is-too-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
