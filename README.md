@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [he is trying to figure out what I&#39;m about to do as much as I&#39;m trying to figure out what he&#39;s about to do](https://news.puppy-snuggles.com/15390379/he-is-trying-to-figure-out-what-im-about-to-do-as-much-as-im-trying-to-figure-out-what-hes-about-to-do)
-- [The struggle is real](https://news.puppy-snuggles.com/6425887/the-struggle-is-real)
-- [Dog rescued from Deadly Oil Pit - Happy Ending](https://news.puppy-snuggles.com/8535221/dog-rescued-from-deadly-oil-pit-happy-ending)
-- [Trooper, this boy has been with me since I was 6. Love this dude](https://news.puppy-snuggles.com/6780490/trooper-this-boy-has-been-with-me-since-i-was-6-love-this-dude)
-- [My dog always looks sad but this is too much](https://news.puppy-snuggles.com/5466223/my-dog-always-looks-sad-but-this-is-too-much)
+- [The family dog, Chip](https://news.puppy-snuggles.com/12021013/the-family-dog-chip)
+- [&amp;amp;quot;Stoffel&amp;amp;quot;, pastelpainting, me, 2022](https://news.puppy-snuggles.com/15216383/quotstoffelquot-pastelpainting-me-2022)
+- [Honey is officially heartworm free!](https://news.puppy-snuggles.com/15216380/honey-is-officially-heartworm-free)
+- [Reflections.](https://news.puppy-snuggles.com/15216382/reflections)
+- [Protector♡](https://news.puppy-snuggles.com/6621036/protector)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
