@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The family dog, Chip](https://news.puppy-snuggles.com/12021013/the-family-dog-chip)
-- [&amp;amp;quot;Stoffel&amp;amp;quot;, pastelpainting, me, 2022](https://news.puppy-snuggles.com/15216383/quotstoffelquot-pastelpainting-me-2022)
-- [Honey is officially heartworm free!](https://news.puppy-snuggles.com/15216380/honey-is-officially-heartworm-free)
-- [Reflections.](https://news.puppy-snuggles.com/15216382/reflections)
-- [Protector♡](https://news.puppy-snuggles.com/6621036/protector)
+- [Sasha, my 12week Dalmatian.](https://news.puppy-snuggles.com/12112122/sasha-my-12week-dalmatian)
+- [This is my dog Abby.](https://news.puppy-snuggles.com/15434995/this-is-my-dog-abby)
+- [My best buddy is spending the night in the ER. Just hoping she gets better.](https://news.puppy-snuggles.com/6267808/my-best-buddy-is-spending-the-night-in-the-er-just-hoping-she-gets-better)
+- [Finally tired. Only took 2 hours of fetch and my sore shoulder.](https://news.puppy-snuggles.com/11851699/finally-tired-only-took-2-hours-of-fetch-and-my-sore-shoulder)
+- [video of gypsy enjoying life as my dad rubs her head](https://news.puppy-snuggles.com/15440415/video-of-gypsy-enjoying-life-as-my-dad-rubs-her-head)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
