@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sasha, my 12week Dalmatian.](https://news.puppy-snuggles.com/12112122/sasha-my-12week-dalmatian)
-- [This is my dog Abby.](https://news.puppy-snuggles.com/15434995/this-is-my-dog-abby)
-- [My best buddy is spending the night in the ER. Just hoping she gets better.](https://news.puppy-snuggles.com/6267808/my-best-buddy-is-spending-the-night-in-the-er-just-hoping-she-gets-better)
-- [Finally tired. Only took 2 hours of fetch and my sore shoulder.](https://news.puppy-snuggles.com/11851699/finally-tired-only-took-2-hours-of-fetch-and-my-sore-shoulder)
-- [video of gypsy enjoying life as my dad rubs her head](https://news.puppy-snuggles.com/15440415/video-of-gypsy-enjoying-life-as-my-dad-rubs-her-head)
+- [Jackson is our King](https://news.puppy-snuggles.com/14324523/jackson-is-our-king)
+- [Nova](https://news.puppy-snuggles.com/15471302/nova)
+- [Doggo with a jobbo](https://news.puppy-snuggles.com/11055336/doggo-with-a-jobbo)
+- [“That flying noisy thing &lpar;plane&rpar; is very interesting!”](https://news.puppy-snuggles.com/8904985/that-flying-noisy-thing-plane-is-very-interesting)
+- [self portrait of Iris. Her face says life is hard lol](https://news.puppy-snuggles.com/11210793/self-portrait-of-iris-her-face-says-life-is-hard-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
