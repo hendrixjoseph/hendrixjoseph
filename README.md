@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Jackson is our King](https://news.puppy-snuggles.com/14324523/jackson-is-our-king)
-- [Nova](https://news.puppy-snuggles.com/15471302/nova)
-- [Doggo with a jobbo](https://news.puppy-snuggles.com/11055336/doggo-with-a-jobbo)
-- [“That flying noisy thing &lpar;plane&rpar; is very interesting!”](https://news.puppy-snuggles.com/8904985/that-flying-noisy-thing-plane-is-very-interesting)
-- [self portrait of Iris. Her face says life is hard lol](https://news.puppy-snuggles.com/11210793/self-portrait-of-iris-her-face-says-life-is-hard-lol)
+- [Popcorn has zero respect for my nap 😂](https://news.puppy-snuggles.com/15504939/popcorn-has-zero-respect-for-my-nap)
+- [Why does my dog sometimes sit with his paw curled in like this?](https://news.puppy-snuggles.com/9746205/why-does-my-dog-sometimes-sit-with-his-paw-curled-in-like-this)
+- [We had to put down my dog today](https://news.puppy-snuggles.com/12319022/we-had-to-put-down-my-dog-today)
+- [Got my first snap of little pup JoJo&#39;s puppy smile. So young but already so much to be happy about.](https://news.puppy-snuggles.com/15495506/got-my-first-snap-of-little-pup-jojos-puppy-smile-so-young-but-already-so-much-to-be-happy-about)
+- [My lil bagel has gained some weight after being spaded, but she’s in the right track to healthy weight and a continuous long life of smiles and unconditional love](https://news.puppy-snuggles.com/11954244/my-lil-bagel-has-gained-some-weight-after-being-spaded-but-shes-in-the-right-track-to-healthy-weight-and-a-continuous-long-life-of-smiles-and-unconditional-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
