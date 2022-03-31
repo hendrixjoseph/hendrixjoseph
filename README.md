@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Popcorn has zero respect for my nap 😂](https://news.puppy-snuggles.com/15504939/popcorn-has-zero-respect-for-my-nap)
-- [Why does my dog sometimes sit with his paw curled in like this?](https://news.puppy-snuggles.com/9746205/why-does-my-dog-sometimes-sit-with-his-paw-curled-in-like-this)
-- [We had to put down my dog today](https://news.puppy-snuggles.com/12319022/we-had-to-put-down-my-dog-today)
-- [Got my first snap of little pup JoJo&#39;s puppy smile. So young but already so much to be happy about.](https://news.puppy-snuggles.com/15495506/got-my-first-snap-of-little-pup-jojos-puppy-smile-so-young-but-already-so-much-to-be-happy-about)
-- [My lil bagel has gained some weight after being spaded, but she’s in the right track to healthy weight and a continuous long life of smiles and unconditional love](https://news.puppy-snuggles.com/11954244/my-lil-bagel-has-gained-some-weight-after-being-spaded-but-shes-in-the-right-track-to-healthy-weight-and-a-continuous-long-life-of-smiles-and-unconditional-love)
+- [He seems to only smile when he&#39;s napping, which I totally understand](https://news.puppy-snuggles.com/9773650/he-seems-to-only-smile-when-hes-napping-which-i-totally-understand)
+- [My poor old little girl has CHF and can’t exert herself too much so we got her a stroller. She loves it and now she can come along on all of our adventures again.](https://news.puppy-snuggles.com/10064122/my-poor-old-little-girl-has-chf-and-cant-exert-herself-too-much-so-we-got-her-a-stroller-she-loves-it-and-now-she-can-come-along-on-all-of-our-adventures-again)
+- [This is Susan, and she’s mostly a very good girl.](https://news.puppy-snuggles.com/15522530/this-is-susan-and-shes-mostly-a-very-good-girl)
+- [They need love and home](https://news.puppy-snuggles.com/12466841/they-need-love-and-home)
+- [My sweet sweet Lucy &amp;amp;lt;3](https://news.puppy-snuggles.com/15541416/my-sweet-sweet-lucy-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
