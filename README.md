@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Welcome to my crew !](https://news.puppy-snuggles.com/15541409/welcome-to-my-crew)
-- [Freshly acquired Aussie](https://news.puppy-snuggles.com/15504940/freshly-acquired-aussie)
-- [100/10 for doing so well in class today and for qualifying to graduate high pup honors](https://news.puppy-snuggles.com/15566808/10010-for-doing-so-well-in-class-today-and-for-qualifying-to-graduate-high-pup-honors)
-- [My extremely anxious rescue turns into a completely different dog at the beach. She loves it so much.](https://news.puppy-snuggles.com/8270180/my-extremely-anxious-rescue-turns-into-a-completely-different-dog-at-the-beach-she-loves-it-so-much)
-- [Anyone know this dog breed / mix?](https://news.puppy-snuggles.com/11631435/anyone-know-this-dog-breed-mix)
+- [Rose is 13 today!](https://news.puppy-snuggles.com/15609377/rose-is-13-today)
+- [Spots, dots &amp;amp;amp; smiles](https://news.puppy-snuggles.com/15609385/spots-dots-amp-smiles)
+- [Boops](https://news.puppy-snuggles.com/15566805/boops)
+- [My big beautiful boy blue](https://news.puppy-snuggles.com/11401781/my-big-beautiful-boy-blue)
+- [I was told this would be appreciated here.](https://news.puppy-snuggles.com/12250726/i-was-told-this-would-be-appreciated-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
