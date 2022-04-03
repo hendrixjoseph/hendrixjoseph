@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rose is 13 today!](https://news.puppy-snuggles.com/15609377/rose-is-13-today)
-- [Spots, dots &amp;amp;amp; smiles](https://news.puppy-snuggles.com/15609385/spots-dots-amp-smiles)
-- [Boops](https://news.puppy-snuggles.com/15566805/boops)
-- [My big beautiful boy blue](https://news.puppy-snuggles.com/11401781/my-big-beautiful-boy-blue)
-- [I was told this would be appreciated here.](https://news.puppy-snuggles.com/12250726/i-was-told-this-would-be-appreciated-here)
+- [Funny doggo](https://news.puppy-snuggles.com/15634224/funny-doggo)
+- [My puppy keeps biting everything, including me](https://news.puppy-snuggles.com/11381589/my-puppy-keeps-biting-everything-including-me)
+- [Khaos, the dorkiest of dobers](https://news.puppy-snuggles.com/11820818/khaos-the-dorkiest-of-dobers)
+- [Who said pitbull are all meat dogs? My girl enjoys a good parsley leaf 😂](https://news.puppy-snuggles.com/6710776/who-said-pitbull-are-all-meat-dogs-my-girl-enjoys-a-good-parsley-leaf)
+- [What breed?](https://news.puppy-snuggles.com/15634228/what-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
