@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Funny doggo](https://news.puppy-snuggles.com/15634224/funny-doggo)
-- [My puppy keeps biting everything, including me](https://news.puppy-snuggles.com/11381589/my-puppy-keeps-biting-everything-including-me)
-- [Khaos, the dorkiest of dobers](https://news.puppy-snuggles.com/11820818/khaos-the-dorkiest-of-dobers)
-- [Who said pitbull are all meat dogs? My girl enjoys a good parsley leaf 😂](https://news.puppy-snuggles.com/6710776/who-said-pitbull-are-all-meat-dogs-my-girl-enjoys-a-good-parsley-leaf)
-- [What breed?](https://news.puppy-snuggles.com/15634228/what-breed)
+- [My pupper Freddy](https://news.puppy-snuggles.com/14642000/my-pupper-freddy)
+- [Merry Christmas from my Elio x](https://news.puppy-snuggles.com/12666812/merry-christmas-from-my-elio-x)
+- [hangin’ with the homie 🦆](https://news.puppy-snuggles.com/15656606/hangin-with-the-homie)
+- [Tired Dog](https://news.puppy-snuggles.com/15656603/tired-dog)
+- [These wieners are happy](https://news.puppy-snuggles.com/11851695/these-wieners-are-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
