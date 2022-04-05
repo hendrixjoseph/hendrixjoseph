@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pupper Freddy](https://news.puppy-snuggles.com/14642000/my-pupper-freddy)
-- [Merry Christmas from my Elio x](https://news.puppy-snuggles.com/12666812/merry-christmas-from-my-elio-x)
-- [hangin’ with the homie 🦆](https://news.puppy-snuggles.com/15656606/hangin-with-the-homie)
-- [Tired Dog](https://news.puppy-snuggles.com/15656603/tired-dog)
-- [These wieners are happy](https://news.puppy-snuggles.com/11851695/these-wieners-are-happy)
+- [Sunday Snow Smiles](https://news.puppy-snuggles.com/13765709/sunday-snow-smiles)
+- [Always ready to play lol](https://news.puppy-snuggles.com/15684575/always-ready-to-play-lol)
+- [My dog got promoted this week!!So I had to take a picture!](https://news.puppy-snuggles.com/7138693/my-dog-got-promoted-this-weekso-i-had-to-take-a-picture)
+- [You&#39;d never know she just ate poop](https://news.puppy-snuggles.com/15684574/youd-never-know-she-just-ate-poop)
+- [Just a kind reminder of how incredible dogs are 🐾](https://news.puppy-snuggles.com/15684577/just-a-kind-reminder-of-how-incredible-dogs-are)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
