@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sunday Snow Smiles](https://news.puppy-snuggles.com/13765709/sunday-snow-smiles)
-- [Always ready to play lol](https://news.puppy-snuggles.com/15684575/always-ready-to-play-lol)
-- [My dog got promoted this week!!So I had to take a picture!](https://news.puppy-snuggles.com/7138693/my-dog-got-promoted-this-weekso-i-had-to-take-a-picture)
-- [You&#39;d never know she just ate poop](https://news.puppy-snuggles.com/15684574/youd-never-know-she-just-ate-poop)
-- [Just a kind reminder of how incredible dogs are 🐾](https://news.puppy-snuggles.com/15684577/just-a-kind-reminder-of-how-incredible-dogs-are)
+- [Doggo happy we got the patio furniture out!](https://news.puppy-snuggles.com/15715668/doggo-happy-we-got-the-patio-furniture-out)
+- [3 of my dogs eyes are bloodshot red. Any ideas? Vets availability is in 2 weeks :-&lpar;](https://news.puppy-snuggles.com/15479526/3-of-my-dogs-eyes-are-bloodshot-red-any-ideas-vets-availability-is-in-2-weeks)
+- [big bone for little doggy](https://news.puppy-snuggles.com/15616690/big-bone-for-little-doggy)
+- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
+- [Said a peaceful and loving goodbye to this sweet boy two days ago. I always said he was an alien and I&#39;m pretty sure he&#39;s in a cute little spaceship somewhere exploring the universe.](https://news.puppy-snuggles.com/15027005/said-a-peaceful-and-loving-goodbye-to-this-sweet-boy-two-days-ago-i-always-said-he-was-an-alien-and-im-pretty-sure-hes-in-a-cute-little-spaceship-somewhere-exploring-the-universe)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
