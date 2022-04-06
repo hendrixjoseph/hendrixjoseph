@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on People who can lucid dream, what happened after telling someone that they’re part of your dream?](https://www.reddit.com/r/AskReddit/comments/tx2z51/people_who_can_lucid_dream_what_happened_after/i3j5ii7/)
+- [/u/joehx on What movie got completely ruined with a sequel?](https://www.reddit.com/r/AskReddit/comments/tx31vl/what_movie_got_completely_ruined_with_a_sequel/i3j54wr/)
 - [/u/joehx on 82.51% interest on a loan... How is this even allowed?](https://www.reddit.com/r/personalfinance/comments/trxj4q/8251_interest_on_a_loan_how_is_this_even_allowed/i2phjiu/)
 - [/u/joehx on ELI5: TIF Financing](https://www.reddit.com/r/explainlikeimfive/comments/tremic/eli5_tif_financing/i2lo6jt/)
 - [/u/joehx on How do you make money online ?](https://www.reddit.com/r/AskReddit/comments/tk9y9t/how_do_you_make_money_online/i1peqqk/)
-- [/u/joehx on How do you make money online ?](https://www.reddit.com/r/AskReddit/comments/tk9y9t/how_do_you_make_money_online/i1p1lr3/)
-- [/u/joehx on What is the &quot;coke vs. pepsi&quot; of your industry?](https://www.reddit.com/r/AskReddit/comments/tia69a/what_is_the_coke_vs_pepsi_of_your_industry/i1crs13/)
 <!-- REDDIT:END -->
