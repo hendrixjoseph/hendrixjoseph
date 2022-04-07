@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Doggo happy we got the patio furniture out!](https://news.puppy-snuggles.com/15715668/doggo-happy-we-got-the-patio-furniture-out)
-- [3 of my dogs eyes are bloodshot red. Any ideas? Vets availability is in 2 weeks :-&lpar;](https://news.puppy-snuggles.com/15479526/3-of-my-dogs-eyes-are-bloodshot-red-any-ideas-vets-availability-is-in-2-weeks)
-- [big bone for little doggy](https://news.puppy-snuggles.com/15616690/big-bone-for-little-doggy)
-- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
-- [Said a peaceful and loving goodbye to this sweet boy two days ago. I always said he was an alien and I&#39;m pretty sure he&#39;s in a cute little spaceship somewhere exploring the universe.](https://news.puppy-snuggles.com/15027005/said-a-peaceful-and-loving-goodbye-to-this-sweet-boy-two-days-ago-i-always-said-he-was-an-alien-and-im-pretty-sure-hes-in-a-cute-little-spaceship-somewhere-exploring-the-universe)
+- [Smiling pup](https://news.puppy-snuggles.com/6652563/smiling-pup)
+- [Best Doggo Ever!](https://news.puppy-snuggles.com/15707372/best-doggo-ever)
+- [I have the happiest little guy, he’s only 11 weeks old and he’s full of smiles](https://news.puppy-snuggles.com/15738196/i-have-the-happiest-little-guy-hes-only-11-weeks-old-and-hes-full-of-smiles)
+- [Here’s a pic of two happy pups to brighten ur day &amp;amp;lt;3](https://news.puppy-snuggles.com/12188945/heres-a-pic-of-two-happy-pups-to-brighten-ur-day-lt3)
+- [For the first time in my adult life, all conditions are met to adopt a dog. Here&#39;s, Shelby, my 3 months old Golden Mountain Dog. Couldn&#39;t be happier.](https://news.puppy-snuggles.com/11538896/for-the-first-time-in-my-adult-life-all-conditions-are-met-to-adopt-a-dog-heres-shelby-my-3-months-old-golden-mountain-dog-couldnt-be-happier)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
