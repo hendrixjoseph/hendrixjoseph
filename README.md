@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiling pup](https://news.puppy-snuggles.com/6652563/smiling-pup)
-- [Best Doggo Ever!](https://news.puppy-snuggles.com/15707372/best-doggo-ever)
-- [I have the happiest little guy, he’s only 11 weeks old and he’s full of smiles](https://news.puppy-snuggles.com/15738196/i-have-the-happiest-little-guy-hes-only-11-weeks-old-and-hes-full-of-smiles)
-- [Here’s a pic of two happy pups to brighten ur day &amp;amp;lt;3](https://news.puppy-snuggles.com/12188945/heres-a-pic-of-two-happy-pups-to-brighten-ur-day-lt3)
-- [For the first time in my adult life, all conditions are met to adopt a dog. Here&#39;s, Shelby, my 3 months old Golden Mountain Dog. Couldn&#39;t be happier.](https://news.puppy-snuggles.com/11538896/for-the-first-time-in-my-adult-life-all-conditions-are-met-to-adopt-a-dog-heres-shelby-my-3-months-old-golden-mountain-dog-couldnt-be-happier)
+- [His is Hahn, and he is the best goober with the best little goober face.](https://news.puppy-snuggles.com/11358672/his-is-hahn-and-he-is-the-best-goober-with-the-best-little-goober-face)
+- [Double the puppy smiles!](https://news.puppy-snuggles.com/12629018/double-the-puppy-smiles)
+- [Happy national dog day!!](https://news.puppy-snuggles.com/8844826/happy-national-dog-day)
+- [Luna Tuna turned 1 this weekend!](https://news.puppy-snuggles.com/7558328/luna-tuna-turned-1-this-weekend)
+- [Hello world, my name is Lady](https://news.puppy-snuggles.com/10083369/hello-world-my-name-is-lady)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
