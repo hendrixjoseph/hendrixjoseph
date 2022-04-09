@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His is Hahn, and he is the best goober with the best little goober face.](https://news.puppy-snuggles.com/11358672/his-is-hahn-and-he-is-the-best-goober-with-the-best-little-goober-face)
-- [Double the puppy smiles!](https://news.puppy-snuggles.com/12629018/double-the-puppy-smiles)
-- [Happy national dog day!!](https://news.puppy-snuggles.com/8844826/happy-national-dog-day)
-- [Luna Tuna turned 1 this weekend!](https://news.puppy-snuggles.com/7558328/luna-tuna-turned-1-this-weekend)
-- [Hello world, my name is Lady](https://news.puppy-snuggles.com/10083369/hello-world-my-name-is-lady)
+- [Look at my boy Loki and his new mate](https://news.puppy-snuggles.com/13681961/look-at-my-boy-loki-and-his-new-mate)
+- [I know her name and breed, just wanted to share her beauty.](https://news.puppy-snuggles.com/12879303/i-know-her-name-and-breed-just-wanted-to-share-her-beauty)
+- [Today we said goodbye to Daisy 🌼 We will miss you a lot ❤️](https://news.puppy-snuggles.com/15795128/today-we-said-goodbye-to-daisy-we-will-miss-you-a-lot)
+- [He seems to have looked down on you all his life](https://news.puppy-snuggles.com/12112121/he-seems-to-have-looked-down-on-you-all-his-life)
+- [Happy Belated Birthday to our Adopted Fur Baby! Jack turned 2 on the 7th!](https://news.puppy-snuggles.com/13173225/happy-belated-birthday-to-our-adopted-fur-baby-jack-turned-2-on-the-7th)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
