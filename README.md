@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at my boy Loki and his new mate](https://news.puppy-snuggles.com/13681961/look-at-my-boy-loki-and-his-new-mate)
-- [I know her name and breed, just wanted to share her beauty.](https://news.puppy-snuggles.com/12879303/i-know-her-name-and-breed-just-wanted-to-share-her-beauty)
-- [Today we said goodbye to Daisy 🌼 We will miss you a lot ❤️](https://news.puppy-snuggles.com/15795128/today-we-said-goodbye-to-daisy-we-will-miss-you-a-lot)
-- [He seems to have looked down on you all his life](https://news.puppy-snuggles.com/12112121/he-seems-to-have-looked-down-on-you-all-his-life)
-- [Happy Belated Birthday to our Adopted Fur Baby! Jack turned 2 on the 7th!](https://news.puppy-snuggles.com/13173225/happy-belated-birthday-to-our-adopted-fur-baby-jack-turned-2-on-the-7th)
+- [This is linguine!](https://news.puppy-snuggles.com/15817652/this-is-linguine)
+- [My little adventure buddy](https://news.puppy-snuggles.com/12588546/my-little-adventure-buddy)
+- [Bella!](https://news.puppy-snuggles.com/10847945/bella)
+- [Crazyeyes, good day to you all.](https://news.puppy-snuggles.com/9609524/crazyeyes-good-day-to-you-all)
+- [Alabama woman charged after malnourished, dead dogs found](https://news.puppy-snuggles.com/14664997/alabama-woman-charged-after-malnourished-dead-dogs-found)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
