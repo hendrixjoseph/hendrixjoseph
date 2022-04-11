@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [My Dog rexy 11 years old passed away last night. I&#39;ve never been so hurt.](https://news.puppy-snuggles.com/12546819/my-dog-rexy-11-years-old-passed-away-last-night-ive-never-been-so-hurt)
+- [Just rescued trying to figure out mix?](https://news.puppy-snuggles.com/15844247/just-rescued-trying-to-figure-out-mix)
+- [Sloth dog](https://news.puppy-snuggles.com/11488166/sloth-dog)
+- [A quick doodle of my favorite doodle!](https://news.puppy-snuggles.com/9884018/a-quick-doodle-of-my-favorite-doodle)
 - [This is linguine!](https://news.puppy-snuggles.com/15817652/this-is-linguine)
-- [My little adventure buddy](https://news.puppy-snuggles.com/12588546/my-little-adventure-buddy)
-- [Bella!](https://news.puppy-snuggles.com/10847945/bella)
-- [Crazyeyes, good day to you all.](https://news.puppy-snuggles.com/9609524/crazyeyes-good-day-to-you-all)
-- [Alabama woman charged after malnourished, dead dogs found](https://news.puppy-snuggles.com/14664997/alabama-woman-charged-after-malnourished-dead-dogs-found)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
