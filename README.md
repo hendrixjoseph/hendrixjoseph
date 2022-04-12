@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Dog rexy 11 years old passed away last night. I&#39;ve never been so hurt.](https://news.puppy-snuggles.com/12546819/my-dog-rexy-11-years-old-passed-away-last-night-ive-never-been-so-hurt)
-- [Just rescued trying to figure out mix?](https://news.puppy-snuggles.com/15844247/just-rescued-trying-to-figure-out-mix)
-- [Sloth dog](https://news.puppy-snuggles.com/11488166/sloth-dog)
-- [A quick doodle of my favorite doodle!](https://news.puppy-snuggles.com/9884018/a-quick-doodle-of-my-favorite-doodle)
-- [This is linguine!](https://news.puppy-snuggles.com/15817652/this-is-linguine)
+- [We’re so excited for Christmas pictures tomorrow!](https://news.puppy-snuggles.com/11827606/were-so-excited-for-christmas-pictures-tomorrow)
+- [In memory of my boy.](https://news.puppy-snuggles.com/15871195/in-memory-of-my-boy)
+- [Dog drawing](https://news.puppy-snuggles.com/12027604/dog-drawing)
+- [If everyone can say a prayer for my boy Bentley &lpar;on the left&rpar; as he goes into week 5 of chemotherapy battling lymphoma! Winston&lpar;on the right&rpar; is Bentleys son!](https://news.puppy-snuggles.com/10058191/if-everyone-can-say-a-prayer-for-my-boy-bentley-on-the-left-as-he-goes-into-week-5-of-chemotherapy-battling-lymphoma-winstonon-the-right-is-bentleys-son)
+- [My uncles dog, Oscar who is almost 1! Taken by me, I love this little boy so much 😭 After we lost our own cat, he has brought us so much joy](https://news.puppy-snuggles.com/12923271/my-uncles-dog-oscar-who-is-almost-1-taken-by-me-i-love-this-little-boy-so-much-after-we-lost-our-own-cat-he-has-brought-us-so-much-joy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
