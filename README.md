@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We’re so excited for Christmas pictures tomorrow!](https://news.puppy-snuggles.com/11827606/were-so-excited-for-christmas-pictures-tomorrow)
-- [In memory of my boy.](https://news.puppy-snuggles.com/15871195/in-memory-of-my-boy)
-- [Dog drawing](https://news.puppy-snuggles.com/12027604/dog-drawing)
-- [If everyone can say a prayer for my boy Bentley &lpar;on the left&rpar; as he goes into week 5 of chemotherapy battling lymphoma! Winston&lpar;on the right&rpar; is Bentleys son!](https://news.puppy-snuggles.com/10058191/if-everyone-can-say-a-prayer-for-my-boy-bentley-on-the-left-as-he-goes-into-week-5-of-chemotherapy-battling-lymphoma-winstonon-the-right-is-bentleys-son)
-- [My uncles dog, Oscar who is almost 1! Taken by me, I love this little boy so much 😭 After we lost our own cat, he has brought us so much joy](https://news.puppy-snuggles.com/12923271/my-uncles-dog-oscar-who-is-almost-1-taken-by-me-i-love-this-little-boy-so-much-after-we-lost-our-own-cat-he-has-brought-us-so-much-joy)
+- [Good boy plays fetch with neighbor](https://news.puppy-snuggles.com/15899499/good-boy-plays-fetch-with-neighbor)
+- [I fucking hate fireworks. I hate how much they upset my sweet baby. I hate that I can&#39;t even enjoy them anymore when all i can think about is all the dogs around are scared out of their minds. :&lpar; I wish i could do more to comfort her.](https://news.puppy-snuggles.com/12466844/i-fucking-hate-fireworks-i-hate-how-much-they-upset-my-sweet-baby-i-hate-that-i-cant-even-enjoy-them-anymore-when-all-i-can-think-about-is-all-the-dogs-around-are-scared-out-of-their-minds-i-wish-i-could-do-more-to-comfort-her)
+- [What kind of dog breed would you think he is?](https://news.puppy-snuggles.com/10115399/what-kind-of-dog-breed-would-you-think-he-is)
+- [Sunday beach day! Happy Sunday everyone!](https://news.puppy-snuggles.com/15434993/sunday-beach-day-happy-sunday-everyone)
+- [Happy National Pet Day! I present to you: River, my old rott/shepherd mix about to get belly rubbings](https://news.puppy-snuggles.com/15871196/happy-national-pet-day-i-present-to-you-river-my-old-rottshepherd-mix-about-to-get-belly-rubbings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
