@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good boy plays fetch with neighbor](https://news.puppy-snuggles.com/15899499/good-boy-plays-fetch-with-neighbor)
-- [I fucking hate fireworks. I hate how much they upset my sweet baby. I hate that I can&#39;t even enjoy them anymore when all i can think about is all the dogs around are scared out of their minds. :&lpar; I wish i could do more to comfort her.](https://news.puppy-snuggles.com/12466844/i-fucking-hate-fireworks-i-hate-how-much-they-upset-my-sweet-baby-i-hate-that-i-cant-even-enjoy-them-anymore-when-all-i-can-think-about-is-all-the-dogs-around-are-scared-out-of-their-minds-i-wish-i-could-do-more-to-comfort-her)
-- [What kind of dog breed would you think he is?](https://news.puppy-snuggles.com/10115399/what-kind-of-dog-breed-would-you-think-he-is)
-- [Sunday beach day! Happy Sunday everyone!](https://news.puppy-snuggles.com/15434993/sunday-beach-day-happy-sunday-everyone)
-- [Happy National Pet Day! I present to you: River, my old rott/shepherd mix about to get belly rubbings](https://news.puppy-snuggles.com/15871196/happy-national-pet-day-i-present-to-you-river-my-old-rottshepherd-mix-about-to-get-belly-rubbings)
+- [My wife who is 175cm tall and our family Boerboel sitting on the floor together. He weighs &amp;amp;gt; 90kg’s](https://news.puppy-snuggles.com/15928170/my-wife-who-is-175cm-tall-and-our-family-boerboel-sitting-on-the-floor-together-he-weighs-gt-90kgs)
+- [He’s definitely a ball dog](https://news.puppy-snuggles.com/10201408/hes-definitely-a-ball-dog)
+- [A small photo shoot of my precious Maggie](https://news.puppy-snuggles.com/7651702/a-small-photo-shoot-of-my-precious-maggie)
+- [My pup and I both hiked our first ever 14er together. Here she is at the top of Mt Evans!](https://news.puppy-snuggles.com/11264316/my-pup-and-i-both-hiked-our-first-ever-14er-together-here-she-is-at-the-top-of-mt-evans)
+- [Hank happy with his bone](https://news.puppy-snuggles.com/6933085/hank-happy-with-his-bone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
