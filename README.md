@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My wife who is 175cm tall and our family Boerboel sitting on the floor together. He weighs &amp;amp;gt; 90kg’s](https://news.puppy-snuggles.com/15928170/my-wife-who-is-175cm-tall-and-our-family-boerboel-sitting-on-the-floor-together-he-weighs-gt-90kgs)
-- [He’s definitely a ball dog](https://news.puppy-snuggles.com/10201408/hes-definitely-a-ball-dog)
-- [A small photo shoot of my precious Maggie](https://news.puppy-snuggles.com/7651702/a-small-photo-shoot-of-my-precious-maggie)
-- [My pup and I both hiked our first ever 14er together. Here she is at the top of Mt Evans!](https://news.puppy-snuggles.com/11264316/my-pup-and-i-both-hiked-our-first-ever-14er-together-here-she-is-at-the-top-of-mt-evans)
-- [Hank happy with his bone](https://news.puppy-snuggles.com/6933085/hank-happy-with-his-bone)
+- [Ollie’s current status between me and my wife](https://news.puppy-snuggles.com/6286454/ollies-current-status-between-me-and-my-wife)
+- [My beautiful Maskwa](https://news.puppy-snuggles.com/12861240/my-beautiful-maskwa)
+- [Accurate](https://news.puppy-snuggles.com/9928395/accurate)
+- [My little love bug](https://news.puppy-snuggles.com/9354943/my-little-love-bug)
+- [Howling at fire trucks](https://news.puppy-snuggles.com/7099528/howling-at-fire-trucks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
