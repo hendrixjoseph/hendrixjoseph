@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ollie’s current status between me and my wife](https://news.puppy-snuggles.com/6286454/ollies-current-status-between-me-and-my-wife)
-- [My beautiful Maskwa](https://news.puppy-snuggles.com/12861240/my-beautiful-maskwa)
-- [Accurate](https://news.puppy-snuggles.com/9928395/accurate)
-- [My little love bug](https://news.puppy-snuggles.com/9354943/my-little-love-bug)
-- [Howling at fire trucks](https://news.puppy-snuggles.com/7099528/howling-at-fire-trucks)
+- [The Perfect Pick](https://news.puppy-snuggles.com/10550354/the-perfect-pick)
+- [It’s Bourbon’s 11th birthday. Happy birthday, Bourbs!](https://news.puppy-snuggles.com/8490761/its-bourbons-11th-birthday-happy-birthday-bourbs)
+- [🐶 are not our whole life, but they make our lives whole.](https://news.puppy-snuggles.com/12213642/are-not-our-whole-life-but-they-make-our-lives-whole)
+- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
+- [sratchy, that&#39;s the right spot](https://news.puppy-snuggles.com/10184940/sratchy-thats-the-right-spot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
