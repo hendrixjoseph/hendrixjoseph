@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The Perfect Pick](https://news.puppy-snuggles.com/10550354/the-perfect-pick)
-- [It’s Bourbon’s 11th birthday. Happy birthday, Bourbs!](https://news.puppy-snuggles.com/8490761/its-bourbons-11th-birthday-happy-birthday-bourbs)
-- [🐶 are not our whole life, but they make our lives whole.](https://news.puppy-snuggles.com/12213642/are-not-our-whole-life-but-they-make-our-lives-whole)
-- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
-- [sratchy, that&#39;s the right spot](https://news.puppy-snuggles.com/10184940/sratchy-thats-the-right-spot)
+- [rainy day feels be like...](https://news.puppy-snuggles.com/15983130/rainy-day-feels-be-like)
+- [Looking Dapper](https://news.puppy-snuggles.com/10166601/looking-dapper)
+- [Shower Kong](https://news.puppy-snuggles.com/15983134/shower-kong)
+- [Our Caucasian Shepard !!! Boris. 1 1/2 year old.](https://news.puppy-snuggles.com/16014851/our-caucasian-shepard-boris-1-12-year-old)
+- [Hong Kong Special](https://news.puppy-snuggles.com/10319613/hong-kong-special)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
