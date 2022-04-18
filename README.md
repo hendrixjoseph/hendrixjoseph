@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [rainy day feels be like...](https://news.puppy-snuggles.com/15983130/rainy-day-feels-be-like)
-- [Looking Dapper](https://news.puppy-snuggles.com/10166601/looking-dapper)
-- [Shower Kong](https://news.puppy-snuggles.com/15983134/shower-kong)
-- [Our Caucasian Shepard !!! Boris. 1 1/2 year old.](https://news.puppy-snuggles.com/16014851/our-caucasian-shepard-boris-1-12-year-old)
-- [Hong Kong Special](https://news.puppy-snuggles.com/10319613/hong-kong-special)
+- [All he wants are naps and cuddles. 7 month old Blue Tick Beagle and standard Poodle mix, Jack.](https://news.puppy-snuggles.com/16038167/all-he-wants-are-naps-and-cuddles-7-month-old-blue-tick-beagle-and-standard-poodle-mix-jack)
+- [Gang of 3](https://news.puppy-snuggles.com/12687842/gang-of-3)
+- [Blursed_Doge](https://news.puppy-snuggles.com/12972034/blursed-doge)
+- [“Bone Jour” friends!](https://news.puppy-snuggles.com/10051103/bone-jour-friends)
+- [[Fluff] My newly registered seizure response doggo being a good girl on the job!](https://news.puppy-snuggles.com/6919012/fluff-my-newly-registered-seizure-response-doggo-being-a-good-girl-on-the-job)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
