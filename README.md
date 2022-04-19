@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All he wants are naps and cuddles. 7 month old Blue Tick Beagle and standard Poodle mix, Jack.](https://news.puppy-snuggles.com/16038167/all-he-wants-are-naps-and-cuddles-7-month-old-blue-tick-beagle-and-standard-poodle-mix-jack)
-- [Gang of 3](https://news.puppy-snuggles.com/12687842/gang-of-3)
-- [Blursed_Doge](https://news.puppy-snuggles.com/12972034/blursed-doge)
-- [“Bone Jour” friends!](https://news.puppy-snuggles.com/10051103/bone-jour-friends)
-- [[Fluff] My newly registered seizure response doggo being a good girl on the job!](https://news.puppy-snuggles.com/6919012/fluff-my-newly-registered-seizure-response-doggo-being-a-good-girl-on-the-job)
+- [My dawgs gone hyper](https://news.puppy-snuggles.com/10803043/my-dawgs-gone-hyper)
+- [My dog Bella](https://news.puppy-snuggles.com/7318103/my-dog-bella)
+- [Looking to brighten your holidays! Merry Christmas from Keanu! 🎄](https://news.puppy-snuggles.com/12682989/looking-to-brighten-your-holidays-merry-christmas-from-keanu)
+- [his face during our 10h car trip 🤣](https://news.puppy-snuggles.com/13224030/his-face-during-our-10h-car-trip)
+- [Here are my two boys. Winston is a Bull Terrier and Jäger is a Lab/Retriever mixed with German Shepherd and Boarder Collie](https://news.puppy-snuggles.com/16061923/here-are-my-two-boys-winston-is-a-bull-terrier-and-jager-is-a-labretriever-mixed-with-german-shepherd-and-boarder-collie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
