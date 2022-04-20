@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dawgs gone hyper](https://news.puppy-snuggles.com/10803043/my-dawgs-gone-hyper)
-- [My dog Bella](https://news.puppy-snuggles.com/7318103/my-dog-bella)
-- [Looking to brighten your holidays! Merry Christmas from Keanu! 🎄](https://news.puppy-snuggles.com/12682989/looking-to-brighten-your-holidays-merry-christmas-from-keanu)
-- [his face during our 10h car trip 🤣](https://news.puppy-snuggles.com/13224030/his-face-during-our-10h-car-trip)
-- [Here are my two boys. Winston is a Bull Terrier and Jäger is a Lab/Retriever mixed with German Shepherd and Boarder Collie](https://news.puppy-snuggles.com/16061923/here-are-my-two-boys-winston-is-a-bull-terrier-and-jager-is-a-labretriever-mixed-with-german-shepherd-and-boarder-collie)
+- [11.5 week old female dobermann x GSD, any name suggestions welcome, we like Riley, saffie, Kim, Rosie, Sidney...](https://news.puppy-snuggles.com/16093012/115-week-old-female-dobermann-x-gsd-any-name-suggestions-welcome-we-like-riley-saffie-kim-rosie-sidney)
+- [Bahar, almost 10-11 rescued spring of 2020 😇](https://news.puppy-snuggles.com/11460695/bahar-almost-10-11-rescued-spring-of-2020)
+- [Do I look smarter in glasses?](https://news.puppy-snuggles.com/6292114/do-i-look-smarter-in-glasses)
+- [portrait with my girlfriend and dog, draw by me.](https://news.puppy-snuggles.com/13295956/portrait-with-my-girlfriend-and-dog-draw-by-me)
+- [How cute it is!](https://news.puppy-snuggles.com/15968713/how-cute-it-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
