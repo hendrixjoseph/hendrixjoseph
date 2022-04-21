@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [11.5 week old female dobermann x GSD, any name suggestions welcome, we like Riley, saffie, Kim, Rosie, Sidney...](https://news.puppy-snuggles.com/16093012/115-week-old-female-dobermann-x-gsd-any-name-suggestions-welcome-we-like-riley-saffie-kim-rosie-sidney)
-- [Bahar, almost 10-11 rescued spring of 2020 😇](https://news.puppy-snuggles.com/11460695/bahar-almost-10-11-rescued-spring-of-2020)
-- [Do I look smarter in glasses?](https://news.puppy-snuggles.com/6292114/do-i-look-smarter-in-glasses)
-- [portrait with my girlfriend and dog, draw by me.](https://news.puppy-snuggles.com/13295956/portrait-with-my-girlfriend-and-dog-draw-by-me)
-- [How cute it is!](https://news.puppy-snuggles.com/15968713/how-cute-it-is)
+- [How is started vs. how it’s going](https://news.puppy-snuggles.com/16121616/how-is-started-vs-how-its-going)
+- [Even though Molly doesn&#39;t know you she loves you all.](https://news.puppy-snuggles.com/9193914/even-though-molly-doesnt-know-you-she-loves-you-all)
+- [Cat flap](https://news.puppy-snuggles.com/16121618/cat-flap)
+- [Rambo and his squeaky duck!](https://news.puppy-snuggles.com/9282407/rambo-and-his-squeaky-duck)
+- [Someone’s ready to get back on the road 😄😍](https://news.puppy-snuggles.com/11549053/someones-ready-to-get-back-on-the-road)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
