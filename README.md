@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How is started vs. how it’s going](https://news.puppy-snuggles.com/16121616/how-is-started-vs-how-its-going)
-- [Even though Molly doesn&#39;t know you she loves you all.](https://news.puppy-snuggles.com/9193914/even-though-molly-doesnt-know-you-she-loves-you-all)
-- [Cat flap](https://news.puppy-snuggles.com/16121618/cat-flap)
-- [Rambo and his squeaky duck!](https://news.puppy-snuggles.com/9282407/rambo-and-his-squeaky-duck)
-- [Someone’s ready to get back on the road 😄😍](https://news.puppy-snuggles.com/11549053/someones-ready-to-get-back-on-the-road)
+- [Its called a guilty dog test the guilty dog cant](https://news.puppy-snuggles.com/15837740/its-called-a-guilty-dog-test-the-guilty-dog-cant)
+- [can my dog be the next doge?](https://news.puppy-snuggles.com/7423939/can-my-dog-be-the-next-doge)
+- [Funny dog flapping his ears](https://news.puppy-snuggles.com/16155510/funny-dog-flapping-his-ears)
+- [first pic, my doggie at the park. second pic, me doggie at the vet. unfortunately, he got parvovirus. Dr says we detected it on time. so he might make it. only that he doesn&#39;t want to eat or drink anything. but he&#39;s been medicated and hopefully gets better soon.](https://news.puppy-snuggles.com/16155509/first-pic-my-doggie-at-the-park-second-pic-me-doggie-at-the-vet-unfortunately-he-got-parvovirus-dr-says-we-detected-it-on-time-so-he-might-make-it-only-that-he-doesnt-want-to-eat-or-drink-anything-but-hes-been-medicated-and-hopefully-gets-better-soon)
+- [Fox Lacko As a Puppy - Adopted Dog](https://news.puppy-snuggles.com/16155516/fox-lacko-as-a-puppy-adopted-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
