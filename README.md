@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Its called a guilty dog test the guilty dog cant](https://news.puppy-snuggles.com/15837740/its-called-a-guilty-dog-test-the-guilty-dog-cant)
-- [can my dog be the next doge?](https://news.puppy-snuggles.com/7423939/can-my-dog-be-the-next-doge)
-- [Funny dog flapping his ears](https://news.puppy-snuggles.com/16155510/funny-dog-flapping-his-ears)
-- [first pic, my doggie at the park. second pic, me doggie at the vet. unfortunately, he got parvovirus. Dr says we detected it on time. so he might make it. only that he doesn&#39;t want to eat or drink anything. but he&#39;s been medicated and hopefully gets better soon.](https://news.puppy-snuggles.com/16155509/first-pic-my-doggie-at-the-park-second-pic-me-doggie-at-the-vet-unfortunately-he-got-parvovirus-dr-says-we-detected-it-on-time-so-he-might-make-it-only-that-he-doesnt-want-to-eat-or-drink-anything-but-hes-been-medicated-and-hopefully-gets-better-soon)
-- [Fox Lacko As a Puppy - Adopted Dog](https://news.puppy-snuggles.com/16155516/fox-lacko-as-a-puppy-adopted-dog)
+- [Most handsome in mama’s eyes](https://news.puppy-snuggles.com/16178381/most-handsome-in-mamas-eyes)
+- [Are your pets that weird when they want to eat too?](https://news.puppy-snuggles.com/16188372/are-your-pets-that-weird-when-they-want-to-eat-too)
+- [Bill](https://news.puppy-snuggles.com/13005334/bill)
+- [Appa the Goberian exploring the forest for the first time 😊](https://news.puppy-snuggles.com/7542964/appa-the-goberian-exploring-the-forest-for-the-first-time)
+- [My favorite one.](https://news.puppy-snuggles.com/15557851/my-favorite-one)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
