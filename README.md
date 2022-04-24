@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Most handsome in mama’s eyes](https://news.puppy-snuggles.com/16178381/most-handsome-in-mamas-eyes)
-- [Are your pets that weird when they want to eat too?](https://news.puppy-snuggles.com/16188372/are-your-pets-that-weird-when-they-want-to-eat-too)
-- [Bill](https://news.puppy-snuggles.com/13005334/bill)
-- [Appa the Goberian exploring the forest for the first time 😊](https://news.puppy-snuggles.com/7542964/appa-the-goberian-exploring-the-forest-for-the-first-time)
-- [My favorite one.](https://news.puppy-snuggles.com/15557851/my-favorite-one)
+- [If you are a dog lover,You can see this video and enjoy the fun.](https://news.puppy-snuggles.com/12369692/if-you-are-a-dog-loveryou-can-see-this-video-and-enjoy-the-fun)
+- [This is Hank and he is very happy](https://news.puppy-snuggles.com/12360115/this-is-hank-and-he-is-very-happy)
+- [What kind of dog this](https://news.puppy-snuggles.com/12360113/what-kind-of-dog-this)
+- [Bruno and Kiara enjoying a big hug.](https://news.puppy-snuggles.com/12352930/bruno-and-kiara-enjoying-a-big-hug)
+- [Baby Dandy telling us it’s bedtime whilst carrying his 3 legged sloth.](https://news.puppy-snuggles.com/12352927/baby-dandy-telling-us-its-bedtime-whilst-carrying-his-3-legged-sloth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
