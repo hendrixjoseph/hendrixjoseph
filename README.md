@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you are a dog lover,You can see this video and enjoy the fun.](https://news.puppy-snuggles.com/12369692/if-you-are-a-dog-loveryou-can-see-this-video-and-enjoy-the-fun)
-- [This is Hank and he is very happy](https://news.puppy-snuggles.com/12360115/this-is-hank-and-he-is-very-happy)
-- [What kind of dog this](https://news.puppy-snuggles.com/12360113/what-kind-of-dog-this)
-- [Bruno and Kiara enjoying a big hug.](https://news.puppy-snuggles.com/12352930/bruno-and-kiara-enjoying-a-big-hug)
-- [Baby Dandy telling us it’s bedtime whilst carrying his 3 legged sloth.](https://news.puppy-snuggles.com/12352927/baby-dandy-telling-us-its-bedtime-whilst-carrying-his-3-legged-sloth)
+- [My dog is not cute at all](https://news.puppy-snuggles.com/10576486/my-dog-is-not-cute-at-all)
+- [Some pictures of my dog](https://news.puppy-snuggles.com/7592467/some-pictures-of-my-dog)
+- [Happy boi. 7 year old lab/pit mix Arkham](https://news.puppy-snuggles.com/11513319/happy-boi-7-year-old-labpit-mix-arkham)
+- [I think someone missed me while I was at the office 😭](https://news.puppy-snuggles.com/10235775/i-think-someone-missed-me-while-i-was-at-the-office)
+- [Can anyone help me identify the breed of my dog? I’m thinking Labrador/Border Collie Mix but not sure. He is about 11 months old.](https://news.puppy-snuggles.com/12892405/can-anyone-help-me-identify-the-breed-of-my-dog-im-thinking-labradorborder-collie-mix-but-not-sure-he-is-about-11-months-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
