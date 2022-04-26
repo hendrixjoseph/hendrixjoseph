@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is not cute at all](https://news.puppy-snuggles.com/10576486/my-dog-is-not-cute-at-all)
-- [Some pictures of my dog](https://news.puppy-snuggles.com/7592467/some-pictures-of-my-dog)
-- [Happy boi. 7 year old lab/pit mix Arkham](https://news.puppy-snuggles.com/11513319/happy-boi-7-year-old-labpit-mix-arkham)
-- [I think someone missed me while I was at the office 😭](https://news.puppy-snuggles.com/10235775/i-think-someone-missed-me-while-i-was-at-the-office)
-- [Can anyone help me identify the breed of my dog? I’m thinking Labrador/Border Collie Mix but not sure. He is about 11 months old.](https://news.puppy-snuggles.com/12892405/can-anyone-help-me-identify-the-breed-of-my-dog-im-thinking-labradorborder-collie-mix-but-not-sure-he-is-about-11-months-old)
+- [ginger the goldendoodle](https://news.puppy-snuggles.com/12446480/ginger-the-goldendoodle)
+- [This is a picture I took of Ace. Ace is adorable. That is all](https://news.puppy-snuggles.com/15936603/this-is-a-picture-i-took-of-ace-ace-is-adorable-that-is-all)
+- [Her hoarded collection. This doesn&#39;t include her rubber balls too. I think she has a problem.](https://news.puppy-snuggles.com/6031872/her-hoarded-collection-this-doesnt-include-her-rubber-balls-too-i-think-she-has-a-problem)
+- [Who is like this right now?](https://news.puppy-snuggles.com/11157055/who-is-like-this-right-now)
+- [the cutest and sweetest thing on earth!](https://news.puppy-snuggles.com/10192499/the-cutest-and-sweetest-thing-on-earth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
