@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [ginger the goldendoodle](https://news.puppy-snuggles.com/12446480/ginger-the-goldendoodle)
-- [This is a picture I took of Ace. Ace is adorable. That is all](https://news.puppy-snuggles.com/15936603/this-is-a-picture-i-took-of-ace-ace-is-adorable-that-is-all)
-- [Her hoarded collection. This doesn&#39;t include her rubber balls too. I think she has a problem.](https://news.puppy-snuggles.com/6031872/her-hoarded-collection-this-doesnt-include-her-rubber-balls-too-i-think-she-has-a-problem)
-- [Who is like this right now?](https://news.puppy-snuggles.com/11157055/who-is-like-this-right-now)
-- [the cutest and sweetest thing on earth!](https://news.puppy-snuggles.com/10192499/the-cutest-and-sweetest-thing-on-earth)
+- [finn cuddling with his favorite stuffed animal!](https://news.puppy-snuggles.com/7430090/finn-cuddling-with-his-favorite-stuffed-animal)
+- [I strongly suspect someone wants a share of my sausage sandwich...](https://news.puppy-snuggles.com/14797290/i-strongly-suspect-someone-wants-a-share-of-my-sausage-sandwich)
+- [Murph’s favorite pillows are actually people](https://news.puppy-snuggles.com/14779115/murphs-favorite-pillows-are-actually-people)
+- [He&#39;s just so fluffy](https://news.puppy-snuggles.com/16300294/hes-just-so-fluffy)
+- [My poor Goober got a boo-boo](https://news.puppy-snuggles.com/14112677/my-poor-goober-got-a-boo-boo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
