@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [finn cuddling with his favorite stuffed animal!](https://news.puppy-snuggles.com/7430090/finn-cuddling-with-his-favorite-stuffed-animal)
-- [I strongly suspect someone wants a share of my sausage sandwich...](https://news.puppy-snuggles.com/14797290/i-strongly-suspect-someone-wants-a-share-of-my-sausage-sandwich)
-- [Murph’s favorite pillows are actually people](https://news.puppy-snuggles.com/14779115/murphs-favorite-pillows-are-actually-people)
-- [He&#39;s just so fluffy](https://news.puppy-snuggles.com/16300294/hes-just-so-fluffy)
-- [My poor Goober got a boo-boo](https://news.puppy-snuggles.com/14112677/my-poor-goober-got-a-boo-boo)
+- [Nova the floof](https://news.puppy-snuggles.com/7476018/nova-the-floof)
+- [This is Peanut. He goes by nut for short. Today we went on a small hike and he got a mini photoshoot.](https://news.puppy-snuggles.com/6497961/this-is-peanut-he-goes-by-nut-for-short-today-we-went-on-a-small-hike-and-he-got-a-mini-photoshoot)
+- [Recovering from surgery and they won’t leave my side 🥲](https://news.puppy-snuggles.com/8254748/recovering-from-surgery-and-they-wont-leave-my-side)
+- [I asked if she wanted a treat](https://news.puppy-snuggles.com/12666810/i-asked-if-she-wanted-a-treat)
+- [Likes his bone](https://news.puppy-snuggles.com/7822576/likes-his-bone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
