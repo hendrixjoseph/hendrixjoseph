@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nova the floof](https://news.puppy-snuggles.com/7476018/nova-the-floof)
-- [This is Peanut. He goes by nut for short. Today we went on a small hike and he got a mini photoshoot.](https://news.puppy-snuggles.com/6497961/this-is-peanut-he-goes-by-nut-for-short-today-we-went-on-a-small-hike-and-he-got-a-mini-photoshoot)
-- [Recovering from surgery and they won’t leave my side 🥲](https://news.puppy-snuggles.com/8254748/recovering-from-surgery-and-they-wont-leave-my-side)
-- [I asked if she wanted a treat](https://news.puppy-snuggles.com/12666810/i-asked-if-she-wanted-a-treat)
-- [Likes his bone](https://news.puppy-snuggles.com/7822576/likes-his-bone)
+- [One of my favorite pictures of Max](https://news.puppy-snuggles.com/16238903/one-of-my-favorite-pictures-of-max)
+- [Dog malfunction](https://news.puppy-snuggles.com/16377106/dog-malfunction)
+- [With a chance of sunshine, there’s a chance of a puppuccino](https://news.puppy-snuggles.com/5161658/with-a-chance-of-sunshine-theres-a-chance-of-a-puppuccino)
+- [This cutie KO above me so I moved another pillow for me under his, but by the time I got back… he was using both 😂 cannot and will not move this little guy 😭❤️](https://news.puppy-snuggles.com/16366418/this-cutie-ko-above-me-so-i-moved-another-pillow-for-me-under-his-but-by-the-time-i-got-back-he-was-using-both-cannot-and-will-not-move-this-little-guy)
+- [I might be adopting this puppy! She&#39;s a rescue and her breed is unknown. Out of curiosity, what breeds do you think she is? They estimate she is 11 wks old.](https://news.puppy-snuggles.com/16366417/i-might-be-adopting-this-puppy-shes-a-rescue-and-her-breed-is-unknown-out-of-curiosity-what-breeds-do-you-think-she-is-they-estimate-she-is-11-wks-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
