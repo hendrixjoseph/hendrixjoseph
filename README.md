@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One of my favorite pictures of Max](https://news.puppy-snuggles.com/16238903/one-of-my-favorite-pictures-of-max)
-- [Dog malfunction](https://news.puppy-snuggles.com/16377106/dog-malfunction)
-- [With a chance of sunshine, there’s a chance of a puppuccino](https://news.puppy-snuggles.com/5161658/with-a-chance-of-sunshine-theres-a-chance-of-a-puppuccino)
-- [This cutie KO above me so I moved another pillow for me under his, but by the time I got back… he was using both 😂 cannot and will not move this little guy 😭❤️](https://news.puppy-snuggles.com/16366418/this-cutie-ko-above-me-so-i-moved-another-pillow-for-me-under-his-but-by-the-time-i-got-back-he-was-using-both-cannot-and-will-not-move-this-little-guy)
-- [I might be adopting this puppy! She&#39;s a rescue and her breed is unknown. Out of curiosity, what breeds do you think she is? They estimate she is 11 wks old.](https://news.puppy-snuggles.com/16366417/i-might-be-adopting-this-puppy-shes-a-rescue-and-her-breed-is-unknown-out-of-curiosity-what-breeds-do-you-think-she-is-they-estimate-she-is-11-wks-old)
+- [Sasha, my doxy/black lab mix. Short, fat, and cute.](https://news.puppy-snuggles.com/10511702/sasha-my-doxyblack-lab-mix-short-fat-and-cute)
+- [I adopted my dream dog back in February. Everyone, meet Rue.](https://news.puppy-snuggles.com/16413112/i-adopted-my-dream-dog-back-in-february-everyone-meet-rue)
+- [Who can say no to a smiling Bichon Frise?](https://news.puppy-snuggles.com/16413110/who-can-say-no-to-a-smiling-bichon-frise)
+- [Our pup loves spring](https://news.puppy-snuggles.com/16413113/our-pup-loves-spring)
+- [Great family](https://news.puppy-snuggles.com/16413109/great-family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
