@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sasha, my doxy/black lab mix. Short, fat, and cute.](https://news.puppy-snuggles.com/10511702/sasha-my-doxyblack-lab-mix-short-fat-and-cute)
-- [I adopted my dream dog back in February. Everyone, meet Rue.](https://news.puppy-snuggles.com/16413112/i-adopted-my-dream-dog-back-in-february-everyone-meet-rue)
-- [Who can say no to a smiling Bichon Frise?](https://news.puppy-snuggles.com/16413110/who-can-say-no-to-a-smiling-bichon-frise)
-- [Our pup loves spring](https://news.puppy-snuggles.com/16413113/our-pup-loves-spring)
-- [Great family](https://news.puppy-snuggles.com/16413109/great-family)
+- [Pearl &lpar;16&rpar; tucks herself under the pillows when she is ready for bed](https://news.puppy-snuggles.com/10201411/pearl-16-tucks-herself-under-the-pillows-when-she-is-ready-for-bed)
+- [Next page please](https://news.puppy-snuggles.com/10201409/next-page-please)
+- [When I ask my dog if he wants to go on a walk](https://news.puppy-snuggles.com/10106199/when-i-ask-my-dog-if-he-wants-to-go-on-a-walk)
+- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
+- [More of a puppy grump than a smile](https://news.puppy-snuggles.com/10076787/more-of-a-puppy-grump-than-a-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
