@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pearl &lpar;16&rpar; tucks herself under the pillows when she is ready for bed](https://news.puppy-snuggles.com/10201411/pearl-16-tucks-herself-under-the-pillows-when-she-is-ready-for-bed)
-- [Next page please](https://news.puppy-snuggles.com/10201409/next-page-please)
-- [When I ask my dog if he wants to go on a walk](https://news.puppy-snuggles.com/10106199/when-i-ask-my-dog-if-he-wants-to-go-on-a-walk)
-- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
-- [More of a puppy grump than a smile](https://news.puppy-snuggles.com/10076787/more-of-a-puppy-grump-than-a-smile)
+- [A beagle who plays piano and sings](https://news.puppy-snuggles.com/16188373/a-beagle-who-plays-piano-and-sings)
+- [Chewbacca is sleepy](https://news.puppy-snuggles.com/13765712/chewbacca-is-sleepy)
+- [My foster dog who I&#39;ve been calling Big Dawg &lpar;official name Metallica&rpar;, who I suspect came from a hoarding colony, loving his new hedgie toy](https://news.puppy-snuggles.com/12238696/my-foster-dog-who-ive-been-calling-big-dawg-official-name-metallica-who-i-suspect-came-from-a-hoarding-colony-loving-his-new-hedgie-toy)
+- [Can anyone tell me what breed this doggie might be? Thanks!](https://news.puppy-snuggles.com/9999061/can-anyone-tell-me-what-breed-this-doggie-might-be-thanks)
+- [A memorial portrait I did of the sweetest black lab, Sadie.](https://news.puppy-snuggles.com/9954006/a-memorial-portrait-i-did-of-the-sweetest-black-lab-sadie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
