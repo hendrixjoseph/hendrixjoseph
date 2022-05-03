@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A beagle who plays piano and sings](https://news.puppy-snuggles.com/16188373/a-beagle-who-plays-piano-and-sings)
-- [Chewbacca is sleepy](https://news.puppy-snuggles.com/13765712/chewbacca-is-sleepy)
-- [My foster dog who I&#39;ve been calling Big Dawg &lpar;official name Metallica&rpar;, who I suspect came from a hoarding colony, loving his new hedgie toy](https://news.puppy-snuggles.com/12238696/my-foster-dog-who-ive-been-calling-big-dawg-official-name-metallica-who-i-suspect-came-from-a-hoarding-colony-loving-his-new-hedgie-toy)
-- [Can anyone tell me what breed this doggie might be? Thanks!](https://news.puppy-snuggles.com/9999061/can-anyone-tell-me-what-breed-this-doggie-might-be-thanks)
-- [A memorial portrait I did of the sweetest black lab, Sadie.](https://news.puppy-snuggles.com/9954006/a-memorial-portrait-i-did-of-the-sweetest-black-lab-sadie)
+- [Any ideas on the breed/mix of my new puppy?](https://news.puppy-snuggles.com/16032382/any-ideas-on-the-breedmix-of-my-new-puppy)
+- [This is our new Golden rRetriever Australian Shepard mix, help us name her!](https://news.puppy-snuggles.com/13512327/this-is-our-new-golden-rretriever-australian-shepard-mix-help-us-name-her)
+- [Pretzel is pouting because he was locked up in the camper all day.](https://news.puppy-snuggles.com/9426012/pretzel-is-pouting-because-he-was-locked-up-in-the-camper-all-day)
+- [Fun in the off lead paddock with my gang. The Bandit the terrier did enjoy himself but the high winds made him squint.](https://news.puppy-snuggles.com/11814485/fun-in-the-off-lead-paddock-with-my-gang-the-bandit-the-terrier-did-enjoy-himself-but-the-high-winds-made-him-squint)
+- [Look who is not allowed in the kitchen](https://news.puppy-snuggles.com/5292806/look-who-is-not-allowed-in-the-kitchen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
