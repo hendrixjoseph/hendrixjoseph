@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Any ideas on the breed/mix of my new puppy?](https://news.puppy-snuggles.com/16032382/any-ideas-on-the-breedmix-of-my-new-puppy)
-- [This is our new Golden rRetriever Australian Shepard mix, help us name her!](https://news.puppy-snuggles.com/13512327/this-is-our-new-golden-rretriever-australian-shepard-mix-help-us-name-her)
-- [Pretzel is pouting because he was locked up in the camper all day.](https://news.puppy-snuggles.com/9426012/pretzel-is-pouting-because-he-was-locked-up-in-the-camper-all-day)
-- [Fun in the off lead paddock with my gang. The Bandit the terrier did enjoy himself but the high winds made him squint.](https://news.puppy-snuggles.com/11814485/fun-in-the-off-lead-paddock-with-my-gang-the-bandit-the-terrier-did-enjoy-himself-but-the-high-winds-made-him-squint)
-- [Look who is not allowed in the kitchen](https://news.puppy-snuggles.com/5292806/look-who-is-not-allowed-in-the-kitchen)
+- [Duality of dog](https://news.puppy-snuggles.com/13591141/duality-of-dog)
+- [Don&#39;t Forget To SMILEEEEE](https://news.puppy-snuggles.com/5608328/dont-forget-to-smileeeee)
+- [&amp;amp;quot;Play with me, play with me, play with me!&amp;amp;quot;](https://news.puppy-snuggles.com/16443980/quotplay-with-me-play-with-me-play-with-mequot)
+- [Sleepy puppies](https://news.puppy-snuggles.com/7672476/sleepy-puppies)
+- [Nike. Brock. Ash.](https://news.puppy-snuggles.com/16318566/nike-brock-ash)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
