@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just got Snowball groomed today! Groomer said she was an angel](https://news.puppy-snuggles.com/10906687/just-got-snowball-groomed-today-groomer-said-she-was-an-angel)
-- [My best buddy Chapo has pneumonia. I feel so helpless and lost on not being able to help him. I have done everything in my power to help him feel better. From his vet to VSA specialty hospital, spent $5200. Done lab work, x-rays everything you can think of still not feeling better. Any suggestions??](https://news.puppy-snuggles.com/13825509/my-best-buddy-chapo-has-pneumonia-i-feel-so-helpless-and-lost-on-not-being-able-to-help-him-i-have-done-everything-in-my-power-to-help-him-feel-better-from-his-vet-to-vsa-specialty-hospital-spent-5200-done-lab-work-x-rays-everything-you-can-think-of-still-not-feeling-better-any-suggestions)
-- [he&#39;s pouting because I won&#39;t give him some of my chocolate chip cookie](https://news.puppy-snuggles.com/16422271/hes-pouting-because-i-wont-give-him-some-of-my-chocolate-chip-cookie)
-- [Lucy the Australian Shepherd she has my mother &amp;amp;amp; myself get through some tough times including loosing Reese our loyal, loving dog of 15 years](https://news.puppy-snuggles.com/7562438/lucy-the-australian-shepherd-she-has-my-mother-amp-myself-get-through-some-tough-times-including-loosing-reese-our-loyal-loving-dog-of-15-years)
-- [Enjoying the scritches](https://news.puppy-snuggles.com/16574596/enjoying-the-scritches)
+- [full of energy](https://news.puppy-snuggles.com/7778962/full-of-energy)
+- [Dog just wants a lil kitty love](https://news.puppy-snuggles.com/16601096/dog-just-wants-a-lil-kitty-love)
+- [Special breed of dog](https://news.puppy-snuggles.com/7599086/special-breed-of-dog)
+- [My little dude Alvin is way more photogenic](https://news.puppy-snuggles.com/11401785/my-little-dude-alvin-is-way-more-photogenic)
+- [Pretty windy day ❄️](https://news.puppy-snuggles.com/12274044/pretty-windy-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
