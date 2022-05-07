@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [full of energy](https://news.puppy-snuggles.com/7778962/full-of-energy)
-- [Dog just wants a lil kitty love](https://news.puppy-snuggles.com/16601096/dog-just-wants-a-lil-kitty-love)
-- [Special breed of dog](https://news.puppy-snuggles.com/7599086/special-breed-of-dog)
-- [My little dude Alvin is way more photogenic](https://news.puppy-snuggles.com/11401785/my-little-dude-alvin-is-way-more-photogenic)
-- [Pretty windy day ❄️](https://news.puppy-snuggles.com/12274044/pretty-windy-day)
+- [Taylor loves biting the air from the blower](https://news.puppy-snuggles.com/16644398/taylor-loves-biting-the-air-from-the-blower)
+- [Guys help my puppy is broken why is she sleeping like this](https://news.puppy-snuggles.com/14069607/guys-help-my-puppy-is-broken-why-is-she-sleeping-like-this)
+- [My neighbors cute dog just came out of nowhere and decided to sit on my lap lol](https://news.puppy-snuggles.com/16644397/my-neighbors-cute-dog-just-came-out-of-nowhere-and-decided-to-sit-on-my-lap-lol)
+- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
+- [A sandy dog is a happy dog](https://news.puppy-snuggles.com/7190427/a-sandy-dog-is-a-happy-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
