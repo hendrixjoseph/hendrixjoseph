@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Taylor loves biting the air from the blower](https://news.puppy-snuggles.com/16644398/taylor-loves-biting-the-air-from-the-blower)
-- [Guys help my puppy is broken why is she sleeping like this](https://news.puppy-snuggles.com/14069607/guys-help-my-puppy-is-broken-why-is-she-sleeping-like-this)
-- [My neighbors cute dog just came out of nowhere and decided to sit on my lap lol](https://news.puppy-snuggles.com/16644397/my-neighbors-cute-dog-just-came-out-of-nowhere-and-decided-to-sit-on-my-lap-lol)
-- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
-- [A sandy dog is a happy dog](https://news.puppy-snuggles.com/7190427/a-sandy-dog-is-a-happy-dog)
+- [One silly baby and one composed baby. Love them so much.](https://news.puppy-snuggles.com/11558399/one-silly-baby-and-one-composed-baby-love-them-so-much)
+- [Today Oscar turned 5!](https://news.puppy-snuggles.com/5311839/today-oscar-turned-5)
+- [Swag Doggo](https://news.puppy-snuggles.com/13842452/swag-doggo)
+- [Lola and Lucy - &amp;amp;quot;Catch&amp;amp;quot;](https://news.puppy-snuggles.com/9473166/lola-and-lucy-quotcatchquot)
+- [Best buds = many smiles](https://news.puppy-snuggles.com/11522602/best-buds-many-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
