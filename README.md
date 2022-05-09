@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One silly baby and one composed baby. Love them so much.](https://news.puppy-snuggles.com/11558399/one-silly-baby-and-one-composed-baby-love-them-so-much)
-- [Today Oscar turned 5!](https://news.puppy-snuggles.com/5311839/today-oscar-turned-5)
-- [Swag Doggo](https://news.puppy-snuggles.com/13842452/swag-doggo)
-- [Lola and Lucy - &amp;amp;quot;Catch&amp;amp;quot;](https://news.puppy-snuggles.com/9473166/lola-and-lucy-quotcatchquot)
-- [Best buds = many smiles](https://news.puppy-snuggles.com/11522602/best-buds-many-smiles)
+- [Fell asleep. Might turn into a potato](https://news.puppy-snuggles.com/7237141/fell-asleep-might-turn-into-a-potato)
+- [Husky dogs is so cute](https://news.puppy-snuggles.com/16699218/husky-dogs-is-so-cute)
+- [This is my dog Covy. Can you guess what breeds are in this loveable mutt?](https://news.puppy-snuggles.com/16610445/this-is-my-dog-covy-can-you-guess-what-breeds-are-in-this-loveable-mutt)
+- [Happy Sunday r/dogpictures!](https://news.puppy-snuggles.com/11395071/happy-sunday-rdogpictures)
+- [This is Dottie, recovering from her recent fetching accident.](https://news.puppy-snuggles.com/12705624/this-is-dottie-recovering-from-her-recent-fetching-accident)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
