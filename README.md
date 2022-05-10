@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Fell asleep. Might turn into a potato](https://news.puppy-snuggles.com/7237141/fell-asleep-might-turn-into-a-potato)
-- [Husky dogs is so cute](https://news.puppy-snuggles.com/16699218/husky-dogs-is-so-cute)
-- [This is my dog Covy. Can you guess what breeds are in this loveable mutt?](https://news.puppy-snuggles.com/16610445/this-is-my-dog-covy-can-you-guess-what-breeds-are-in-this-loveable-mutt)
-- [Happy Sunday r/dogpictures!](https://news.puppy-snuggles.com/11395071/happy-sunday-rdogpictures)
-- [This is Dottie, recovering from her recent fetching accident.](https://news.puppy-snuggles.com/12705624/this-is-dottie-recovering-from-her-recent-fetching-accident)
+- [13 looks good on you, Suki &lpar;swipe to see her the day I brought her home at eight weeks old&rpar;](https://news.puppy-snuggles.com/16732516/13-looks-good-on-you-suki-swipe-to-see-her-the-day-i-brought-her-home-at-eight-weeks-old)
+- [Doggo, by me](https://news.puppy-snuggles.com/5538491/doggo-by-me)
+- [Saw this good boy during a walk in the woods. Literally walked up to me, posed for one picture, went WOOF and ran back to his owner.](https://news.puppy-snuggles.com/16699216/saw-this-good-boy-during-a-walk-in-the-woods-literally-walked-up-to-me-posed-for-one-picture-went-woof-and-ran-back-to-his-owner)
+- [My dog was looking particularly wolf like this morning](https://news.puppy-snuggles.com/16722696/my-dog-was-looking-particularly-wolf-like-this-morning)
+- [Little cocker after the shower](https://news.puppy-snuggles.com/9719016/little-cocker-after-the-shower)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
