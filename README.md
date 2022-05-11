@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [13 looks good on you, Suki &lpar;swipe to see her the day I brought her home at eight weeks old&rpar;](https://news.puppy-snuggles.com/16732516/13-looks-good-on-you-suki-swipe-to-see-her-the-day-i-brought-her-home-at-eight-weeks-old)
-- [Doggo, by me](https://news.puppy-snuggles.com/5538491/doggo-by-me)
-- [Saw this good boy during a walk in the woods. Literally walked up to me, posed for one picture, went WOOF and ran back to his owner.](https://news.puppy-snuggles.com/16699216/saw-this-good-boy-during-a-walk-in-the-woods-literally-walked-up-to-me-posed-for-one-picture-went-woof-and-ran-back-to-his-owner)
-- [My dog was looking particularly wolf like this morning](https://news.puppy-snuggles.com/16722696/my-dog-was-looking-particularly-wolf-like-this-morning)
-- [Little cocker after the shower](https://news.puppy-snuggles.com/9719016/little-cocker-after-the-shower)
+- [Little guy with a big smile](https://news.puppy-snuggles.com/16768691/little-guy-with-a-big-smile)
+- [A drawing I made of a good boy](https://news.puppy-snuggles.com/6811361/a-drawing-i-made-of-a-good-boy)
+- [Pippi would like to know if you like her bubble](https://news.puppy-snuggles.com/16732519/pippi-would-like-to-know-if-you-like-her-bubble)
+- [These pet feeding stations prevent animals from starving in Ukraine after homes are destroyed](https://news.puppy-snuggles.com/16759012/these-pet-feeding-stations-prevent-animals-from-starving-in-ukraine-after-homes-are-destroyed)
+- [This is Oreo our new puppy ☺️ She’s about 4-5 months here.](https://news.puppy-snuggles.com/13707405/this-is-oreo-our-new-puppy-shes-about-4-5-months-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
