@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Tuesday, May 10, 2022](https://www.reddit.com/r/financialindependence/comments/umec6x/daily_fi_discussion_thread_tuesday_may_10_2022/i81jx9r/)
 - [30 Years of Programming &amp; My First Programs](https://www.reddit.com/r/programming/comments/uixx3j/30_years_of_programming_my_first_programs/)
 - [30 Years of Programming &amp;amp; My First Programs](https://www.reddit.com/r/u_joehx/comments/uixsbb/30_years_of_programming_amp_my_first_programs/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, May 04, 2022](https://www.reddit.com/r/financialindependence/comments/ui2btw/daily_fi_discussion_thread_wednesday_may_04_2022/i7aaghk/)
 - [/u/joehx on What are the most efficient passive income streams?](https://www.reddit.com/r/AskReddit/comments/u6tmvr/what_are_the_most_efficient_passive_income_streams/i5ae9l4/)
-- [/u/joehx on Daily Simple Questions Thread - April 15, 2022](https://www.reddit.com/r/Fitness/comments/u43tzt/daily_simple_questions_thread_april_15_2022/i4wo63v/)
 <!-- REDDIT:END -->
