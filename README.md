@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Little guy with a big smile](https://news.puppy-snuggles.com/16768691/little-guy-with-a-big-smile)
-- [A drawing I made of a good boy](https://news.puppy-snuggles.com/6811361/a-drawing-i-made-of-a-good-boy)
-- [Pippi would like to know if you like her bubble](https://news.puppy-snuggles.com/16732519/pippi-would-like-to-know-if-you-like-her-bubble)
-- [These pet feeding stations prevent animals from starving in Ukraine after homes are destroyed](https://news.puppy-snuggles.com/16759012/these-pet-feeding-stations-prevent-animals-from-starving-in-ukraine-after-homes-are-destroyed)
-- [This is Oreo our new puppy ☺️ She’s about 4-5 months here.](https://news.puppy-snuggles.com/13707405/this-is-oreo-our-new-puppy-shes-about-4-5-months-here)
+- [Duke wishes everyone a nice afternoon!](https://news.puppy-snuggles.com/8260377/duke-wishes-everyone-a-nice-afternoon)
+- [Cozy](https://news.puppy-snuggles.com/7025044/cozy)
+- [The thrill of the chase!](https://news.puppy-snuggles.com/16759016/the-thrill-of-the-chase)
+- [My doggo Maq looks like Dollar Tree Theodore Roosevelt](https://news.puppy-snuggles.com/13069020/my-doggo-maq-looks-like-dollar-tree-theodore-roosevelt)
+- [Just my dog](https://news.puppy-snuggles.com/12138811/just-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
