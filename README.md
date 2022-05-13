@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Duke wishes everyone a nice afternoon!](https://news.puppy-snuggles.com/8260377/duke-wishes-everyone-a-nice-afternoon)
-- [Cozy](https://news.puppy-snuggles.com/7025044/cozy)
-- [The thrill of the chase!](https://news.puppy-snuggles.com/16759016/the-thrill-of-the-chase)
-- [My doggo Maq looks like Dollar Tree Theodore Roosevelt](https://news.puppy-snuggles.com/13069020/my-doggo-maq-looks-like-dollar-tree-theodore-roosevelt)
-- [Just my dog](https://news.puppy-snuggles.com/12138811/just-my-dog)
+- [Just relaxing, thinking about snacs](https://news.puppy-snuggles.com/16795213/just-relaxing-thinking-about-snacs)
+- [Never get a cute doggy! Chewie owns me. Chewie knows it.](https://news.puppy-snuggles.com/13751698/never-get-a-cute-doggy-chewie-owns-me-chewie-knows-it)
+- [My brother&#39;s puppy, Jet . Three and a half months old, German Shephard and black lab mix.](https://news.puppy-snuggles.com/9668019/my-brothers-puppy-jet-three-and-a-half-months-old-german-shephard-and-black-lab-mix)
+- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
+- [My husky &lpar;male 3yo&rpar; and malamute &lpar;female 13yo&rpar; having a full conversation.](https://news.puppy-snuggles.com/11002168/my-husky-male-3yo-and-malamute-female-13yo-having-a-full-conversation)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
