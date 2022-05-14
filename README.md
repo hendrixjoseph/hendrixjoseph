@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just relaxing, thinking about snacs](https://news.puppy-snuggles.com/16795213/just-relaxing-thinking-about-snacs)
-- [Never get a cute doggy! Chewie owns me. Chewie knows it.](https://news.puppy-snuggles.com/13751698/never-get-a-cute-doggy-chewie-owns-me-chewie-knows-it)
-- [My brother&#39;s puppy, Jet . Three and a half months old, German Shephard and black lab mix.](https://news.puppy-snuggles.com/9668019/my-brothers-puppy-jet-three-and-a-half-months-old-german-shephard-and-black-lab-mix)
-- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
-- [My husky &lpar;male 3yo&rpar; and malamute &lpar;female 13yo&rpar; having a full conversation.](https://news.puppy-snuggles.com/11002168/my-husky-male-3yo-and-malamute-female-13yo-having-a-full-conversation)
+- [Molly &amp;amp;amp; her goggles](https://news.puppy-snuggles.com/16870198/molly-amp-her-goggles)
+- [Happy 12th birthday to my best girl!](https://news.puppy-snuggles.com/16870194/happy-12th-birthday-to-my-best-girl)
+- [Flew the coop to my own place and my 10 year old girl is coming with! :&rpar;](https://news.puppy-snuggles.com/16583614/flew-the-coop-to-my-own-place-and-my-10-year-old-girl-is-coming-with)
+- [It&#39;s good when you have a good friend with you, and when you know how to spend more time with him](https://news.puppy-snuggles.com/15423887/its-good-when-you-have-a-good-friend-with-you-and-when-you-know-how-to-spend-more-time-with-him)
+- [Random photos of my dog sleeping](https://news.puppy-snuggles.com/10955731/random-photos-of-my-dog-sleeping)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
