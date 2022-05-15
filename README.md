@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Molly &amp;amp;amp; her goggles](https://news.puppy-snuggles.com/16870198/molly-amp-her-goggles)
-- [Happy 12th birthday to my best girl!](https://news.puppy-snuggles.com/16870194/happy-12th-birthday-to-my-best-girl)
-- [Flew the coop to my own place and my 10 year old girl is coming with! :&rpar;](https://news.puppy-snuggles.com/16583614/flew-the-coop-to-my-own-place-and-my-10-year-old-girl-is-coming-with)
-- [It&#39;s good when you have a good friend with you, and when you know how to spend more time with him](https://news.puppy-snuggles.com/15423887/its-good-when-you-have-a-good-friend-with-you-and-when-you-know-how-to-spend-more-time-with-him)
-- [Random photos of my dog sleeping](https://news.puppy-snuggles.com/10955731/random-photos-of-my-dog-sleeping)
+- [I sing to her in the morning before I leave to work. She has a favorite spot where she lays to listen right next to me.](https://news.puppy-snuggles.com/16822105/i-sing-to-her-in-the-morning-before-i-leave-to-work-she-has-a-favorite-spot-where-she-lays-to-listen-right-next-to-me)
+- [Anyone wanna guess the breed?](https://news.puppy-snuggles.com/16003868/anyone-wanna-guess-the-breed)
+- [These doggos have gotten me thru a lot! it’s my cake 🍰 day!](https://news.puppy-snuggles.com/15707371/these-doggos-have-gotten-me-thru-a-lot-its-my-cake-day)
+- [Two booping noses are sisters. Big boi is dad.](https://news.puppy-snuggles.com/8106840/two-booping-noses-are-sisters-big-boi-is-dad)
+- [Happy December 🤓](https://news.puppy-snuggles.com/12293518/happy-december)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
