@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I sing to her in the morning before I leave to work. She has a favorite spot where she lays to listen right next to me.](https://news.puppy-snuggles.com/16822105/i-sing-to-her-in-the-morning-before-i-leave-to-work-she-has-a-favorite-spot-where-she-lays-to-listen-right-next-to-me)
-- [Anyone wanna guess the breed?](https://news.puppy-snuggles.com/16003868/anyone-wanna-guess-the-breed)
-- [These doggos have gotten me thru a lot! it’s my cake 🍰 day!](https://news.puppy-snuggles.com/15707371/these-doggos-have-gotten-me-thru-a-lot-its-my-cake-day)
-- [Two booping noses are sisters. Big boi is dad.](https://news.puppy-snuggles.com/8106840/two-booping-noses-are-sisters-big-boi-is-dad)
-- [Happy December 🤓](https://news.puppy-snuggles.com/12293518/happy-december)
+- [self portrait of Iris. Her face says life is hard lol](https://news.puppy-snuggles.com/11210793/self-portrait-of-iris-her-face-says-life-is-hard-lol)
+- [The face of a good boy who&#39;s so happy summer came back after his first winter.](https://news.puppy-snuggles.com/7925032/the-face-of-a-good-boy-whos-so-happy-summer-came-back-after-his-first-winter)
+- [Feed me, human](https://news.puppy-snuggles.com/16054702/feed-me-human)
+- [Don&#39;t Forget To Nap, Its Good For You!](https://news.puppy-snuggles.com/8714850/dont-forget-to-nap-its-good-for-you)
+- [Lovely expression, everyone waiting for him to take a name.](https://news.puppy-snuggles.com/16759014/lovely-expression-everyone-waiting-for-him-to-take-a-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
