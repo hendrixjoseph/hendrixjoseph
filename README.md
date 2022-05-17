@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [self portrait of Iris. Her face says life is hard lol](https://news.puppy-snuggles.com/11210793/self-portrait-of-iris-her-face-says-life-is-hard-lol)
-- [The face of a good boy who&#39;s so happy summer came back after his first winter.](https://news.puppy-snuggles.com/7925032/the-face-of-a-good-boy-whos-so-happy-summer-came-back-after-his-first-winter)
-- [Feed me, human](https://news.puppy-snuggles.com/16054702/feed-me-human)
-- [Don&#39;t Forget To Nap, Its Good For You!](https://news.puppy-snuggles.com/8714850/dont-forget-to-nap-its-good-for-you)
-- [Lovely expression, everyone waiting for him to take a name.](https://news.puppy-snuggles.com/16759014/lovely-expression-everyone-waiting-for-him-to-take-a-name)
+- [Pupplo Puppicaso. Details in comments](https://news.puppy-snuggles.com/13419004/pupplo-puppicaso-details-in-comments)
+- [Artwork I made of my old doggo Teddy](https://news.puppy-snuggles.com/12727159/artwork-i-made-of-my-old-doggo-teddy)
+- [Behold, my dog](https://news.puppy-snuggles.com/13989285/behold-my-dog)
+- [Eyesss](https://news.puppy-snuggles.com/8133096/eyesss)
+- [Am i cute? Happy Friday everyone!!!](https://news.puppy-snuggles.com/14095766/am-i-cute-happy-friday-everyone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
