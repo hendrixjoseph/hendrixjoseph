@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pupplo Puppicaso. Details in comments](https://news.puppy-snuggles.com/13419004/pupplo-puppicaso-details-in-comments)
-- [Artwork I made of my old doggo Teddy](https://news.puppy-snuggles.com/12727159/artwork-i-made-of-my-old-doggo-teddy)
-- [Behold, my dog](https://news.puppy-snuggles.com/13989285/behold-my-dog)
-- [Eyesss](https://news.puppy-snuggles.com/8133096/eyesss)
-- [Am i cute? Happy Friday everyone!!!](https://news.puppy-snuggles.com/14095766/am-i-cute-happy-friday-everyone)
+- [All the smiles 🥰😛 Tongue out Tuesday](https://news.puppy-snuggles.com/16992369/all-the-smiles-tongue-out-tuesday)
+- [Piku vs Plant](https://news.puppy-snuggles.com/14468172/piku-vs-plant)
+- [Great Pyr’s are the best, I love my Daisy with all my soul](https://news.puppy-snuggles.com/12268761/great-pyrs-are-the-best-i-love-my-daisy-with-all-my-soul)
+- [There was snoring too…](https://news.puppy-snuggles.com/10638106/there-was-snoring-too)
+- [lovely cat photos](https://news.puppy-snuggles.com/9622419/lovely-cat-photos)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
