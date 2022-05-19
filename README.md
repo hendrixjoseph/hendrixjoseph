@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All the smiles 🥰😛 Tongue out Tuesday](https://news.puppy-snuggles.com/16992369/all-the-smiles-tongue-out-tuesday)
-- [Piku vs Plant](https://news.puppy-snuggles.com/14468172/piku-vs-plant)
-- [Great Pyr’s are the best, I love my Daisy with all my soul](https://news.puppy-snuggles.com/12268761/great-pyrs-are-the-best-i-love-my-daisy-with-all-my-soul)
-- [There was snoring too…](https://news.puppy-snuggles.com/10638106/there-was-snoring-too)
-- [lovely cat photos](https://news.puppy-snuggles.com/9622419/lovely-cat-photos)
+- [very fluffy puppy smile :&rpar;](https://news.puppy-snuggles.com/17028515/very-fluffy-puppy-smile)
+- [I just adopted her yesterday… meet Duffy! ❤️#fosterfail](https://news.puppy-snuggles.com/16601094/i-just-adopted-her-yesterday-meet-duffy-fosterfail)
+- [Working from home means working on the deck while my sweet pup stares at me all day waiting for pets ❤️](https://news.puppy-snuggles.com/15110641/working-from-home-means-working-on-the-deck-while-my-sweet-pup-stares-at-me-all-day-waiting-for-pets)
+- [Just Drew a Puppy playing with a Ladybug! hope you guys like it!](https://news.puppy-snuggles.com/7830623/just-drew-a-puppy-playing-with-a-ladybug-hope-you-guys-like-it)
+- [Sweetest dogs ever!](https://news.puppy-snuggles.com/15767202/sweetest-dogs-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
