@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [very fluffy puppy smile :&rpar;](https://news.puppy-snuggles.com/17028515/very-fluffy-puppy-smile)
-- [I just adopted her yesterday… meet Duffy! ❤️#fosterfail](https://news.puppy-snuggles.com/16601094/i-just-adopted-her-yesterday-meet-duffy-fosterfail)
-- [Working from home means working on the deck while my sweet pup stares at me all day waiting for pets ❤️](https://news.puppy-snuggles.com/15110641/working-from-home-means-working-on-the-deck-while-my-sweet-pup-stares-at-me-all-day-waiting-for-pets)
-- [Just Drew a Puppy playing with a Ladybug! hope you guys like it!](https://news.puppy-snuggles.com/7830623/just-drew-a-puppy-playing-with-a-ladybug-hope-you-guys-like-it)
-- [Sweetest dogs ever!](https://news.puppy-snuggles.com/15767202/sweetest-dogs-ever)
+- [When you&#39;re late for work](https://news.puppy-snuggles.com/16957576/when-youre-late-for-work)
+- [After 12 days of being missing in 90 heat and rain storms, my little old man was found. About 10 lbs lighter, but well. Trip to the vet tomorrow to check him out](https://news.puppy-snuggles.com/8161758/after-12-days-of-being-missing-in-90-heat-and-rain-storms-my-little-old-man-was-found-about-10-lbs-lighter-but-well-trip-to-the-vet-tomorrow-to-check-him-out)
+- [The absolute kitchest photo I&#39;ve ever taken. Sometimes the planets just align... Taken in Warnemünde, Germany. My dog is the Irish Terrier.](https://news.puppy-snuggles.com/17064561/the-absolute-kitchest-photo-ive-ever-taken-sometimes-the-planets-just-align-taken-in-warnemunde-germany-my-dog-is-the-irish-terrier)
+- [He’s happiest during a car ride](https://news.puppy-snuggles.com/8890097/hes-happiest-during-a-car-ride)
+- [Fighting a bunch of stones in her bladder &amp;amp;amp; urethra out of nowhere but still hangin tough!](https://news.puppy-snuggles.com/9091290/fighting-a-bunch-of-stones-in-her-bladder-amp-urethra-out-of-nowhere-but-still-hangin-tough)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
