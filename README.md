@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Discussion: What makes Java so great after 25+ years](https://www.reddit.com/r/java/comments/ut1sjv/discussion_what_makes_java_so_great_after_25_years/i96z3af/)
 - [/u/joehx on what&#39;s the dumbest thing you believed as a kid?](https://www.reddit.com/r/AskReddit/comments/uolu1c/whats_the_dumbest_thing_you_believed_as_a_kid/i8j0njc/)
 - [/u/joehx on People who shop at Good Will / charity shops what has been your best find?](https://www.reddit.com/r/AskReddit/comments/uny35q/people_who_shop_at_good_will_charity_shops_what/i8bis8v/)
 - [/u/joehx on What is your best tip for negotiating?](https://www.reddit.com/r/AskReddit/comments/unylp8/what_is_your_best_tip_for_negotiating/i8bgg03/)
 - [What are some must-read nonfiction books?](https://www.reddit.com/r/AskReddit/comments/uo1bbx/what_are_some_mustread_nonfiction_books/)
-- [/u/joehx on Daily FI discussion thread - Tuesday, May 10, 2022](https://www.reddit.com/r/financialindependence/comments/umec6x/daily_fi_discussion_thread_tuesday_may_10_2022/i81jx9r/)
 <!-- REDDIT:END -->
