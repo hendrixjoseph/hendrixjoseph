@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When you&#39;re late for work](https://news.puppy-snuggles.com/16957576/when-youre-late-for-work)
-- [After 12 days of being missing in 90 heat and rain storms, my little old man was found. About 10 lbs lighter, but well. Trip to the vet tomorrow to check him out](https://news.puppy-snuggles.com/8161758/after-12-days-of-being-missing-in-90-heat-and-rain-storms-my-little-old-man-was-found-about-10-lbs-lighter-but-well-trip-to-the-vet-tomorrow-to-check-him-out)
-- [The absolute kitchest photo I&#39;ve ever taken. Sometimes the planets just align... Taken in Warnemünde, Germany. My dog is the Irish Terrier.](https://news.puppy-snuggles.com/17064561/the-absolute-kitchest-photo-ive-ever-taken-sometimes-the-planets-just-align-taken-in-warnemunde-germany-my-dog-is-the-irish-terrier)
-- [He’s happiest during a car ride](https://news.puppy-snuggles.com/8890097/hes-happiest-during-a-car-ride)
-- [Fighting a bunch of stones in her bladder &amp;amp;amp; urethra out of nowhere but still hangin tough!](https://news.puppy-snuggles.com/9091290/fighting-a-bunch-of-stones-in-her-bladder-amp-urethra-out-of-nowhere-but-still-hangin-tough)
+- [Breed ➡️ CENTRAL ASIAN SHEPHERD DOG From Cosmin Lucian 🇷🇴](https://news.puppy-snuggles.com/12693281/breed-central-asian-shepherd-dog-from-cosmin-lucian)
+- [Someone in this picture just got adopted into the House of Cheesy Smiles. Welcome, Luna!](https://news.puppy-snuggles.com/10759234/someone-in-this-picture-just-got-adopted-into-the-house-of-cheesy-smiles-welcome-luna)
+- [Howdy partner](https://news.puppy-snuggles.com/10847948/howdy-partner)
+- [found a great picture of my childhood dogs today. So thankful for all the memories. RIP puppers](https://news.puppy-snuggles.com/17099330/found-a-great-picture-of-my-childhood-dogs-today-so-thankful-for-all-the-memories-rip-puppers)
+- [smyle if u luv burgerz!!!](https://news.puppy-snuggles.com/5629451/smyle-if-u-luv-burgerz)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
