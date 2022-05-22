@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Breed ➡️ CENTRAL ASIAN SHEPHERD DOG From Cosmin Lucian 🇷🇴](https://news.puppy-snuggles.com/12693281/breed-central-asian-shepherd-dog-from-cosmin-lucian)
-- [Someone in this picture just got adopted into the House of Cheesy Smiles. Welcome, Luna!](https://news.puppy-snuggles.com/10759234/someone-in-this-picture-just-got-adopted-into-the-house-of-cheesy-smiles-welcome-luna)
-- [Howdy partner](https://news.puppy-snuggles.com/10847948/howdy-partner)
-- [found a great picture of my childhood dogs today. So thankful for all the memories. RIP puppers](https://news.puppy-snuggles.com/17099330/found-a-great-picture-of-my-childhood-dogs-today-so-thankful-for-all-the-memories-rip-puppers)
-- [smyle if u luv burgerz!!!](https://news.puppy-snuggles.com/5629451/smyle-if-u-luv-burgerz)
+- [I saw a dog out and about today and I nearly melted. That&#39;s all.](https://news.puppy-snuggles.com/7906577/i-saw-a-dog-out-and-about-today-and-i-nearly-melted-thats-all)
+- [Woke up to our boys cuddling.](https://news.puppy-snuggles.com/17129188/woke-up-to-our-boys-cuddling)
+- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
+- [Obi](https://news.puppy-snuggles.com/8059057/obi)
+- [Best mates. Atlas &lpar;French bulldog&rpar; and Pandora &lpar;staffy/English setter&rpar;](https://news.puppy-snuggles.com/7091076/best-mates-atlas-french-bulldog-and-pandora-staffyenglish-setter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
