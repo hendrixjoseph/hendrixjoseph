@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I saw a dog out and about today and I nearly melted. That&#39;s all.](https://news.puppy-snuggles.com/7906577/i-saw-a-dog-out-and-about-today-and-i-nearly-melted-thats-all)
-- [Woke up to our boys cuddling.](https://news.puppy-snuggles.com/17129188/woke-up-to-our-boys-cuddling)
-- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
-- [Obi](https://news.puppy-snuggles.com/8059057/obi)
-- [Best mates. Atlas &lpar;French bulldog&rpar; and Pandora &lpar;staffy/English setter&rpar;](https://news.puppy-snuggles.com/7091076/best-mates-atlas-french-bulldog-and-pandora-staffyenglish-setter)
+- [JAWS](https://news.puppy-snuggles.com/14135516/jaws)
+- [Dog&#39;s u/East_Heron](https://news.puppy-snuggles.com/4708470/dogs-ueast-heron)
+- [It’s almost the weekend!](https://news.puppy-snuggles.com/10872109/its-almost-the-weekend)
+- [Can&#39;t Wait - Friday Feeling!!!](https://news.puppy-snuggles.com/12428919/cant-wait-friday-feeling)
+- [my old doggo o how I miss you](https://news.puppy-snuggles.com/8391602/my-old-doggo-o-how-i-miss-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
