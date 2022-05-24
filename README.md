@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [JAWS](https://news.puppy-snuggles.com/14135516/jaws)
-- [Dog&#39;s u/East_Heron](https://news.puppy-snuggles.com/4708470/dogs-ueast-heron)
-- [It’s almost the weekend!](https://news.puppy-snuggles.com/10872109/its-almost-the-weekend)
-- [Can&#39;t Wait - Friday Feeling!!!](https://news.puppy-snuggles.com/12428919/cant-wait-friday-feeling)
-- [my old doggo o how I miss you](https://news.puppy-snuggles.com/8391602/my-old-doggo-o-how-i-miss-you)
+- [my cute high-5 master🐶](https://news.puppy-snuggles.com/16851697/my-cute-high-5-master)
+- [Roommate rescued a puppy. Her name is Mia and she has to grow into those ears!](https://news.puppy-snuggles.com/11133823/roommate-rescued-a-puppy-her-name-is-mia-and-she-has-to-grow-into-those-ears)
+- [The cutest duo](https://news.puppy-snuggles.com/11794064/the-cutest-duo)
+- [First pic of Tyson on reddit](https://news.puppy-snuggles.com/11163984/first-pic-of-tyson-on-reddit)
+- [Family drive](https://news.puppy-snuggles.com/11368105/family-drive)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
