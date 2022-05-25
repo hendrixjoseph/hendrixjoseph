@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my cute high-5 master🐶](https://news.puppy-snuggles.com/16851697/my-cute-high-5-master)
-- [Roommate rescued a puppy. Her name is Mia and she has to grow into those ears!](https://news.puppy-snuggles.com/11133823/roommate-rescued-a-puppy-her-name-is-mia-and-she-has-to-grow-into-those-ears)
-- [The cutest duo](https://news.puppy-snuggles.com/11794064/the-cutest-duo)
-- [First pic of Tyson on reddit](https://news.puppy-snuggles.com/11163984/first-pic-of-tyson-on-reddit)
-- [Family drive](https://news.puppy-snuggles.com/11368105/family-drive)
+- [More of Ash!](https://news.puppy-snuggles.com/11064918/more-of-ash)
+- [A Happy Duck](https://news.puppy-snuggles.com/10673711/a-happy-duck)
+- [hello from the beach](https://news.puppy-snuggles.com/16947679/hello-from-the-beach)
+- [Miss Luna is 12! She was 7 when I adopted her. Praying we have many more years of love.](https://news.puppy-snuggles.com/17221886/miss-luna-is-12-she-was-7-when-i-adopted-her-praying-we-have-many-more-years-of-love)
+- [Love Mollys&#39; smile so much I had to portrait it!](https://news.puppy-snuggles.com/11082258/love-mollys-smile-so-much-i-had-to-portrait-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
