@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [More of Ash!](https://news.puppy-snuggles.com/11064918/more-of-ash)
-- [A Happy Duck](https://news.puppy-snuggles.com/10673711/a-happy-duck)
-- [hello from the beach](https://news.puppy-snuggles.com/16947679/hello-from-the-beach)
-- [Miss Luna is 12! She was 7 when I adopted her. Praying we have many more years of love.](https://news.puppy-snuggles.com/17221886/miss-luna-is-12-she-was-7-when-i-adopted-her-praying-we-have-many-more-years-of-love)
-- [Love Mollys&#39; smile so much I had to portrait it!](https://news.puppy-snuggles.com/11082258/love-mollys-smile-so-much-i-had-to-portrait-it)
+- [sitting outside in the rain](https://news.puppy-snuggles.com/16732518/sitting-outside-in-the-rain)
+- [Meet my fur family!](https://news.puppy-snuggles.com/15832529/meet-my-fur-family)
+- [As requested. Here are more pictures of our massive family Boerboel. Thrown in some pictures from when he was a puppy as well.](https://news.puppy-snuggles.com/15951793/as-requested-here-are-more-pictures-of-our-massive-family-boerboel-thrown-in-some-pictures-from-when-he-was-a-puppy-as-well)
+- [Don’t let his cute looks fool you!](https://news.puppy-snuggles.com/16213369/dont-let-his-cute-looks-fool-you)
+- [Our Dolly, poodle on the beach](https://news.puppy-snuggles.com/15759509/our-dolly-poodle-on-the-beach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
