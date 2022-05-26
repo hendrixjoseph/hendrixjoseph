@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Lazily Check the Body of an HttpServletResponse](https://www.joehxblog.com/lazily-check-the-body-of-an-httpservletresponse/)
 - [May 2022 Blog Statistics](https://www.joehxblog.com/may-2022-blog-statistics/)
 - [Lazily Check the Body of an HttpServletRequest](https://www.joehxblog.com/lazily-check-the-body-of-an-httpservletrequest/)
 - [30 Years of Programming &amp; My First Programs](https://www.joehxblog.com/30-years-of-programming/)
 - [April 2022 Book Reading List](https://www.joehxblog.com/april-2022-book-reading-list/)
-- [April 2022 Blog Statistics](https://www.joehxblog.com/april-2022-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
