@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Someone didn&#39;t think these questions through.](https://www.reddit.com/r/mturk/comments/uxlm9i/someone_didnt_think_these_questions_through/ia0ksom/)
 - [Lazily Check the Body of an HttpServletResponse](https://www.reddit.com/r/u_joehx/comments/uxm7ir/lazily_check_the_body_of_an_httpservletresponse/)
 - [/u/joehx on I feel like I unlocked a running secret for myself!](https://www.reddit.com/r/running/comments/uwekt5/i_feel_like_i_unlocked_a_running_secret_for_myself/i9ttyxe/)
 - [/u/joehx on Discussion: What makes Java so great after 25+ years](https://www.reddit.com/r/java/comments/ut1sjv/discussion_what_makes_java_so_great_after_25_years/i96z3af/)
 - [/u/joehx on what&#39;s the dumbest thing you believed as a kid?](https://www.reddit.com/r/AskReddit/comments/uolu1c/whats_the_dumbest_thing_you_believed_as_a_kid/i8j0njc/)
-- [/u/joehx on People who shop at Good Will / charity shops what has been your best find?](https://www.reddit.com/r/AskReddit/comments/uny35q/people_who_shop_at_good_will_charity_shops_what/i8bis8v/)
 <!-- REDDIT:END -->
