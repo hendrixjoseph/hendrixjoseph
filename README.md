@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy 4th of July from this patriotic pup!](https://news.puppy-snuggles.com/7388516/happy-4th-of-july-from-this-patriotic-pup)
-- [Wally the waterdog](https://news.puppy-snuggles.com/6817465/wally-the-waterdog)
-- [Tonight our Teddy crossed the Rainbow Bridge and though it was the right decision, it was one of the hardest we&#39;ve ever had to make. He was our child and we will always love him. RIP Teddy, and fuck cancer and kidney disease. I love you sweet pupper.](https://news.puppy-snuggles.com/12268758/tonight-our-teddy-crossed-the-rainbow-bridge-and-though-it-was-the-right-decision-it-was-one-of-the-hardest-weve-ever-had-to-make-he-was-our-child-and-we-will-always-love-him-rip-teddy-and-fuck-cancer-and-kidney-disease-i-love-you-sweet-pupper)
-- [My little buddy and his big roar](https://news.puppy-snuggles.com/16777540/my-little-buddy-and-his-big-roar)
-- [&amp;amp;quot;Play with me, play with me, play with me!&amp;amp;quot;](https://news.puppy-snuggles.com/16443980/quotplay-with-me-play-with-me-play-with-mequot)
+- [I thought I’d share smokey one last time before the year is over, he is exhausted from 2021 too lol](https://news.puppy-snuggles.com/12763199/i-thought-id-share-smokey-one-last-time-before-the-year-is-over-he-is-exhausted-from-2021-too-lol)
+- [birdie and gus enjoying an evening walk!](https://news.puppy-snuggles.com/8401214/birdie-and-gus-enjoying-an-evening-walk)
+- [Energetic bun🐶](https://news.puppy-snuggles.com/14232374/energetic-bun)
+- [When the shepherds come to visit.](https://news.puppy-snuggles.com/11177908/when-the-shepherds-come-to-visit)
+- [Another Ruth for your liking :p](https://news.puppy-snuggles.com/17327698/another-ruth-for-your-liking-p)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
