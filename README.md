@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I thought I’d share smokey one last time before the year is over, he is exhausted from 2021 too lol](https://news.puppy-snuggles.com/12763199/i-thought-id-share-smokey-one-last-time-before-the-year-is-over-he-is-exhausted-from-2021-too-lol)
-- [birdie and gus enjoying an evening walk!](https://news.puppy-snuggles.com/8401214/birdie-and-gus-enjoying-an-evening-walk)
-- [Energetic bun🐶](https://news.puppy-snuggles.com/14232374/energetic-bun)
-- [When the shepherds come to visit.](https://news.puppy-snuggles.com/11177908/when-the-shepherds-come-to-visit)
-- [Another Ruth for your liking :p](https://news.puppy-snuggles.com/17327698/another-ruth-for-your-liking-p)
+- [Snow dogs](https://news.puppy-snuggles.com/10518263/snow-dogs)
+- [None of the dogs at the park wanted to play chase so she sat in the pond pouting.](https://news.puppy-snuggles.com/17356652/none-of-the-dogs-at-the-park-wanted-to-play-chase-so-she-sat-in-the-pond-pouting)
+- [Happy Saturday Folks💙](https://news.puppy-snuggles.com/5749196/happy-saturday-folks)
+- [His name Snitch!](https://news.puppy-snuggles.com/7694056/his-name-snitch)
+- [You are the sunflower](https://news.puppy-snuggles.com/10706543/you-are-the-sunflower)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
