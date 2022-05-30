@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Snow dogs](https://news.puppy-snuggles.com/10518263/snow-dogs)
-- [None of the dogs at the park wanted to play chase so she sat in the pond pouting.](https://news.puppy-snuggles.com/17356652/none-of-the-dogs-at-the-park-wanted-to-play-chase-so-she-sat-in-the-pond-pouting)
-- [Happy Saturday Folks💙](https://news.puppy-snuggles.com/5749196/happy-saturday-folks)
-- [His name Snitch!](https://news.puppy-snuggles.com/7694056/his-name-snitch)
-- [You are the sunflower](https://news.puppy-snuggles.com/10706543/you-are-the-sunflower)
+- [to make it easier to see.&rpar;](https://news.puppy-snuggles.com/17383545/to-make-it-easier-to-see)
+- [meet my adoptee, Tonka!](https://news.puppy-snuggles.com/17383551/meet-my-adoptee-tonka)
+- [We are now foster failures with this 13 year old lab](https://news.puppy-snuggles.com/11625959/we-are-now-foster-failures-with-this-13-year-old-lab)
+- [She is waiting for the school bus to drop off.](https://news.puppy-snuggles.com/17383546/she-is-waiting-for-the-school-bus-to-drop-off)
+- [Hanging with her boyfriend for 5 hours today](https://news.puppy-snuggles.com/17383548/hanging-with-her-boyfriend-for-5-hours-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
