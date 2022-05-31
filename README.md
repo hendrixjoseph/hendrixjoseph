@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [to make it easier to see.&rpar;](https://news.puppy-snuggles.com/17383545/to-make-it-easier-to-see)
-- [meet my adoptee, Tonka!](https://news.puppy-snuggles.com/17383551/meet-my-adoptee-tonka)
-- [We are now foster failures with this 13 year old lab](https://news.puppy-snuggles.com/11625959/we-are-now-foster-failures-with-this-13-year-old-lab)
-- [She is waiting for the school bus to drop off.](https://news.puppy-snuggles.com/17383546/she-is-waiting-for-the-school-bus-to-drop-off)
-- [Hanging with her boyfriend for 5 hours today](https://news.puppy-snuggles.com/17383548/hanging-with-her-boyfriend-for-5-hours-today)
+- [Chrissy Teigen steps out in public with new basset hound puppy after death of dog Pippa](https://news.puppy-snuggles.com/8031924/chrissy-teigen-steps-out-in-public-with-new-basset-hound-puppy-after-death-of-dog-pippa)
+- [small dog](https://news.puppy-snuggles.com/14626091/small-dog)
+- [Just five more minutes](https://news.puppy-snuggles.com/14046361/just-five-more-minutes)
+- [This little rescue is a thief - steals ❤️](https://news.puppy-snuggles.com/10847949/this-little-rescue-is-a-thief-steals)
+- [Archie&#39;s summertime smiley face](https://news.puppy-snuggles.com/11407526/archies-summertime-smiley-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
