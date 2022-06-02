@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Introducing Maverick 💞](https://news.puppy-snuggles.com/17446906/introducing-maverick)
-- [What an interesting boy!](https://news.puppy-snuggles.com/8030978/what-an-interesting-boy)
-- [Meet Potato, the largest greyhound ever; he is getting old and I&#39;m sad about it. He&#39;s around 10yr and has a spinal injury, worn teeth and a sore groin tendon from his abusers before we rescued him. Everyone send him good vibes, he really needs it.](https://news.puppy-snuggles.com/17446908/meet-potato-the-largest-greyhound-ever-he-is-getting-old-and-im-sad-about-it-hes-around-10yr-and-has-a-spinal-injury-worn-teeth-and-a-sore-groin-tendon-from-his-abusers-before-we-rescued-him-everyone-send-him-good-vibes-he-really-needs-it)
-- [Two cute yellow labrador retriver](https://news.puppy-snuggles.com/17446901/two-cute-yellow-labrador-retriver)
-- [Snow’s first pool pawty!!](https://news.puppy-snuggles.com/15566807/snows-first-pool-pawty)
+- [Imma hitting gym 💪 The strongest dog in the world! 🌎](https://news.puppy-snuggles.com/8359161/imma-hitting-gym-the-strongest-dog-in-the-world)
+- [She hates the rain!](https://news.puppy-snuggles.com/17483213/she-hates-the-rain)
+- [Aww, lovely!](https://news.puppy-snuggles.com/5484391/aww-lovely)
+- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
+- [Because every life is precious](https://news.puppy-snuggles.com/13138555/because-every-life-is-precious)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
