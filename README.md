@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Imma hitting gym 💪 The strongest dog in the world! 🌎](https://news.puppy-snuggles.com/8359161/imma-hitting-gym-the-strongest-dog-in-the-world)
-- [She hates the rain!](https://news.puppy-snuggles.com/17483213/she-hates-the-rain)
-- [Aww, lovely!](https://news.puppy-snuggles.com/5484391/aww-lovely)
-- [sleeping](https://news.puppy-snuggles.com/5907289/sleeping)
-- [Because every life is precious](https://news.puppy-snuggles.com/13138555/because-every-life-is-precious)
+- [Today, our Queenie did not wake up from spay anesthesia. She was celebrating 1 year and 1 month this exact day. We miss her already so much... I hope she will find plenty of sticks to chew up there...](https://news.puppy-snuggles.com/8224005/today-our-queenie-did-not-wake-up-from-spay-anesthesia-she-was-celebrating-1-year-and-1-month-this-exact-day-we-miss-her-already-so-much-i-hope-she-will-find-plenty-of-sticks-to-chew-up-there)
+- [Everyone meet Toast. Just adopted him.](https://news.puppy-snuggles.com/10752331/everyone-meet-toast-just-adopted-him)
+- [Pups waiting patiently to go outside](https://news.puppy-snuggles.com/10872111/pups-waiting-patiently-to-go-outside)
+- [Don&#39;t be fooled by those eyes... She&#39;s a big ball of mischief](https://news.puppy-snuggles.com/13738790/dont-be-fooled-by-those-eyes-shes-a-big-ball-of-mischief)
+- [Arthur](https://news.puppy-snuggles.com/8367059/arthur)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
