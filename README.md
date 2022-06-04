@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today, our Queenie did not wake up from spay anesthesia. She was celebrating 1 year and 1 month this exact day. We miss her already so much... I hope she will find plenty of sticks to chew up there...](https://news.puppy-snuggles.com/8224005/today-our-queenie-did-not-wake-up-from-spay-anesthesia-she-was-celebrating-1-year-and-1-month-this-exact-day-we-miss-her-already-so-much-i-hope-she-will-find-plenty-of-sticks-to-chew-up-there)
-- [Everyone meet Toast. Just adopted him.](https://news.puppy-snuggles.com/10752331/everyone-meet-toast-just-adopted-him)
-- [Pups waiting patiently to go outside](https://news.puppy-snuggles.com/10872111/pups-waiting-patiently-to-go-outside)
-- [Don&#39;t be fooled by those eyes... She&#39;s a big ball of mischief](https://news.puppy-snuggles.com/13738790/dont-be-fooled-by-those-eyes-shes-a-big-ball-of-mischief)
-- [Arthur](https://news.puppy-snuggles.com/8367059/arthur)
+- [Benny! :D](https://news.puppy-snuggles.com/13512330/benny-d)
+- [That&#39;s how a dog learns to blow a whistle](https://news.puppy-snuggles.com/10201405/thats-how-a-dog-learns-to-blow-a-whistle)
+- [Our puppy as 1 month old and now at 8 months old her name is Molly](https://news.puppy-snuggles.com/12138806/our-puppy-as-1-month-old-and-now-at-8-months-old-her-name-is-molly)
+- [Old boy](https://news.puppy-snuggles.com/17446905/old-boy)
+- [Derpy McNeckbeard, the love of my life](https://news.puppy-snuggles.com/12164216/derpy-mcneckbeard-the-love-of-my-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
