@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [What networking events/conferences/conventions do y&#39;all go to?](https://www.reddit.com/r/cscareerquestions/comments/v40pcw/what_networking_eventsconferencesconventions_do/)
 - [/u/joehx on Filter by transactions without a tag, or get back to old interface?](https://www.reddit.com/r/mintuit/comments/v1bu86/filter_by_transactions_without_a_tag_or_get_back/iawl1zt/)
 - [/u/joehx on Filter by transactions without a tag, or get back to old interface?](https://www.reddit.com/r/mintuit/comments/v1bu86/filter_by_transactions_without_a_tag_or_get_back/ialjhzx/)
 - [/u/joehx on CSS flexbox cheatsheet](https://www.reddit.com/r/webdev/comments/v14wjz/css_flexbox_cheatsheet/ialbuop/)
 - [/u/joehx on Someone didn&#39;t think these questions through.](https://www.reddit.com/r/mturk/comments/uxlm9i/someone_didnt_think_these_questions_through/ia0ksom/)
-- [Lazily Check the Body of an HttpServletResponse](https://www.reddit.com/r/u_joehx/comments/uxm7ir/lazily_check_the_body_of_an_httpservletresponse/)
 <!-- REDDIT:END -->
