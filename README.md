@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Benny! :D](https://news.puppy-snuggles.com/13512330/benny-d)
-- [That&#39;s how a dog learns to blow a whistle](https://news.puppy-snuggles.com/10201405/thats-how-a-dog-learns-to-blow-a-whistle)
-- [Our puppy as 1 month old and now at 8 months old her name is Molly](https://news.puppy-snuggles.com/12138806/our-puppy-as-1-month-old-and-now-at-8-months-old-her-name-is-molly)
-- [Old boy](https://news.puppy-snuggles.com/17446905/old-boy)
-- [Derpy McNeckbeard, the love of my life](https://news.puppy-snuggles.com/12164216/derpy-mcneckbeard-the-love-of-my-life)
+- [Is anyone else&#39;s dog just a bit...weird 😂](https://news.puppy-snuggles.com/14785461/is-anyone-elses-dog-just-a-bitweird)
+- [Throw. The. Stick.](https://news.puppy-snuggles.com/11808622/throw-the-stick)
+- [My dog, Bella, a therapy dog](https://news.puppy-snuggles.com/13434688/my-dog-bella-a-therapy-dog)
+- [Dogtor Strange](https://news.puppy-snuggles.com/12539251/dogtor-strange)
+- [It’s Bourbon’s 11th birthday. Happy birthday, Bourbs!](https://news.puppy-snuggles.com/8490761/its-bourbons-11th-birthday-happy-birthday-bourbs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
