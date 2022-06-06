@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is anyone else&#39;s dog just a bit...weird 😂](https://news.puppy-snuggles.com/14785461/is-anyone-elses-dog-just-a-bitweird)
-- [Throw. The. Stick.](https://news.puppy-snuggles.com/11808622/throw-the-stick)
-- [My dog, Bella, a therapy dog](https://news.puppy-snuggles.com/13434688/my-dog-bella-a-therapy-dog)
-- [Dogtor Strange](https://news.puppy-snuggles.com/12539251/dogtor-strange)
-- [It’s Bourbon’s 11th birthday. Happy birthday, Bourbs!](https://news.puppy-snuggles.com/8490761/its-bourbons-11th-birthday-happy-birthday-bourbs)
+- [Look at this cute little potato 🐶 🥔](https://news.puppy-snuggles.com/14779116/look-at-this-cute-little-potato)
+- [Surgery Makes For Sleepy Dogs](https://news.puppy-snuggles.com/10657189/surgery-makes-for-sleepy-dogs)
+- [The daily life of a postman](https://news.puppy-snuggles.com/17597507/the-daily-life-of-a-postman)
+- [Unlikely friendship between my dog and bird](https://news.puppy-snuggles.com/13351555/unlikely-friendship-between-my-dog-and-bird)
+- [My happiness has his first birthday today!! &lpar;the pictures are old&rpar;](https://news.puppy-snuggles.com/13833295/my-happiness-has-his-first-birthday-today-the-pictures-are-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
