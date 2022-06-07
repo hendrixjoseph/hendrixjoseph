@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at this cute little potato 🐶 🥔](https://news.puppy-snuggles.com/14779116/look-at-this-cute-little-potato)
-- [Surgery Makes For Sleepy Dogs](https://news.puppy-snuggles.com/10657189/surgery-makes-for-sleepy-dogs)
-- [The daily life of a postman](https://news.puppy-snuggles.com/17597507/the-daily-life-of-a-postman)
-- [Unlikely friendship between my dog and bird](https://news.puppy-snuggles.com/13351555/unlikely-friendship-between-my-dog-and-bird)
-- [My happiness has his first birthday today!! &lpar;the pictures are old&rpar;](https://news.puppy-snuggles.com/13833295/my-happiness-has-his-first-birthday-today-the-pictures-are-old)
+- [My children love each other very much](https://news.puppy-snuggles.com/7339837/my-children-love-each-other-very-much)
+- [Archie has no master, Archie is a free elf.](https://news.puppy-snuggles.com/9581403/archie-has-no-master-archie-is-a-free-elf)
+- [lol hope this makes some one days](https://news.puppy-snuggles.com/10673712/lol-hope-this-makes-some-one-days)
+- [Hey guys, My sweet dog TYSON passed away today, i thought I should share it. He was my only support. He was 13 years old.](https://news.puppy-snuggles.com/17626963/hey-guys-my-sweet-dog-tyson-passed-away-today-i-thought-i-should-share-it-he-was-my-only-support-he-was-13-years-old)
+- [Today I said goodbye to my best friend ever! We had 16 wonderful years with this amazing little guy! He saw me through elementary school, high school and university. Always down for a run and play! Love you Max. Rest easy ❤](https://news.puppy-snuggles.com/10184937/today-i-said-goodbye-to-my-best-friend-ever-we-had-16-wonderful-years-with-this-amazing-little-guy-he-saw-me-through-elementary-school-high-school-and-university-always-down-for-a-run-and-play-love-you-max-rest-easy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
