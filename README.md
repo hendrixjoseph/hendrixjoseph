@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [park day](https://news.puppy-snuggles.com/14845281/park-day)
-- [Happy 1st birthday, Acorn](https://news.puppy-snuggles.com/14735516/happy-1st-birthday-acorn)
-- [We just adopted a new good boy, Meet Oliver](https://news.puppy-snuggles.com/17698016/we-just-adopted-a-new-good-boy-meet-oliver)
-- [My best boy in the Colorado mountains this past fall](https://news.puppy-snuggles.com/12198092/my-best-boy-in-the-colorado-mountains-this-past-fall)
-- [Don&#39;t Forget To Nap, Its Good For You!](https://news.puppy-snuggles.com/8714850/dont-forget-to-nap-its-good-for-you)
+- [Shy but pretty doggy.](https://news.puppy-snuggles.com/5417975/shy-but-pretty-doggy)
+- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
+- [the one on the right of the screen, I call mister doggy. Loook at them](https://news.puppy-snuggles.com/5883708/the-one-on-the-right-of-the-screen-i-call-mister-doggy-loook-at-them)
+- [What are you doing with that stupid phone now you big oaf of a human?](https://news.puppy-snuggles.com/11478086/what-are-you-doing-with-that-stupid-phone-now-you-big-oaf-of-a-human)
+- [My wife had a rough day at work and the boys could tell.](https://news.puppy-snuggles.com/15086280/my-wife-had-a-rough-day-at-work-and-the-boys-could-tell)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
