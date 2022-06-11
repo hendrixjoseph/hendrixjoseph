@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shy but pretty doggy.](https://news.puppy-snuggles.com/5417975/shy-but-pretty-doggy)
-- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
-- [the one on the right of the screen, I call mister doggy. Loook at them](https://news.puppy-snuggles.com/5883708/the-one-on-the-right-of-the-screen-i-call-mister-doggy-loook-at-them)
-- [What are you doing with that stupid phone now you big oaf of a human?](https://news.puppy-snuggles.com/11478086/what-are-you-doing-with-that-stupid-phone-now-you-big-oaf-of-a-human)
-- [My wife had a rough day at work and the boys could tell.](https://news.puppy-snuggles.com/15086280/my-wife-had-a-rough-day-at-work-and-the-boys-could-tell)
+- [Send your derp moments too](https://news.puppy-snuggles.com/8897271/send-your-derp-moments-too)
+- [Every time new dogs become best friends a rainbow appears 🌈🌈](https://news.puppy-snuggles.com/11786019/every-time-new-dogs-become-best-friends-a-rainbow-appears)
+- [Can’t beat that fox red face! Black lab Zeus seems concerned but neither of us sure what about so all is good](https://news.puppy-snuggles.com/14232376/cant-beat-that-fox-red-face-black-lab-zeus-seems-concerned-but-neither-of-us-sure-what-about-so-all-is-good)
+- [Aria is trying to entice me towards the treat cabinet &lpar;and with a smile like that, I&#39;m feeling tempted&rpar; &amp;amp;lt;3](https://news.puppy-snuggles.com/13858501/aria-is-trying-to-entice-me-towards-the-treat-cabinet-and-with-a-smile-like-that-im-feeling-tempted-lt3)
+- [Out for our evening walk.](https://news.puppy-snuggles.com/8015250/out-for-our-evening-walk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
