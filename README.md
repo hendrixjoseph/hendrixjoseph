@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Send your derp moments too](https://news.puppy-snuggles.com/8897271/send-your-derp-moments-too)
-- [Every time new dogs become best friends a rainbow appears 🌈🌈](https://news.puppy-snuggles.com/11786019/every-time-new-dogs-become-best-friends-a-rainbow-appears)
-- [Can’t beat that fox red face! Black lab Zeus seems concerned but neither of us sure what about so all is good](https://news.puppy-snuggles.com/14232376/cant-beat-that-fox-red-face-black-lab-zeus-seems-concerned-but-neither-of-us-sure-what-about-so-all-is-good)
-- [Aria is trying to entice me towards the treat cabinet &lpar;and with a smile like that, I&#39;m feeling tempted&rpar; &amp;amp;lt;3](https://news.puppy-snuggles.com/13858501/aria-is-trying-to-entice-me-towards-the-treat-cabinet-and-with-a-smile-like-that-im-feeling-tempted-lt3)
-- [Out for our evening walk.](https://news.puppy-snuggles.com/8015250/out-for-our-evening-walk)
+- [We got our first dog today! Love her so much already!](https://news.puppy-snuggles.com/5753425/we-got-our-first-dog-today-love-her-so-much-already)
+- [Just Drew a Puppy playing with a Ladybug! hope you guys like it!](https://news.puppy-snuggles.com/7830623/just-drew-a-puppy-playing-with-a-ladybug-hope-you-guys-like-it)
+- [Gotta be the happiest boy on Earth!](https://news.puppy-snuggles.com/10673710/gotta-be-the-happiest-boy-on-earth)
+- [Sky](https://news.puppy-snuggles.com/11996162/sky)
+- [Slurp!](https://news.puppy-snuggles.com/8695142/slurp)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
