@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We got our first dog today! Love her so much already!](https://news.puppy-snuggles.com/5753425/we-got-our-first-dog-today-love-her-so-much-already)
-- [Just Drew a Puppy playing with a Ladybug! hope you guys like it!](https://news.puppy-snuggles.com/7830623/just-drew-a-puppy-playing-with-a-ladybug-hope-you-guys-like-it)
-- [Gotta be the happiest boy on Earth!](https://news.puppy-snuggles.com/10673710/gotta-be-the-happiest-boy-on-earth)
-- [Sky](https://news.puppy-snuggles.com/11996162/sky)
-- [Slurp!](https://news.puppy-snuggles.com/8695142/slurp)
+- [Rusty smilin’ on campus](https://news.puppy-snuggles.com/8996908/rusty-smilin-on-campus)
+- [Lucy the diva dog getting some sun](https://news.puppy-snuggles.com/13549518/lucy-the-diva-dog-getting-some-sun)
+- [Deep thoughts with his neck rolls out](https://news.puppy-snuggles.com/14460412/deep-thoughts-with-his-neck-rolls-out)
+- [Enjoying 🐶🐶](https://news.puppy-snuggles.com/11133824/enjoying)
+- [Milo Appreciation post](https://news.puppy-snuggles.com/13276735/milo-appreciation-post)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
