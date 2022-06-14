@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rusty smilin’ on campus](https://news.puppy-snuggles.com/8996908/rusty-smilin-on-campus)
-- [Lucy the diva dog getting some sun](https://news.puppy-snuggles.com/13549518/lucy-the-diva-dog-getting-some-sun)
-- [Deep thoughts with his neck rolls out](https://news.puppy-snuggles.com/14460412/deep-thoughts-with-his-neck-rolls-out)
-- [Enjoying 🐶🐶](https://news.puppy-snuggles.com/11133824/enjoying)
-- [Milo Appreciation post](https://news.puppy-snuggles.com/13276735/milo-appreciation-post)
+- [Foundation in memory of Braintree K9 will help train, equip police dogs](https://news.puppy-snuggles.com/17862052/foundation-in-memory-of-braintree-k9-will-help-train-equip-police-dogs)
+- [Here’s a pic of two happy pups to brighten ur day &amp;amp;lt;3](https://news.puppy-snuggles.com/12188945/heres-a-pic-of-two-happy-pups-to-brighten-ur-day-lt3)
+- [Would like everyone to meet Berry my little fluff bum](https://news.puppy-snuggles.com/12565090/would-like-everyone-to-meet-berry-my-little-fluff-bum)
+- [She is just as excited for Christmas as I am](https://news.puppy-snuggles.com/11876307/she-is-just-as-excited-for-christmas-as-i-am)
+- [Olivia hugging her little duck! Such a cutie!](https://news.puppy-snuggles.com/8871123/olivia-hugging-her-little-duck-such-a-cutie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
