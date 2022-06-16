@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Splash splash splash](https://news.puppy-snuggles.com/16706248/splash-splash-splash)
-- [My new baby! Please suggest name ideas for her. Would like something that evokes feelings of winter ❄️](https://news.puppy-snuggles.com/16722697/my-new-baby-please-suggest-name-ideas-for-her-would-like-something-that-evokes-feelings-of-winter)
-- [Hosting this cutie for a few days..](https://news.puppy-snuggles.com/16749606/hosting-this-cutie-for-a-few-days)
-- [Definitely not an impostor or anything, seems totally legit](https://news.puppy-snuggles.com/16749605/definitely-not-an-impostor-or-anything-seems-totally-legit)
-- [The thrill of the chase!](https://news.puppy-snuggles.com/16759016/the-thrill-of-the-chase)
+- [Finally found an active community with a good daily dose of puppy pictures. So here are mine from today](https://news.puppy-snuggles.com/11388066/finally-found-an-active-community-with-a-good-daily-dose-of-puppy-pictures-so-here-are-mine-from-today)
+- [New puppy panda](https://news.puppy-snuggles.com/8127101/new-puppy-panda)
+- [Rate my dog out of 10](https://news.puppy-snuggles.com/14601536/rate-my-dog-out-of-10)
+- [Doug is too shy to smile but says hello anyway😁](https://news.puppy-snuggles.com/14813487/doug-is-too-shy-to-smile-but-says-hello-anyway)
+- [This handsome boy would like to know where all the ladies are &amp;amp;lt;3](https://news.puppy-snuggles.com/11676123/this-handsome-boy-would-like-to-know-where-all-the-ladies-are-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
