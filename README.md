@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Finally found an active community with a good daily dose of puppy pictures. So here are mine from today](https://news.puppy-snuggles.com/11388066/finally-found-an-active-community-with-a-good-daily-dose-of-puppy-pictures-so-here-are-mine-from-today)
-- [New puppy panda](https://news.puppy-snuggles.com/8127101/new-puppy-panda)
-- [Rate my dog out of 10](https://news.puppy-snuggles.com/14601536/rate-my-dog-out-of-10)
-- [Doug is too shy to smile but says hello anyway😁](https://news.puppy-snuggles.com/14813487/doug-is-too-shy-to-smile-but-says-hello-anyway)
-- [This handsome boy would like to know where all the ladies are &amp;amp;lt;3](https://news.puppy-snuggles.com/11676123/this-handsome-boy-would-like-to-know-where-all-the-ladies-are-lt3)
+- [Side Eye](https://news.puppy-snuggles.com/12293512/side-eye)
+- [how is this comfy???](https://news.puppy-snuggles.com/17966643/how-is-this-comfy)
+- [Whenever he gets excited, he looks like he has no teeth](https://news.puppy-snuggles.com/5941639/whenever-he-gets-excited-he-looks-like-he-has-no-teeth)
+- [I anticipated a failed attempt at sailing with my neurotic little monster dog, but he had a GREAT time and didn’t even once try to drown himself! What a win!](https://news.puppy-snuggles.com/8359165/i-anticipated-a-failed-attempt-at-sailing-with-my-neurotic-little-monster-dog-but-he-had-a-great-time-and-didnt-even-once-try-to-drown-himself-what-a-win)
+- [Anyone else&#39;s dog play maybemaybemaybe on whether they actually want to be let inside or not? Before this he was running away when I approached the door.](https://news.puppy-snuggles.com/11177914/anyone-elses-dog-play-maybemaybemaybe-on-whether-they-actually-want-to-be-let-inside-or-not-before-this-he-was-running-away-when-i-approached-the-door)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
