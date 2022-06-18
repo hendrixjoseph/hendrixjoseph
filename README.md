@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Side Eye](https://news.puppy-snuggles.com/12293512/side-eye)
-- [how is this comfy???](https://news.puppy-snuggles.com/17966643/how-is-this-comfy)
-- [Whenever he gets excited, he looks like he has no teeth](https://news.puppy-snuggles.com/5941639/whenever-he-gets-excited-he-looks-like-he-has-no-teeth)
-- [I anticipated a failed attempt at sailing with my neurotic little monster dog, but he had a GREAT time and didn’t even once try to drown himself! What a win!](https://news.puppy-snuggles.com/8359165/i-anticipated-a-failed-attempt-at-sailing-with-my-neurotic-little-monster-dog-but-he-had-a-great-time-and-didnt-even-once-try-to-drown-himself-what-a-win)
-- [Anyone else&#39;s dog play maybemaybemaybe on whether they actually want to be let inside or not? Before this he was running away when I approached the door.](https://news.puppy-snuggles.com/11177914/anyone-elses-dog-play-maybemaybemaybe-on-whether-they-actually-want-to-be-let-inside-or-not-before-this-he-was-running-away-when-i-approached-the-door)
+- [Bowzer loves his blankets preferably with pillows](https://news.puppy-snuggles.com/12120623/bowzer-loves-his-blankets-preferably-with-pillows)
+- [No coal for Nugget. He’s the nicest boi.](https://news.puppy-snuggles.com/12556146/no-coal-for-nugget-hes-the-nicest-boi)
+- [The Sweet Miss Paisley](https://news.puppy-snuggles.com/18001976/the-sweet-miss-paisley)
+- [I have found this dog. Does nyone knows what breed he is?](https://news.puppy-snuggles.com/11658816/i-have-found-this-dog-does-nyone-knows-what-breed-he-is)
+- [Two dogs rescued from area scorched by Cache fire in Lake County](https://news.puppy-snuggles.com/8651897/two-dogs-rescued-from-area-scorched-by-cache-fire-in-lake-county)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
