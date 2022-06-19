@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bowzer loves his blankets preferably with pillows](https://news.puppy-snuggles.com/12120623/bowzer-loves-his-blankets-preferably-with-pillows)
-- [No coal for Nugget. He’s the nicest boi.](https://news.puppy-snuggles.com/12556146/no-coal-for-nugget-hes-the-nicest-boi)
-- [The Sweet Miss Paisley](https://news.puppy-snuggles.com/18001976/the-sweet-miss-paisley)
-- [I have found this dog. Does nyone knows what breed he is?](https://news.puppy-snuggles.com/11658816/i-have-found-this-dog-does-nyone-knows-what-breed-he-is)
-- [Two dogs rescued from area scorched by Cache fire in Lake County](https://news.puppy-snuggles.com/8651897/two-dogs-rescued-from-area-scorched-by-cache-fire-in-lake-county)
+- [Coco says hello 🦊☺️](https://news.puppy-snuggles.com/18028941/coco-says-hello)
+- [He’s an old dog now, but he still has the heart of a lion and loves to walk](https://news.puppy-snuggles.com/7611006/hes-an-old-dog-now-but-he-still-has-the-heart-of-a-lion-and-loves-to-walk)
+- [Cute dog video](https://news.puppy-snuggles.com/7744339/cute-dog-video)
+- [A Cutie hanging out with a fan](https://news.puppy-snuggles.com/18028939/a-cutie-hanging-out-with-a-fan)
+- [This sweet girl has her first frisbee competition tomorrow! Wish her luck!](https://news.puppy-snuggles.com/18028936/this-sweet-girl-has-her-first-frisbee-competition-tomorrow-wish-her-luck)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
