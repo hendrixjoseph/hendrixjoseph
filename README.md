@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Coco says hello 🦊☺️](https://news.puppy-snuggles.com/18028941/coco-says-hello)
-- [He’s an old dog now, but he still has the heart of a lion and loves to walk](https://news.puppy-snuggles.com/7611006/hes-an-old-dog-now-but-he-still-has-the-heart-of-a-lion-and-loves-to-walk)
-- [Cute dog video](https://news.puppy-snuggles.com/7744339/cute-dog-video)
-- [A Cutie hanging out with a fan](https://news.puppy-snuggles.com/18028939/a-cutie-hanging-out-with-a-fan)
-- [This sweet girl has her first frisbee competition tomorrow! Wish her luck!](https://news.puppy-snuggles.com/18028936/this-sweet-girl-has-her-first-frisbee-competition-tomorrow-wish-her-luck)
+- [Dogs keep seeking Ukrainian Soldiers for safety](https://news.puppy-snuggles.com/14946279/dogs-keep-seeking-ukrainian-soldiers-for-safety)
+- [Doctor Doctor](https://news.puppy-snuggles.com/11583647/doctor-doctor)
+- [Singer Jaheim arrested for animal cruelty, accused of starving 15 dogs; 1 dead](https://news.puppy-snuggles.com/9314351/singer-jaheim-arrested-for-animal-cruelty-accused-of-starving-15-dogs-1-dead)
+- [Finn.](https://news.puppy-snuggles.com/13013994/finn)
+- [He can smell u](https://news.puppy-snuggles.com/14103993/he-can-smell-u)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
