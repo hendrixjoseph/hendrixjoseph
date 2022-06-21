@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs keep seeking Ukrainian Soldiers for safety](https://news.puppy-snuggles.com/14946279/dogs-keep-seeking-ukrainian-soldiers-for-safety)
-- [Doctor Doctor](https://news.puppy-snuggles.com/11583647/doctor-doctor)
-- [Singer Jaheim arrested for animal cruelty, accused of starving 15 dogs; 1 dead](https://news.puppy-snuggles.com/9314351/singer-jaheim-arrested-for-animal-cruelty-accused-of-starving-15-dogs-1-dead)
-- [Finn.](https://news.puppy-snuggles.com/13013994/finn)
-- [He can smell u](https://news.puppy-snuggles.com/14103993/he-can-smell-u)
+- [Is he a good boy?](https://news.puppy-snuggles.com/10585742/is-he-a-good-boy)
+- [What are you doing with that stupid phone now you big oaf of a human?](https://news.puppy-snuggles.com/11478086/what-are-you-doing-with-that-stupid-phone-now-you-big-oaf-of-a-human)
+- [Moved from MI to FL during the winter. This was just days into our new home. He LOVES the sun!](https://news.puppy-snuggles.com/18078025/moved-from-mi-to-fl-during-the-winter-this-was-just-days-into-our-new-home-he-loves-the-sun)
+- [Dog Couple Arguing](https://news.puppy-snuggles.com/13948321/dog-couple-arguing)
+- [My beautiful marshmallow - passed away peacefully in our home last night, my first and only puppy love.](https://news.puppy-snuggles.com/11289633/my-beautiful-marshmallow-passed-away-peacefully-in-our-home-last-night-my-first-and-only-puppy-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
