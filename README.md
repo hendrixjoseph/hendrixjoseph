@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Wednesday, June 22, 2022](https://www.reddit.com/r/financialindependence/comments/vi0qx0/daily_fi_discussion_thread_wednesday_june_22_2022/idasnm2/)
 - [/u/joehx on How much do you make with your blog? And how long it took?](https://www.reddit.com/r/juststart/comments/vey17l/how_much_do_you_make_with_your_blog_and_how_long/icudb0a/)
 - [/u/joehx on Parents of Reddit, what&#39;s the funniest thing your kid has said/done?](https://www.reddit.com/r/AskReddit/comments/vaw9bu/parents_of_reddit_whats_the_funniest_thing_your/ic4y6pq/)
 - [/u/joehx on People who read the &quot;terms and conditions,&quot; what&#39;s something that everyone should know?](https://www.reddit.com/r/AskReddit/comments/vaw9er/people_who_read_the_terms_and_conditions_whats/ic4xwam/)
 - [/u/joehx on What’s the dirty little secret you learned once you got in?](https://www.reddit.com/r/cscareerquestions/comments/v8bqj6/whats_the_dirty_little_secret_you_learned_once/ibqnyjp/)
-- [What networking events/conferences/conventions do y&#39;all go to?](https://www.reddit.com/r/cscareerquestions/comments/v40pcw/what_networking_eventsconferencesconventions_do/)
 <!-- REDDIT:END -->
