@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can I have your like?](https://news.puppy-snuggles.com/8800518/can-i-have-your-like)
-- [Sorry for the rant.](https://news.puppy-snuggles.com/11407525/sorry-for-the-rant)
-- [How Izzy used to wait for my wife to get home every day.](https://news.puppy-snuggles.com/7069074/how-izzy-used-to-wait-for-my-wife-to-get-home-every-day)
-- [he is truly the happiest boy](https://news.puppy-snuggles.com/10691484/he-is-truly-the-happiest-boy)
-- [Kisses!](https://news.puppy-snuggles.com/15299297/kisses)
+- [This is Elsa’s signature pose when she’s tired or wants to play!](https://news.puppy-snuggles.com/12938551/this-is-elsas-signature-pose-when-shes-tired-or-wants-to-play)
+- [I love it when his ear does the thing](https://news.puppy-snuggles.com/13972471/i-love-it-when-his-ear-does-the-thing)
+- [Timing is vital : &amp;amp;quot;You must know when and where to bark&amp;amp;quot;](https://news.puppy-snuggles.com/18181249/timing-is-vital-quotyou-must-know-when-and-where-to-barkquot)
+- [This dog &lpar;not mine&rpar; whose photo i took in the elevator](https://news.puppy-snuggles.com/11961787/this-dog-not-mine-whose-photo-i-took-in-the-elevator)
+- [Oliver is my best pal. I love this old boy.](https://news.puppy-snuggles.com/7958504/oliver-is-my-best-pal-i-love-this-old-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
