@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Elsa’s signature pose when she’s tired or wants to play!](https://news.puppy-snuggles.com/12938551/this-is-elsas-signature-pose-when-shes-tired-or-wants-to-play)
-- [I love it when his ear does the thing](https://news.puppy-snuggles.com/13972471/i-love-it-when-his-ear-does-the-thing)
-- [Timing is vital : &amp;amp;quot;You must know when and where to bark&amp;amp;quot;](https://news.puppy-snuggles.com/18181249/timing-is-vital-quotyou-must-know-when-and-where-to-barkquot)
-- [This dog &lpar;not mine&rpar; whose photo i took in the elevator](https://news.puppy-snuggles.com/11961787/this-dog-not-mine-whose-photo-i-took-in-the-elevator)
-- [Oliver is my best pal. I love this old boy.](https://news.puppy-snuggles.com/7958504/oliver-is-my-best-pal-i-love-this-old-boy)
+- [Milk dud would like to say hi 🤎](https://news.puppy-snuggles.com/9193918/milk-dud-would-like-to-say-hi)
+- [My grandma&#39;s dog loves to lay on her back](https://news.puppy-snuggles.com/8059062/my-grandmas-dog-loves-to-lay-on-her-back)
+- [Holiday charity photos for the local shelter. Black lab mix.](https://news.puppy-snuggles.com/12816050/holiday-charity-photos-for-the-local-shelter-black-lab-mix)
+- [Koa is serious woofer.](https://news.puppy-snuggles.com/12027602/koa-is-serious-woofer)
+- [We passed our MT &lpar;mantrailer&rpar; title test and Arthur did a bit of celebrating](https://news.puppy-snuggles.com/6570027/we-passed-our-mt-mantrailer-title-test-and-arthur-did-a-bit-of-celebrating)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
