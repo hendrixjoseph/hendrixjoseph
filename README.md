@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Milk dud would like to say hi 🤎](https://news.puppy-snuggles.com/9193918/milk-dud-would-like-to-say-hi)
-- [My grandma&#39;s dog loves to lay on her back](https://news.puppy-snuggles.com/8059062/my-grandmas-dog-loves-to-lay-on-her-back)
-- [Holiday charity photos for the local shelter. Black lab mix.](https://news.puppy-snuggles.com/12816050/holiday-charity-photos-for-the-local-shelter-black-lab-mix)
-- [Koa is serious woofer.](https://news.puppy-snuggles.com/12027602/koa-is-serious-woofer)
-- [We passed our MT &lpar;mantrailer&rpar; title test and Arthur did a bit of celebrating](https://news.puppy-snuggles.com/6570027/we-passed-our-mt-mantrailer-title-test-and-arthur-did-a-bit-of-celebrating)
+- [Buzz’s first time seeing snow! &lpar;Beagle/English Bulldog&rpar;](https://news.puppy-snuggles.com/13180837/buzzs-first-time-seeing-snow-beagleenglish-bulldog)
+- [fought with the table. the table won](https://news.puppy-snuggles.com/12956419/fought-with-the-table-the-table-won)
+- [Happy birthday to my son Stitch](https://news.puppy-snuggles.com/7750348/happy-birthday-to-my-son-stitch)
+- [Spring look](https://news.puppy-snuggles.com/15323993/spring-look)
+- [Silly Shadow](https://news.puppy-snuggles.com/10058192/silly-shadow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
