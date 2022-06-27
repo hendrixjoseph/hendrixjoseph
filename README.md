@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Buzz’s first time seeing snow! &lpar;Beagle/English Bulldog&rpar;](https://news.puppy-snuggles.com/13180837/buzzs-first-time-seeing-snow-beagleenglish-bulldog)
-- [fought with the table. the table won](https://news.puppy-snuggles.com/12956419/fought-with-the-table-the-table-won)
-- [Happy birthday to my son Stitch](https://news.puppy-snuggles.com/7750348/happy-birthday-to-my-son-stitch)
-- [Spring look](https://news.puppy-snuggles.com/15323993/spring-look)
-- [Silly Shadow](https://news.puppy-snuggles.com/10058192/silly-shadow)
+- [He&#39;s so proud of himself. He climbed a ladder up to the top bunk to be with his boy.](https://news.puppy-snuggles.com/7384083/hes-so-proud-of-himself-he-climbed-a-ladder-up-to-the-top-bunk-to-be-with-his-boy)
+- [My little adventure buddy](https://news.puppy-snuggles.com/12588546/my-little-adventure-buddy)
+- [&amp;amp;quot;Alright... I let you put this stupid hat on me and take a picture. There better be a treat in it for me or your shoes are going to regretit later...&amp;amp;quot;](https://news.puppy-snuggles.com/7571376/quotalright-i-let-you-put-this-stupid-hat-on-me-and-take-a-picture-there-better-be-a-treat-in-it-for-me-or-your-shoes-are-going-to-regretit-laterquot)
+- [It&#39;s Sakumaru&#39;s 4th birthday](https://news.puppy-snuggles.com/12293516/its-sakumarus-4th-birthday)
+- [My ears are starting to stand up !](https://news.puppy-snuggles.com/18252823/my-ears-are-starting-to-stand-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
