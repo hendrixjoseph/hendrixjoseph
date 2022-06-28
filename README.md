@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&#39;s so proud of himself. He climbed a ladder up to the top bunk to be with his boy.](https://news.puppy-snuggles.com/7384083/hes-so-proud-of-himself-he-climbed-a-ladder-up-to-the-top-bunk-to-be-with-his-boy)
-- [My little adventure buddy](https://news.puppy-snuggles.com/12588546/my-little-adventure-buddy)
-- [&amp;amp;quot;Alright... I let you put this stupid hat on me and take a picture. There better be a treat in it for me or your shoes are going to regretit later...&amp;amp;quot;](https://news.puppy-snuggles.com/7571376/quotalright-i-let-you-put-this-stupid-hat-on-me-and-take-a-picture-there-better-be-a-treat-in-it-for-me-or-your-shoes-are-going-to-regretit-laterquot)
-- [It&#39;s Sakumaru&#39;s 4th birthday](https://news.puppy-snuggles.com/12293516/its-sakumarus-4th-birthday)
-- [My ears are starting to stand up !](https://news.puppy-snuggles.com/18252823/my-ears-are-starting-to-stand-up)
+- [I wanted to share this demonic picture of my dog… she’s actually a sweetheart.](https://news.puppy-snuggles.com/8465369/i-wanted-to-share-this-demonic-picture-of-my-dog-shes-actually-a-sweetheart)
+- [My baby boy out in the snow this winter!](https://news.puppy-snuggles.com/12379326/my-baby-boy-out-in-the-snow-this-winter)
+- [My sweet little go everywhere with me baby.](https://news.puppy-snuggles.com/7548327/my-sweet-little-go-everywhere-with-me-baby)
+- [Waiting to know if my best friend will be ok.](https://news.puppy-snuggles.com/10064121/waiting-to-know-if-my-best-friend-will-be-ok)
+- [Why do dogs sit like this](https://news.puppy-snuggles.com/9099298/why-do-dogs-sit-like-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
