@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I wanted to share this demonic picture of my dog… she’s actually a sweetheart.](https://news.puppy-snuggles.com/8465369/i-wanted-to-share-this-demonic-picture-of-my-dog-shes-actually-a-sweetheart)
-- [My baby boy out in the snow this winter!](https://news.puppy-snuggles.com/12379326/my-baby-boy-out-in-the-snow-this-winter)
-- [My sweet little go everywhere with me baby.](https://news.puppy-snuggles.com/7548327/my-sweet-little-go-everywhere-with-me-baby)
-- [Waiting to know if my best friend will be ok.](https://news.puppy-snuggles.com/10064121/waiting-to-know-if-my-best-friend-will-be-ok)
-- [Why do dogs sit like this](https://news.puppy-snuggles.com/9099298/why-do-dogs-sit-like-this)
+- [Visiting Taal volcano, Philippines](https://news.puppy-snuggles.com/10045115/visiting-taal-volcano-philippines)
+- [Basket of joy](https://news.puppy-snuggles.com/12836151/basket-of-joy)
+- [Rest Easy Jaky 13 YO Good Boi](https://news.puppy-snuggles.com/10058193/rest-easy-jaky-13-yo-good-boi)
+- [Jaxson](https://news.puppy-snuggles.com/12286998/jaxson)
+- [Winston](https://news.puppy-snuggles.com/18085469/winston)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
