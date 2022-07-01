@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Most days I&#39;m just a pillow to him 🙄](https://news.puppy-snuggles.com/18181245/most-days-im-just-a-pillow-to-him)
-- [She’s been full of smiles since she was a puppy 😁](https://news.puppy-snuggles.com/10594467/shes-been-full-of-smiles-since-she-was-a-puppy)
-- [That smile when you finally find your forever home!](https://news.puppy-snuggles.com/17975723/that-smile-when-you-finally-find-your-forever-home)
-- [Doggo vs stick!](https://news.puppy-snuggles.com/7915221/doggo-vs-stick)
-- [My six pack begging for my morning toast](https://news.puppy-snuggles.com/8249893/my-six-pack-begging-for-my-morning-toast)
+- [Got a new game and our pup is VERY excited to play it with us](https://news.puppy-snuggles.com/9034372/got-a-new-game-and-our-pup-is-very-excited-to-play-it-with-us)
+- [Tiki is a good boy!](https://news.puppy-snuggles.com/9006457/tiki-is-a-good-boy)
+- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
+- [New puppy journey after my ol doggo passed beginning of summer. This is Daren! First puppy, wish me luck!](https://news.puppy-snuggles.com/8986818/new-puppy-journey-after-my-ol-doggo-passed-beginning-of-summer-this-is-daren-first-puppy-wish-me-luck)
+- [Max turned 6 today! Time flies!!](https://news.puppy-snuggles.com/8986816/max-turned-6-today-time-flies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
