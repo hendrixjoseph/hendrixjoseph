@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Got a new game and our pup is VERY excited to play it with us](https://news.puppy-snuggles.com/9034372/got-a-new-game-and-our-pup-is-very-excited-to-play-it-with-us)
-- [Tiki is a good boy!](https://news.puppy-snuggles.com/9006457/tiki-is-a-good-boy)
-- [Aubrey got her cone off!](https://news.puppy-snuggles.com/9006455/aubrey-got-her-cone-off)
-- [New puppy journey after my ol doggo passed beginning of summer. This is Daren! First puppy, wish me luck!](https://news.puppy-snuggles.com/8986818/new-puppy-journey-after-my-ol-doggo-passed-beginning-of-summer-this-is-daren-first-puppy-wish-me-luck)
-- [Max turned 6 today! Time flies!!](https://news.puppy-snuggles.com/8986816/max-turned-6-today-time-flies)
+- [Forgot my wallet and came back to find her in a hole](https://news.puppy-snuggles.com/9062697/forgot-my-wallet-and-came-back-to-find-her-in-a-hole)
+- [My boy Moss, giving his best smile.](https://news.puppy-snuggles.com/9328689/my-boy-moss-giving-his-best-smile)
+- [Welp…can’t do anything. My pups are snoogled in my lap. Cancel my appointments. Bring me all my meals.](https://news.puppy-snuggles.com/18445550/welpcant-do-anything-my-pups-are-snoogled-in-my-lap-cancel-my-appointments-bring-me-all-my-meals)
+- [Meet Willow our Rescue baby - she was born in a sewer in Romania and she is 6 months old. 🤍](https://news.puppy-snuggles.com/14853114/meet-willow-our-rescue-baby-she-was-born-in-a-sewer-in-romania-and-she-is-6-months-old)
+- [Well!! what do you guys think of him?](https://news.puppy-snuggles.com/11018847/well-what-do-you-guys-think-of-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
