@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Paint me like one of your French doggies”](https://news.puppy-snuggles.com/18472736/paint-me-like-one-of-your-french-doggies)
-- [In the land of chasing rabbits &amp;amp;lt;3](https://news.puppy-snuggles.com/13359118/in-the-land-of-chasing-rabbits-lt3)
-- [The ones that keep me going😍](https://news.puppy-snuggles.com/10700050/the-ones-that-keep-me-going)
-- [I draw portraits of people&#39;s dogs! Just a few recent ones.](https://news.puppy-snuggles.com/10439991/i-draw-portraits-of-peoples-dogs-just-a-few-recent-ones)
-- [Saint Mia the Flatulent, patron Saint of Escape Artists, Lizard Chasers, and Garden Diggers everywhere](https://news.puppy-snuggles.com/9500292/saint-mia-the-flatulent-patron-saint-of-escape-artists-lizard-chasers-and-garden-diggers-everywhere)
+- [Rate my dog out of 10](https://news.puppy-snuggles.com/14601536/rate-my-dog-out-of-10)
+- [Weird obsession of using our dog as a coffee table](https://news.puppy-snuggles.com/18491907/weird-obsession-of-using-our-dog-as-a-coffee-table)
+- [When my dad went outside without taking her.](https://news.puppy-snuggles.com/11341926/when-my-dad-went-outside-without-taking-her)
+- [Murph goes for comfort over aesthetics. Be like Murph. 🐶 💤](https://news.puppy-snuggles.com/8195565/murph-goes-for-comfort-over-aesthetics-be-like-murph)
+- [Employee of the month. Works so hard for his everyday treats.](https://news.puppy-snuggles.com/9852852/employee-of-the-month-works-so-hard-for-his-everyday-treats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
