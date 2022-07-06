@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New addition to the family!](https://news.puppy-snuggles.com/11395073/new-addition-to-the-family)
-- [My half husky puppy.](https://news.puppy-snuggles.com/7364890/my-half-husky-puppy)
-- [viktor has caught bacon](https://news.puppy-snuggles.com/13874301/viktor-has-caught-bacon)
-- [family&rpar;](https://news.puppy-snuggles.com/7069069/family)
-- [Hecking charming pupper](https://news.puppy-snuggles.com/7571375/hecking-charming-pupper)
+- [I&#39;ve got friends](https://news.puppy-snuggles.com/18265440/ive-got-friends)
+- [Our 3-Legged boy and our 1 year old are best friends.](https://news.puppy-snuggles.com/18549869/our-3-legged-boy-and-our-1-year-old-are-best-friends)
+- [My boy Haku enjoying fall](https://news.puppy-snuggles.com/11549055/my-boy-haku-enjoying-fall)
+- [Days can be hard, people can be mean. But coming back at night to your dog fixes all of it.](https://news.puppy-snuggles.com/18349335/days-can-be-hard-people-can-be-mean-but-coming-back-at-night-to-your-dog-fixes-all-of-it)
+- [Here is a sad post, here was my dog Lola, she sadly passed on November 27th, 2021, 4 days before her 11th birthday, cancer sucks.](https://news.puppy-snuggles.com/11876305/here-is-a-sad-post-here-was-my-dog-lola-she-sadly-passed-on-november-27th-2021-4-days-before-her-11th-birthday-cancer-sucks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
