@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&#39;ve got friends](https://news.puppy-snuggles.com/18265440/ive-got-friends)
-- [Our 3-Legged boy and our 1 year old are best friends.](https://news.puppy-snuggles.com/18549869/our-3-legged-boy-and-our-1-year-old-are-best-friends)
-- [My boy Haku enjoying fall](https://news.puppy-snuggles.com/11549055/my-boy-haku-enjoying-fall)
-- [Days can be hard, people can be mean. But coming back at night to your dog fixes all of it.](https://news.puppy-snuggles.com/18349335/days-can-be-hard-people-can-be-mean-but-coming-back-at-night-to-your-dog-fixes-all-of-it)
-- [Here is a sad post, here was my dog Lola, she sadly passed on November 27th, 2021, 4 days before her 11th birthday, cancer sucks.](https://news.puppy-snuggles.com/11876305/here-is-a-sad-post-here-was-my-dog-lola-she-sadly-passed-on-november-27th-2021-4-days-before-her-11th-birthday-cancer-sucks)
+- [Are you scared now?](https://news.puppy-snuggles.com/18069093/are-you-scared-now)
+- [This is kenai. Any ideas what she might be mixed with? She’s the goodest girl](https://news.puppy-snuggles.com/11644620/this-is-kenai-any-ideas-what-she-might-be-mixed-with-shes-the-goodest-girl)
+- [My two little bears](https://news.puppy-snuggles.com/18583560/my-two-little-bears)
+- [Old Picture it was very cold that day had to take a pic of her with a coat](https://news.puppy-snuggles.com/11374951/old-picture-it-was-very-cold-that-day-had-to-take-a-pic-of-her-with-a-coat)
+- [my best friend, my everything, the guy that makes me happy](https://news.puppy-snuggles.com/14601540/my-best-friend-my-everything-the-guy-that-makes-me-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
