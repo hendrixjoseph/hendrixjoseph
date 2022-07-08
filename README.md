@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Are you scared now?](https://news.puppy-snuggles.com/18069093/are-you-scared-now)
-- [This is kenai. Any ideas what she might be mixed with? She’s the goodest girl](https://news.puppy-snuggles.com/11644620/this-is-kenai-any-ideas-what-she-might-be-mixed-with-shes-the-goodest-girl)
-- [My two little bears](https://news.puppy-snuggles.com/18583560/my-two-little-bears)
-- [Old Picture it was very cold that day had to take a pic of her with a coat](https://news.puppy-snuggles.com/11374951/old-picture-it-was-very-cold-that-day-had-to-take-a-pic-of-her-with-a-coat)
-- [my best friend, my everything, the guy that makes me happy](https://news.puppy-snuggles.com/14601540/my-best-friend-my-everything-the-guy-that-makes-me-happy)
+- [Dwight Here. Haven&#39;t posted in awhile. Been too busy at doggy day care. Friends found out I still sleep in my parents bed.](https://news.puppy-snuggles.com/12588543/dwight-here-havent-posted-in-awhile-been-too-busy-at-doggy-day-care-friends-found-out-i-still-sleep-in-my-parents-bed)
+- [She grew up to be the dog version of Ronaldo 🥺](https://news.puppy-snuggles.com/9091285/she-grew-up-to-be-the-dog-version-of-ronaldo)
+- [So dramatic. Give him an Oscar Pls](https://news.puppy-snuggles.com/11683805/so-dramatic-give-him-an-oscar-pls)
+- [Wait a second](https://news.puppy-snuggles.com/7326226/wait-a-second)
+- [She really enjoys a nice pillow](https://news.puppy-snuggles.com/11772020/she-really-enjoys-a-nice-pillow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
