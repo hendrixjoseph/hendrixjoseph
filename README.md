@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dwight Here. Haven&#39;t posted in awhile. Been too busy at doggy day care. Friends found out I still sleep in my parents bed.](https://news.puppy-snuggles.com/12588543/dwight-here-havent-posted-in-awhile-been-too-busy-at-doggy-day-care-friends-found-out-i-still-sleep-in-my-parents-bed)
-- [She grew up to be the dog version of Ronaldo 🥺](https://news.puppy-snuggles.com/9091285/she-grew-up-to-be-the-dog-version-of-ronaldo)
-- [So dramatic. Give him an Oscar Pls](https://news.puppy-snuggles.com/11683805/so-dramatic-give-him-an-oscar-pls)
-- [Wait a second](https://news.puppy-snuggles.com/7326226/wait-a-second)
-- [She really enjoys a nice pillow](https://news.puppy-snuggles.com/11772020/she-really-enjoys-a-nice-pillow)
+- [A picture of my big 8yo girl](https://news.puppy-snuggles.com/10279621/a-picture-of-my-big-8yo-girl)
+- [My dog. His name is Blue :&rpar;](https://news.puppy-snuggles.com/8059061/my-dog-his-name-is-blue)
+- [&#39;Stop, you bastard&#39;](https://news.puppy-snuggles.com/5860066/stop-you-bastard)
+- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
+- [3 Of my babies](https://news.puppy-snuggles.com/18656411/3-of-my-babies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
