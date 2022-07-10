@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A picture of my big 8yo girl](https://news.puppy-snuggles.com/10279621/a-picture-of-my-big-8yo-girl)
-- [My dog. His name is Blue :&rpar;](https://news.puppy-snuggles.com/8059061/my-dog-his-name-is-blue)
-- [&#39;Stop, you bastard&#39;](https://news.puppy-snuggles.com/5860066/stop-you-bastard)
-- [Just enjoying the long weekend with my man](https://news.puppy-snuggles.com/9193915/just-enjoying-the-long-weekend-with-my-man)
-- [3 Of my babies](https://news.puppy-snuggles.com/18656411/3-of-my-babies)
+- [Aren&#39;t they adorable?](https://news.puppy-snuggles.com/18042057/arent-they-adorable)
+- [Picture perfect..](https://news.puppy-snuggles.com/17566140/picture-perfect)
+- [My dog always looks happiest when he gets a new toy to play with](https://news.puppy-snuggles.com/11794062/my-dog-always-looks-happiest-when-he-gets-a-new-toy-to-play-with)
+- [Sweet doggie in Rome, Italy](https://news.puppy-snuggles.com/18685784/sweet-doggie-in-rome-italy)
+- [We had a Birthday! I&#39;m 9!](https://news.puppy-snuggles.com/18656412/we-had-a-birthday-im-9)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
