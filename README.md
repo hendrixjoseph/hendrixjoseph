@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Aren&#39;t they adorable?](https://news.puppy-snuggles.com/18042057/arent-they-adorable)
-- [Picture perfect..](https://news.puppy-snuggles.com/17566140/picture-perfect)
-- [My dog always looks happiest when he gets a new toy to play with](https://news.puppy-snuggles.com/11794062/my-dog-always-looks-happiest-when-he-gets-a-new-toy-to-play-with)
-- [Sweet doggie in Rome, Italy](https://news.puppy-snuggles.com/18685784/sweet-doggie-in-rome-italy)
-- [We had a Birthday! I&#39;m 9!](https://news.puppy-snuggles.com/18656412/we-had-a-birthday-im-9)
+- [How to eat sushi 101](https://news.puppy-snuggles.com/6312556/how-to-eat-sushi-101)
+- [My dog with glasses he is the best boy](https://news.puppy-snuggles.com/18745056/my-dog-with-glasses-he-is-the-best-boy)
+- [she was dumped in my scrap iron trailer last September, she has grown four times her original size.](https://news.puppy-snuggles.com/18745058/she-was-dumped-in-my-scrap-iron-trailer-last-september-she-has-grown-four-times-her-original-size)
+- [this is my 2 year old baby 💞💞💞💞 Say helloooo 🥺](https://news.puppy-snuggles.com/18745057/this-is-my-2-year-old-baby-say-helloooo)
+- [my handsome boy cujo](https://news.puppy-snuggles.com/18745063/my-handsome-boy-cujo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
