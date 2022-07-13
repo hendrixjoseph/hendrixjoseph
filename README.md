@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How to eat sushi 101](https://news.puppy-snuggles.com/6312556/how-to-eat-sushi-101)
-- [My dog with glasses he is the best boy](https://news.puppy-snuggles.com/18745056/my-dog-with-glasses-he-is-the-best-boy)
-- [she was dumped in my scrap iron trailer last September, she has grown four times her original size.](https://news.puppy-snuggles.com/18745058/she-was-dumped-in-my-scrap-iron-trailer-last-september-she-has-grown-four-times-her-original-size)
-- [this is my 2 year old baby 💞💞💞💞 Say helloooo 🥺](https://news.puppy-snuggles.com/18745057/this-is-my-2-year-old-baby-say-helloooo)
-- [my handsome boy cujo](https://news.puppy-snuggles.com/18745063/my-handsome-boy-cujo)
+- [someone is unbothered by the flash](https://news.puppy-snuggles.com/11885441/someone-is-unbothered-by-the-flash)
+- [Ellie the dachshund lost her eyes to glaucoma. She was sad for a few weeks but she’s adjusting to her new life and had a great day today.](https://news.puppy-snuggles.com/8286069/ellie-the-dachshund-lost-her-eyes-to-glaucoma-she-was-sad-for-a-few-weeks-but-shes-adjusting-to-her-new-life-and-had-a-great-day-today)
+- [Goodnight, everybody!](https://news.puppy-snuggles.com/13393450/goodnight-everybody)
+- [who loves pugs](https://news.puppy-snuggles.com/15837741/who-loves-pugs)
+- [Welp, this happened.](https://news.puppy-snuggles.com/9694046/welp-this-happened)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
