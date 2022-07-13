@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [JoeHx Tees - My Daily Routine: Get Up, Be Amazing, Go Back To Bed Tshirt](https://www.reddit.com/r/u_joehx/comments/vwzgnz/joehx_tees_my_daily_routine_get_up_be_amazing_go/)
 - [/u/joehx on When did you Blog start to make you $100/Month?](https://www.reddit.com/r/Blogging/comments/vv61nb/when_did_you_blog_start_to_make_you_100month/ifilzlh/)
 - [/u/joehx on Eli5: Movie Producers](https://www.reddit.com/r/explainlikeimfive/comments/vpy989/eli5_movie_producers/ielw94p/)
 - [/u/joehx on I recreated a flag made by DALL-E Mini](https://www.reddit.com/r/vexillology/comments/vps3gz/i_recreated_a_flag_made_by_dalle_mini/iel5f0r/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, June 22, 2022](https://www.reddit.com/r/financialindependence/comments/vi0qx0/daily_fi_discussion_thread_wednesday_june_22_2022/idasnm2/)
-- [/u/joehx on How much do you make with your blog? And how long it took?](https://www.reddit.com/r/juststart/comments/vey17l/how_much_do_you_make_with_your_blog_and_how_long/icudb0a/)
 <!-- REDDIT:END -->
