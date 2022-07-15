@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My beautiful boy posing with a rose.](https://news.puppy-snuggles.com/12394894/my-beautiful-boy-posing-with-a-rose)
-- [My girl finally made it without getting scared. She even did her first jump into the water!](https://news.puppy-snuggles.com/7423942/my-girl-finally-made-it-without-getting-scared-she-even-did-her-first-jump-into-the-water)
-- [Beagle: Now I know, I should not have swallowed that bee.](https://news.puppy-snuggles.com/11407524/beagle-now-i-know-i-should-not-have-swallowed-that-bee)
-- [I think someone had a good day! Swipe to see all the fun :&rpar;](https://news.puppy-snuggles.com/18822257/i-think-someone-had-a-good-day-swipe-to-see-all-the-fun)
-- [My new gal caught red-handed chewing in the yard. Hope you have a fun and long life with us, sweet girl.](https://news.puppy-snuggles.com/18801586/my-new-gal-caught-red-handed-chewing-in-the-yard-hope-you-have-a-fun-and-long-life-with-us-sweet-girl)
+- [Much Bob](https://news.puppy-snuggles.com/18850078/much-bob)
+- [One happy idiot.](https://news.puppy-snuggles.com/15907334/one-happy-idiot)
+- [My boy loves life.](https://news.puppy-snuggles.com/13282431/my-boy-loves-life)
+- [Milo Appreciation post](https://news.puppy-snuggles.com/13276735/milo-appreciation-post)
+- [Stella just enjoying the moment](https://news.puppy-snuggles.com/13276734/stella-just-enjoying-the-moment)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
