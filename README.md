@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Much Bob](https://news.puppy-snuggles.com/18850078/much-bob)
-- [One happy idiot.](https://news.puppy-snuggles.com/15907334/one-happy-idiot)
-- [My boy loves life.](https://news.puppy-snuggles.com/13282431/my-boy-loves-life)
-- [Milo Appreciation post](https://news.puppy-snuggles.com/13276735/milo-appreciation-post)
-- [Stella just enjoying the moment](https://news.puppy-snuggles.com/13276734/stella-just-enjoying-the-moment)
+- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
+- [Painted a portrait of this gorgeous golden retriever](https://news.puppy-snuggles.com/11778457/painted-a-portrait-of-this-gorgeous-golden-retriever)
+- [Say Hi to my crazy dog Lio](https://news.puppy-snuggles.com/15357205/say-hi-to-my-crazy-dog-lio)
+- [My two lovely babies &amp;amp;lt;3](https://news.puppy-snuggles.com/9999058/my-two-lovely-babies-lt3)
+- [Want To Play?](https://news.puppy-snuggles.com/6998167/want-to-play)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
