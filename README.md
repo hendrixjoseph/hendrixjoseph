@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Chewie, our 1 1/2 year old, insanely clumsy German!](https://news.puppy-snuggles.com/7973979/this-is-chewie-our-1-12-year-old-insanely-clumsy-german)
-- [Painted a portrait of this gorgeous golden retriever](https://news.puppy-snuggles.com/11778457/painted-a-portrait-of-this-gorgeous-golden-retriever)
-- [Say Hi to my crazy dog Lio](https://news.puppy-snuggles.com/15357205/say-hi-to-my-crazy-dog-lio)
-- [My two lovely babies &amp;amp;lt;3](https://news.puppy-snuggles.com/9999058/my-two-lovely-babies-lt3)
-- [Want To Play?](https://news.puppy-snuggles.com/6998167/want-to-play)
+- [My sweet pup I got in 2007 passed today and is in doggy heaven. I’ll never forget all the good memories we had growing up together. Rest in peace, Pepper.](https://news.puppy-snuggles.com/11676127/my-sweet-pup-i-got-in-2007-passed-today-and-is-in-doggy-heaven-ill-never-forget-all-the-good-memories-we-had-growing-up-together-rest-in-peace-pepper)
+- [Father/daughter resemblance](https://news.puppy-snuggles.com/7579968/fatherdaughter-resemblance)
+- [Another minimal doggo I made :&rpar;](https://news.puppy-snuggles.com/8101300/another-minimal-doggo-i-made)
+- [my silly girls, Sugar and Cinnamon. The perfect pair](https://news.puppy-snuggles.com/15135580/my-silly-girls-sugar-and-cinnamon-the-perfect-pair)
+- [Happy Thanksgiving!](https://news.puppy-snuggles.com/11764431/happy-thanksgiving)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
