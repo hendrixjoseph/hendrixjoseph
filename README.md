@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet pup I got in 2007 passed today and is in doggy heaven. I’ll never forget all the good memories we had growing up together. Rest in peace, Pepper.](https://news.puppy-snuggles.com/11676127/my-sweet-pup-i-got-in-2007-passed-today-and-is-in-doggy-heaven-ill-never-forget-all-the-good-memories-we-had-growing-up-together-rest-in-peace-pepper)
-- [Father/daughter resemblance](https://news.puppy-snuggles.com/7579968/fatherdaughter-resemblance)
-- [Another minimal doggo I made :&rpar;](https://news.puppy-snuggles.com/8101300/another-minimal-doggo-i-made)
-- [my silly girls, Sugar and Cinnamon. The perfect pair](https://news.puppy-snuggles.com/15135580/my-silly-girls-sugar-and-cinnamon-the-perfect-pair)
-- [Happy Thanksgiving!](https://news.puppy-snuggles.com/11764431/happy-thanksgiving)
+- [Why do dogs have whiskers?](https://news.puppy-snuggles.com/11919829/why-do-dogs-have-whiskers)
+- [Curled up pups are so cute!](https://news.puppy-snuggles.com/14324516/curled-up-pups-are-so-cute)
+- [Someone got a new toy](https://news.puppy-snuggles.com/14582638/someone-got-a-new-toy)
+- [This is Banjo](https://news.puppy-snuggles.com/18942567/this-is-banjo)
+- [My little boy. Grew up so fast](https://news.puppy-snuggles.com/11504083/my-little-boy-grew-up-so-fast)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
