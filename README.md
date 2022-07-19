@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Why do dogs have whiskers?](https://news.puppy-snuggles.com/11919829/why-do-dogs-have-whiskers)
-- [Curled up pups are so cute!](https://news.puppy-snuggles.com/14324516/curled-up-pups-are-so-cute)
-- [Someone got a new toy](https://news.puppy-snuggles.com/14582638/someone-got-a-new-toy)
-- [This is Banjo](https://news.puppy-snuggles.com/18942567/this-is-banjo)
-- [My little boy. Grew up so fast](https://news.puppy-snuggles.com/11504083/my-little-boy-grew-up-so-fast)
+- [Patsys smile 🐶](https://news.puppy-snuggles.com/11979778/patsys-smile)
+- [When the owner is an idiot](https://news.puppy-snuggles.com/13485832/when-the-owner-is-an-idiot)
+- [My dog died. Help me. Please](https://news.puppy-snuggles.com/18135821/my-dog-died-help-me-please)
+- [Ham is a sleepy Boi](https://news.puppy-snuggles.com/9006452/ham-is-a-sleepy-boi)
+- [Broken Doggo](https://news.puppy-snuggles.com/11452979/broken-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
