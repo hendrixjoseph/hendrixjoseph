@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Patsys smile 🐶](https://news.puppy-snuggles.com/11979778/patsys-smile)
-- [When the owner is an idiot](https://news.puppy-snuggles.com/13485832/when-the-owner-is-an-idiot)
-- [My dog died. Help me. Please](https://news.puppy-snuggles.com/18135821/my-dog-died-help-me-please)
-- [Ham is a sleepy Boi](https://news.puppy-snuggles.com/9006452/ham-is-a-sleepy-boi)
-- [Broken Doggo](https://news.puppy-snuggles.com/11452979/broken-doggo)
+- [When he was a baby he had prickly ears](https://news.puppy-snuggles.com/19000954/when-he-was-a-baby-he-had-prickly-ears)
+- [cute cute cute](https://news.puppy-snuggles.com/15192399/cute-cute-cute)
+- [My buddy](https://news.puppy-snuggles.com/19009919/my-buddy)
+- [We are totally not posing...](https://news.puppy-snuggles.com/11667226/we-are-totally-not-posing)
+- [Ambu is very cute](https://news.puppy-snuggles.com/6859469/ambu-is-very-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
