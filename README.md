@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When he was a baby he had prickly ears](https://news.puppy-snuggles.com/19000954/when-he-was-a-baby-he-had-prickly-ears)
-- [cute cute cute](https://news.puppy-snuggles.com/15192399/cute-cute-cute)
-- [My buddy](https://news.puppy-snuggles.com/19009919/my-buddy)
-- [We are totally not posing...](https://news.puppy-snuggles.com/11667226/we-are-totally-not-posing)
-- [Ambu is very cute](https://news.puppy-snuggles.com/6859469/ambu-is-very-cute)
+- [💟 My beautiful best friend! &lpar;Corgi &amp;amp;amp; Long-haired German Shepherd Mix&rpar;](https://news.puppy-snuggles.com/12421885/my-beautiful-best-friend-corgi-amp-long-haired-german-shepherd-mix)
+- [My last week with my sweet foster puppy. He found his forever home. From malnourished and scared to happy smiles.](https://news.puppy-snuggles.com/16061921/my-last-week-with-my-sweet-foster-puppy-he-found-his-forever-home-from-malnourished-and-scared-to-happy-smiles)
+- [When you smile, I smile](https://news.puppy-snuggles.com/9108307/when-you-smile-i-smile)
+- [Happy Halloween from Rosie! She’s, uh, not exactly a fan of dressing up. Or pictures. Or fun.🤷🏻‍♀️](https://news.puppy-snuggles.com/10745366/happy-halloween-from-rosie-shes-uh-not-exactly-a-fan-of-dressing-up-or-pictures-or-fun)
+- [Chilly day](https://news.puppy-snuggles.com/19046189/chilly-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
