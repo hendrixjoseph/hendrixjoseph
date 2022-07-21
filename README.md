@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Cat Working on a Computer T-Shirt](https://www.reddit.com/r/u_joehx/comments/w3vo2b/cat_working_on_a_computer_tshirt/)
 - [In My Defense I Was Left Unsupervised T-Shirt](https://www.reddit.com/r/u_joehx/comments/w248nr/in_my_defense_i_was_left_unsupervised_tshirt/)
 - [JoeHx Tees - My Daily Routine: Get Up, Be Amazing, Go Back To Bed Tshirt](https://www.reddit.com/r/u_joehx/comments/vwzgnz/joehx_tees_my_daily_routine_get_up_be_amazing_go/)
 - [/u/joehx on When did you Blog start to make you $100/Month?](https://www.reddit.com/r/Blogging/comments/vv61nb/when_did_you_blog_start_to_make_you_100month/ifilzlh/)
 - [/u/joehx on Eli5: Movie Producers](https://www.reddit.com/r/explainlikeimfive/comments/vpy989/eli5_movie_producers/ielw94p/)
-- [/u/joehx on I recreated a flag made by DALL-E Mini](https://www.reddit.com/r/vexillology/comments/vps3gz/i_recreated_a_flag_made_by_dalle_mini/iel5f0r/)
 <!-- REDDIT:END -->
