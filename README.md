@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [💟 My beautiful best friend! &lpar;Corgi &amp;amp;amp; Long-haired German Shepherd Mix&rpar;](https://news.puppy-snuggles.com/12421885/my-beautiful-best-friend-corgi-amp-long-haired-german-shepherd-mix)
-- [My last week with my sweet foster puppy. He found his forever home. From malnourished and scared to happy smiles.](https://news.puppy-snuggles.com/16061921/my-last-week-with-my-sweet-foster-puppy-he-found-his-forever-home-from-malnourished-and-scared-to-happy-smiles)
-- [When you smile, I smile](https://news.puppy-snuggles.com/9108307/when-you-smile-i-smile)
-- [Happy Halloween from Rosie! She’s, uh, not exactly a fan of dressing up. Or pictures. Or fun.🤷🏻‍♀️](https://news.puppy-snuggles.com/10745366/happy-halloween-from-rosie-shes-uh-not-exactly-a-fan-of-dressing-up-or-pictures-or-fun)
-- [Chilly day](https://news.puppy-snuggles.com/19046189/chilly-day)
+- [&amp;amp;quot;Riley&amp;amp;quot; drawn in colored pencils by me](https://news.puppy-snuggles.com/19082147/quotrileyquot-drawn-in-colored-pencils-by-me)
+- [From being an abused rescue dog to a pampered and adored pooch. Bandit sure knows he’s loved now.](https://news.puppy-snuggles.com/12718990/from-being-an-abused-rescue-dog-to-a-pampered-and-adored-pooch-bandit-sure-knows-hes-loved-now)
+- [Meet the new logo of Firefox](https://news.puppy-snuggles.com/11726155/meet-the-new-logo-of-firefox)
+- [Big dog](https://news.puppy-snuggles.com/9650187/big-dog)
+- [Grandma sent sweaters! Sis needs to grow into them.](https://news.puppy-snuggles.com/12034305/grandma-sent-sweaters-sis-needs-to-grow-into-them)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
