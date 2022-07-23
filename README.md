@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&amp;amp;quot;Riley&amp;amp;quot; drawn in colored pencils by me](https://news.puppy-snuggles.com/19082147/quotrileyquot-drawn-in-colored-pencils-by-me)
-- [From being an abused rescue dog to a pampered and adored pooch. Bandit sure knows he’s loved now.](https://news.puppy-snuggles.com/12718990/from-being-an-abused-rescue-dog-to-a-pampered-and-adored-pooch-bandit-sure-knows-hes-loved-now)
-- [Meet the new logo of Firefox](https://news.puppy-snuggles.com/11726155/meet-the-new-logo-of-firefox)
-- [Big dog](https://news.puppy-snuggles.com/9650187/big-dog)
-- [Grandma sent sweaters! Sis needs to grow into them.](https://news.puppy-snuggles.com/12034305/grandma-sent-sweaters-sis-needs-to-grow-into-them)
+- [The brothers talk about the future](https://news.puppy-snuggles.com/11757535/the-brothers-talk-about-the-future)
+- [Early morning hike](https://news.puppy-snuggles.com/7221806/early-morning-hike)
+- [this is my favorite video right now](https://news.puppy-snuggles.com/9999059/this-is-my-favorite-video-right-now)
+- [My puppy found religion today](https://news.puppy-snuggles.com/19117569/my-puppy-found-religion-today)
+- [Petting to polish cow](https://news.puppy-snuggles.com/11210792/petting-to-polish-cow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
