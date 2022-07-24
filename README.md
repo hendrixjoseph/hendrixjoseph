@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The brothers talk about the future](https://news.puppy-snuggles.com/11757535/the-brothers-talk-about-the-future)
-- [Early morning hike](https://news.puppy-snuggles.com/7221806/early-morning-hike)
-- [this is my favorite video right now](https://news.puppy-snuggles.com/9999059/this-is-my-favorite-video-right-now)
-- [My puppy found religion today](https://news.puppy-snuggles.com/19117569/my-puppy-found-religion-today)
-- [Petting to polish cow](https://news.puppy-snuggles.com/11210792/petting-to-polish-cow)
+- [Welcome to the Dark Side! We have snacks!](https://news.puppy-snuggles.com/9694051/welcome-to-the-dark-side-we-have-snacks)
+- [This is Bobo, coolest goodest boi in town](https://news.puppy-snuggles.com/15968712/this-is-bobo-coolest-goodest-boi-in-town)
+- [Duke &lpar;adopted blue heeler&rpar; loving life.](https://news.puppy-snuggles.com/15723152/duke-adopted-blue-heeler-loving-life)
+- [The most weird sleeping posture?](https://news.puppy-snuggles.com/9244929/the-most-weird-sleeping-posture)
+- [Cheat Day is the best](https://news.puppy-snuggles.com/8517635/cheat-day-is-the-best)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
