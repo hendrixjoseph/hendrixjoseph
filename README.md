@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Welcome to the Dark Side! We have snacks!](https://news.puppy-snuggles.com/9694051/welcome-to-the-dark-side-we-have-snacks)
-- [This is Bobo, coolest goodest boi in town](https://news.puppy-snuggles.com/15968712/this-is-bobo-coolest-goodest-boi-in-town)
-- [Duke &lpar;adopted blue heeler&rpar; loving life.](https://news.puppy-snuggles.com/15723152/duke-adopted-blue-heeler-loving-life)
-- [The most weird sleeping posture?](https://news.puppy-snuggles.com/9244929/the-most-weird-sleeping-posture)
-- [Cheat Day is the best](https://news.puppy-snuggles.com/8517635/cheat-day-is-the-best)
+- [We had a trip and these pictures were sent by our pet sitter.](https://news.puppy-snuggles.com/19166604/we-had-a-trip-and-these-pictures-were-sent-by-our-pet-sitter)
+- [dreamy smile💫](https://news.puppy-snuggles.com/14333669/dreamy-smile)
+- [Enjoying 🐶🐶](https://news.puppy-snuggles.com/11133824/enjoying)
+- [My lovely dogs Rio, the brown one and Jack the black one.](https://news.puppy-snuggles.com/9291457/my-lovely-dogs-rio-the-brown-one-and-jack-the-black-one)
+- [Need a Hand Bro!!!!](https://news.puppy-snuggles.com/12222387/need-a-hand-bro)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
