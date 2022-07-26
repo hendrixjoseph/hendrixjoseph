@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We had a trip and these pictures were sent by our pet sitter.](https://news.puppy-snuggles.com/19166604/we-had-a-trip-and-these-pictures-were-sent-by-our-pet-sitter)
-- [dreamy smile💫](https://news.puppy-snuggles.com/14333669/dreamy-smile)
-- [Enjoying 🐶🐶](https://news.puppy-snuggles.com/11133824/enjoying)
-- [My lovely dogs Rio, the brown one and Jack the black one.](https://news.puppy-snuggles.com/9291457/my-lovely-dogs-rio-the-brown-one-and-jack-the-black-one)
-- [Need a Hand Bro!!!!](https://news.puppy-snuggles.com/12222387/need-a-hand-bro)
+- [Leia, one day everything you see shall be yours](https://news.puppy-snuggles.com/7592469/leia-one-day-everything-you-see-shall-be-yours)
+- [Older pic of my dog, Roo 🥰](https://news.puppy-snuggles.com/6735398/older-pic-of-my-dog-roo)
+- [It’s Arthur’s 2nd birthday today](https://news.puppy-snuggles.com/18877741/its-arthurs-2nd-birthday-today)
+- [The cutest little puppy trying to get up them big steps!](https://news.puppy-snuggles.com/16366419/the-cutest-little-puppy-trying-to-get-up-them-big-steps)
+- [These fields and the first row view of my number 1 fave being 😍](https://news.puppy-snuggles.com/16822111/these-fields-and-the-first-row-view-of-my-number-1-fave-being)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
