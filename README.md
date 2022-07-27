@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Leia, one day everything you see shall be yours](https://news.puppy-snuggles.com/7592469/leia-one-day-everything-you-see-shall-be-yours)
-- [Older pic of my dog, Roo 🥰](https://news.puppy-snuggles.com/6735398/older-pic-of-my-dog-roo)
-- [It’s Arthur’s 2nd birthday today](https://news.puppy-snuggles.com/18877741/its-arthurs-2nd-birthday-today)
-- [The cutest little puppy trying to get up them big steps!](https://news.puppy-snuggles.com/16366419/the-cutest-little-puppy-trying-to-get-up-them-big-steps)
-- [These fields and the first row view of my number 1 fave being 😍](https://news.puppy-snuggles.com/16822111/these-fields-and-the-first-row-view-of-my-number-1-fave-being)
+- [RIP Delilah &lpar;LALA&rpar; 2006-October 2021, one awesome pupper.](https://news.puppy-snuggles.com/10327578/rip-delilah-lala-2006-october-2021-one-awesome-pupper)
+- [Skills](https://news.puppy-snuggles.com/10319611/skills)
+- [This little guy is the cutest &amp;amp;lt;3](https://news.puppy-snuggles.com/13005332/this-little-guy-is-the-cutest-lt3)
+- [Coolest little dude](https://news.puppy-snuggles.com/10297416/coolest-little-dude)
+- [My giant brute! Murphy turned 3, 80lbs and a hyper silly butt!!❤](https://news.puppy-snuggles.com/10273236/my-giant-brute-murphy-turned-3-80lbs-and-a-hyper-silly-butt)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
