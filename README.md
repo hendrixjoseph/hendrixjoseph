@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Delilah &lpar;LALA&rpar; 2006-October 2021, one awesome pupper.](https://news.puppy-snuggles.com/10327578/rip-delilah-lala-2006-october-2021-one-awesome-pupper)
-- [Skills](https://news.puppy-snuggles.com/10319611/skills)
-- [This little guy is the cutest &amp;amp;lt;3](https://news.puppy-snuggles.com/13005332/this-little-guy-is-the-cutest-lt3)
-- [Coolest little dude](https://news.puppy-snuggles.com/10297416/coolest-little-dude)
-- [My giant brute! Murphy turned 3, 80lbs and a hyper silly butt!!❤](https://news.puppy-snuggles.com/10273236/my-giant-brute-murphy-turned-3-80lbs-and-a-hyper-silly-butt)
+- [Princess got her bed stolen by Bunny](https://news.puppy-snuggles.com/16233874/princess-got-her-bed-stolen-by-bunny)
+- [Fox Lacko As a Puppy - Adopted Dog](https://news.puppy-snuggles.com/16155516/fox-lacko-as-a-puppy-adopted-dog)
+- [Sharing is caring](https://news.puppy-snuggles.com/5440908/sharing-is-caring)
+- [Kids fall asleep in the weirdest ways](https://news.puppy-snuggles.com/7454043/kids-fall-asleep-in-the-weirdest-ways)
+- [Practicing fetch at the park makes a happy boy!](https://news.puppy-snuggles.com/19270360/practicing-fetch-at-the-park-makes-a-happy-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
