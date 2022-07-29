@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Princess got her bed stolen by Bunny](https://news.puppy-snuggles.com/16233874/princess-got-her-bed-stolen-by-bunny)
-- [Fox Lacko As a Puppy - Adopted Dog](https://news.puppy-snuggles.com/16155516/fox-lacko-as-a-puppy-adopted-dog)
-- [Sharing is caring](https://news.puppy-snuggles.com/5440908/sharing-is-caring)
-- [Kids fall asleep in the weirdest ways](https://news.puppy-snuggles.com/7454043/kids-fall-asleep-in-the-weirdest-ways)
-- [Practicing fetch at the park makes a happy boy!](https://news.puppy-snuggles.com/19270360/practicing-fetch-at-the-park-makes-a-happy-boy)
+- [I&#39;m convinced that Romulus is the cutest and bestest Aussie. ♥️👑](https://news.puppy-snuggles.com/19306427/im-convinced-that-romulus-is-the-cutest-and-bestest-aussie)
+- [Fancy boy](https://news.puppy-snuggles.com/19306418/fancy-boy)
+- [Guess her breed! This is Violet. We tested her dna, and she has only 4 breeds with almost an even split. Can anyone guess?](https://news.puppy-snuggles.com/19306419/guess-her-breed-this-is-violet-we-tested-her-dna-and-she-has-only-4-breeds-with-almost-an-even-split-can-anyone-guess)
+- [What breeds does this good boy look like to you? We have no idea [OC]](https://news.puppy-snuggles.com/19306424/what-breeds-does-this-good-boy-look-like-to-you-we-have-no-idea-oc)
+- [if you had to guess his breed, what would it be](https://news.puppy-snuggles.com/19306421/if-you-had-to-guess-his-breed-what-would-it-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
