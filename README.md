@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&#39;m convinced that Romulus is the cutest and bestest Aussie. ♥️👑](https://news.puppy-snuggles.com/19306427/im-convinced-that-romulus-is-the-cutest-and-bestest-aussie)
-- [Fancy boy](https://news.puppy-snuggles.com/19306418/fancy-boy)
-- [Guess her breed! This is Violet. We tested her dna, and she has only 4 breeds with almost an even split. Can anyone guess?](https://news.puppy-snuggles.com/19306419/guess-her-breed-this-is-violet-we-tested-her-dna-and-she-has-only-4-breeds-with-almost-an-even-split-can-anyone-guess)
-- [What breeds does this good boy look like to you? We have no idea [OC]](https://news.puppy-snuggles.com/19306424/what-breeds-does-this-good-boy-look-like-to-you-we-have-no-idea-oc)
-- [if you had to guess his breed, what would it be](https://news.puppy-snuggles.com/19306421/if-you-had-to-guess-his-breed-what-would-it-be)
+- [Brought her home from the shelter tonight. I think she knows she&#39;s home ❤️](https://news.puppy-snuggles.com/13920168/brought-her-home-from-the-shelter-tonight-i-think-she-knows-shes-home)
+- [What are you doing with that stupid phone now you big oaf of a human?](https://news.puppy-snuggles.com/11478086/what-are-you-doing-with-that-stupid-phone-now-you-big-oaf-of-a-human)
+- [I goodest boi.](https://news.puppy-snuggles.com/14634508/i-goodest-boi)
+- [Daisy likes the cone. I have a weird dog.](https://news.puppy-snuggles.com/8748911/daisy-likes-the-cone-i-have-a-weird-dog)
+- [When you bring your dog to work and he reminds you that you are his favorite person](https://news.puppy-snuggles.com/12513485/when-you-bring-your-dog-to-work-and-he-reminds-you-that-you-are-his-favorite-person)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
