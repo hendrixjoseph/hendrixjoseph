@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Brought her home from the shelter tonight. I think she knows she&#39;s home ❤️](https://news.puppy-snuggles.com/13920168/brought-her-home-from-the-shelter-tonight-i-think-she-knows-shes-home)
-- [What are you doing with that stupid phone now you big oaf of a human?](https://news.puppy-snuggles.com/11478086/what-are-you-doing-with-that-stupid-phone-now-you-big-oaf-of-a-human)
-- [I goodest boi.](https://news.puppy-snuggles.com/14634508/i-goodest-boi)
-- [Daisy likes the cone. I have a weird dog.](https://news.puppy-snuggles.com/8748911/daisy-likes-the-cone-i-have-a-weird-dog)
-- [When you bring your dog to work and he reminds you that you are his favorite person](https://news.puppy-snuggles.com/12513485/when-you-bring-your-dog-to-work-and-he-reminds-you-that-you-are-his-favorite-person)
+- [Guess I&#39;m sleeping on the floor tonight](https://news.puppy-snuggles.com/12466843/guess-im-sleeping-on-the-floor-tonight)
+- [The one and only Brooks!](https://news.puppy-snuggles.com/7229136/the-one-and-only-brooks)
+- [My dog, Buck, waiting patiently for me to throw his ball!](https://news.puppy-snuggles.com/10176662/my-dog-buck-waiting-patiently-for-me-to-throw-his-ball)
+- [Good Morning from Beale the half blind Beaskie](https://news.puppy-snuggles.com/15823886/good-morning-from-beale-the-half-blind-beaskie)
+- [Happy Bamalama](https://news.puppy-snuggles.com/19366513/happy-bamalama)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
