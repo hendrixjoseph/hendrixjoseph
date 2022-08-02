@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Almost a year ago I posted Archie, who was abandoned as a puppy on the streets of my hometown. He has grown into an incredibly sweet, playful and loving dog. Even though he disturbs all the peace in my house.](https://news.puppy-snuggles.com/17921389/almost-a-year-ago-i-posted-archie-who-was-abandoned-as-a-puppy-on-the-streets-of-my-hometown-he-has-grown-into-an-incredibly-sweet-playful-and-loving-dog-even-though-he-disturbs-all-the-peace-in-my-house)
-- [She typically isnt good for baths- Except when I give them to her](https://news.puppy-snuggles.com/7069075/she-typically-isnt-good-for-baths-except-when-i-give-them-to-her)
-- [Another few years of wiggly tailed and uncontrollable play times,](https://news.puppy-snuggles.com/4554014/another-few-years-of-wiggly-tailed-and-uncontrollable-play-times)
-- [Just a dog](https://news.puppy-snuggles.com/7374392/just-a-dog)
-- [Cutest Dog Compilation. Have a good time.](https://news.puppy-snuggles.com/7280207/cutest-dog-compilation-have-a-good-time)
+- [Why does this taste bad?](https://news.puppy-snuggles.com/19400784/why-does-this-taste-bad)
+- [Dog Couple Arguing](https://news.puppy-snuggles.com/13948321/dog-couple-arguing)
+- [Grand jury indicts 3 family members in dog mauling that killed a 6-year-old son](https://news.puppy-snuggles.com/19429178/grand-jury-indicts-3-family-members-in-dog-mauling-that-killed-a-6-year-old-son)
+- [Pumpkin](https://news.puppy-snuggles.com/11802149/pumpkin)
+- [Lil Beni Benassi Wishing you all a Happy Monday](https://news.puppy-snuggles.com/10542041/lil-beni-benassi-wishing-you-all-a-happy-monday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
