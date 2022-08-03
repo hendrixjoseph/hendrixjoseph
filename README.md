@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Why does this taste bad?](https://news.puppy-snuggles.com/19400784/why-does-this-taste-bad)
-- [Dog Couple Arguing](https://news.puppy-snuggles.com/13948321/dog-couple-arguing)
-- [Grand jury indicts 3 family members in dog mauling that killed a 6-year-old son](https://news.puppy-snuggles.com/19429178/grand-jury-indicts-3-family-members-in-dog-mauling-that-killed-a-6-year-old-son)
-- [Pumpkin](https://news.puppy-snuggles.com/11802149/pumpkin)
-- [Lil Beni Benassi Wishing you all a Happy Monday](https://news.puppy-snuggles.com/10542041/lil-beni-benassi-wishing-you-all-a-happy-monday)
+- [She’s stinking cute](https://news.puppy-snuggles.com/13493322/shes-stinking-cute)
+- [Holiday charity photos for the local shelter. Black lab mix.](https://news.puppy-snuggles.com/12816050/holiday-charity-photos-for-the-local-shelter-black-lab-mix)
+- [12 years old today](https://news.puppy-snuggles.com/10847943/12-years-old-today)
+- [He may have not been the brightest marble in the bag, but he was a bright spot in our lives. Our boy, Gandalf, went to sleep last night and never woke up. He gave us 9 years of the best hugs and kisses. He will be dearly missed.](https://news.puppy-snuggles.com/7038555/he-may-have-not-been-the-brightest-marble-in-the-bag-but-he-was-a-bright-spot-in-our-lives-our-boy-gandalf-went-to-sleep-last-night-and-never-woke-up-he-gave-us-9-years-of-the-best-hugs-and-kisses-he-will-be-dearly-missed)
+- [not the best picture but, this cutie looking so cute here haha](https://news.puppy-snuggles.com/19460935/not-the-best-picture-but-this-cutie-looking-so-cute-here-haha)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
