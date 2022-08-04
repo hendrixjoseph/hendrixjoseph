@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She’s stinking cute](https://news.puppy-snuggles.com/13493322/shes-stinking-cute)
-- [Holiday charity photos for the local shelter. Black lab mix.](https://news.puppy-snuggles.com/12816050/holiday-charity-photos-for-the-local-shelter-black-lab-mix)
-- [12 years old today](https://news.puppy-snuggles.com/10847943/12-years-old-today)
-- [He may have not been the brightest marble in the bag, but he was a bright spot in our lives. Our boy, Gandalf, went to sleep last night and never woke up. He gave us 9 years of the best hugs and kisses. He will be dearly missed.](https://news.puppy-snuggles.com/7038555/he-may-have-not-been-the-brightest-marble-in-the-bag-but-he-was-a-bright-spot-in-our-lives-our-boy-gandalf-went-to-sleep-last-night-and-never-woke-up-he-gave-us-9-years-of-the-best-hugs-and-kisses-he-will-be-dearly-missed)
-- [not the best picture but, this cutie looking so cute here haha](https://news.puppy-snuggles.com/19460935/not-the-best-picture-but-this-cutie-looking-so-cute-here-haha)
+- [Litter of 7 all had blue eyes](https://news.puppy-snuggles.com/19498513/litter-of-7-all-had-blue-eyes)
+- [Lost my best friend not too long ago. Love you buddy.](https://news.puppy-snuggles.com/12997552/lost-my-best-friend-not-too-long-ago-love-you-buddy)
+- [Doggos bedded down during hurricane](https://news.puppy-snuggles.com/7454046/doggos-bedded-down-during-hurricane)
+- [Lexi’s first pack walk with me today and she smashed it! 👏🏻 also, doesn’t she look like the most perfect instagramable dog?! 🥰🫶🏼](https://news.puppy-snuggles.com/19498515/lexis-first-pack-walk-with-me-today-and-she-smashed-it-also-doesnt-she-look-like-the-most-perfect-instagramable-dog)
+- [My pit bull boxer pug mr meatball](https://news.puppy-snuggles.com/10499209/my-pit-bull-boxer-pug-mr-meatball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
