@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Litter of 7 all had blue eyes](https://news.puppy-snuggles.com/19498513/litter-of-7-all-had-blue-eyes)
-- [Lost my best friend not too long ago. Love you buddy.](https://news.puppy-snuggles.com/12997552/lost-my-best-friend-not-too-long-ago-love-you-buddy)
-- [Doggos bedded down during hurricane](https://news.puppy-snuggles.com/7454046/doggos-bedded-down-during-hurricane)
-- [Lexi’s first pack walk with me today and she smashed it! 👏🏻 also, doesn’t she look like the most perfect instagramable dog?! 🥰🫶🏼](https://news.puppy-snuggles.com/19498515/lexis-first-pack-walk-with-me-today-and-she-smashed-it-also-doesnt-she-look-like-the-most-perfect-instagramable-dog)
-- [My pit bull boxer pug mr meatball](https://news.puppy-snuggles.com/10499209/my-pit-bull-boxer-pug-mr-meatball)
+- [Her squinty eyes when you arrive home!](https://news.puppy-snuggles.com/19535331/her-squinty-eyes-when-you-arrive-home)
+- [tatlış](https://news.puppy-snuggles.com/19488905/tatlis)
+- [Aged beautifully](https://news.puppy-snuggles.com/19535337/aged-beautifully)
+- [One serving of hot dog](https://news.puppy-snuggles.com/12485920/one-serving-of-hot-dog)
+- [Meet Jess, my collie, she’s cute and I thought I’d share her with u all](https://news.puppy-snuggles.com/19535334/meet-jess-my-collie-shes-cute-and-i-thought-id-share-her-with-u-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
