@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Her squinty eyes when you arrive home!](https://news.puppy-snuggles.com/19535331/her-squinty-eyes-when-you-arrive-home)
-- [tatlış](https://news.puppy-snuggles.com/19488905/tatlis)
-- [Aged beautifully](https://news.puppy-snuggles.com/19535337/aged-beautifully)
-- [One serving of hot dog](https://news.puppy-snuggles.com/12485920/one-serving-of-hot-dog)
-- [Meet Jess, my collie, she’s cute and I thought I’d share her with u all](https://news.puppy-snuggles.com/19535334/meet-jess-my-collie-shes-cute-and-i-thought-id-share-her-with-u-all)
+- [Any guesses on our girls breed? We think boxer/pittie](https://news.puppy-snuggles.com/18831670/any-guesses-on-our-girls-breed-we-think-boxerpittie)
+- [I got my first dog at 18, Kiara became my best friend for almost 11 years. She was treated like royalty in our house. She’s at peace now, I’m happy she was in my life.](https://news.puppy-snuggles.com/19563307/i-got-my-first-dog-at-18-kiara-became-my-best-friend-for-almost-11-years-she-was-treated-like-royalty-in-our-house-shes-at-peace-now-im-happy-she-was-in-my-life)
+- [10 dogs seized from Charleston home, several tested positive for deadly virus](https://news.puppy-snuggles.com/19566255/10-dogs-seized-from-charleston-home-several-tested-positive-for-deadly-virus)
+- [Her nose is so cute!](https://news.puppy-snuggles.com/13242500/her-nose-is-so-cute)
+- [A wide angle gone soooooo wrong 😂](https://news.puppy-snuggles.com/13351556/a-wide-angle-gone-soooooo-wrong)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
