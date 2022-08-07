@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Any guesses on our girls breed? We think boxer/pittie](https://news.puppy-snuggles.com/18831670/any-guesses-on-our-girls-breed-we-think-boxerpittie)
-- [I got my first dog at 18, Kiara became my best friend for almost 11 years. She was treated like royalty in our house. She’s at peace now, I’m happy she was in my life.](https://news.puppy-snuggles.com/19563307/i-got-my-first-dog-at-18-kiara-became-my-best-friend-for-almost-11-years-she-was-treated-like-royalty-in-our-house-shes-at-peace-now-im-happy-she-was-in-my-life)
-- [10 dogs seized from Charleston home, several tested positive for deadly virus](https://news.puppy-snuggles.com/19566255/10-dogs-seized-from-charleston-home-several-tested-positive-for-deadly-virus)
-- [Her nose is so cute!](https://news.puppy-snuggles.com/13242500/her-nose-is-so-cute)
-- [A wide angle gone soooooo wrong 😂](https://news.puppy-snuggles.com/13351556/a-wide-angle-gone-soooooo-wrong)
+- [My best boy in the Colorado mountains this past fall](https://news.puppy-snuggles.com/12198092/my-best-boy-in-the-colorado-mountains-this-past-fall)
+- [This is Raven, my 11 year old Great Dane... I hope you guys enjoy as much as I do. :&rpar;](https://news.puppy-snuggles.com/10700049/this-is-raven-my-11-year-old-great-dane-i-hope-you-guys-enjoy-as-much-as-i-do)
+- [She realizes that she is special and cute.](https://news.puppy-snuggles.com/6262744/she-realizes-that-she-is-special-and-cute)
+- [Apparently She Has A Brain Eating Bandana](https://news.puppy-snuggles.com/4215549/apparently-she-has-a-brain-eating-bandana)
+- [Poor Ruffian broke her nail. It took 3 people to carry her to the vet table once she was knocked out. Once she woke up she told the vets what for with some weak growls. Lots of rest and some special treats when she&#39;s feeling up for it](https://news.puppy-snuggles.com/13335253/poor-ruffian-broke-her-nail-it-took-3-people-to-carry-her-to-the-vet-table-once-she-was-knocked-out-once-she-woke-up-she-told-the-vets-what-for-with-some-weak-growls-lots-of-rest-and-some-special-treats-when-shes-feeling-up-for-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
