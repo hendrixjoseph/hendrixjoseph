@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best boy in the Colorado mountains this past fall](https://news.puppy-snuggles.com/12198092/my-best-boy-in-the-colorado-mountains-this-past-fall)
-- [This is Raven, my 11 year old Great Dane... I hope you guys enjoy as much as I do. :&rpar;](https://news.puppy-snuggles.com/10700049/this-is-raven-my-11-year-old-great-dane-i-hope-you-guys-enjoy-as-much-as-i-do)
-- [She realizes that she is special and cute.](https://news.puppy-snuggles.com/6262744/she-realizes-that-she-is-special-and-cute)
-- [Apparently She Has A Brain Eating Bandana](https://news.puppy-snuggles.com/4215549/apparently-she-has-a-brain-eating-bandana)
-- [Poor Ruffian broke her nail. It took 3 people to carry her to the vet table once she was knocked out. Once she woke up she told the vets what for with some weak growls. Lots of rest and some special treats when she&#39;s feeling up for it](https://news.puppy-snuggles.com/13335253/poor-ruffian-broke-her-nail-it-took-3-people-to-carry-her-to-the-vet-table-once-she-was-knocked-out-once-she-woke-up-she-told-the-vets-what-for-with-some-weak-growls-lots-of-rest-and-some-special-treats-when-shes-feeling-up-for-it)
+- [Might be picking up this cute little guy. Looking for name suggestions.](https://news.puppy-snuggles.com/12597285/might-be-picking-up-this-cute-little-guy-looking-for-name-suggestions)
+- [Just a few photos of my best boy, Ben!](https://news.puppy-snuggles.com/16618734/just-a-few-photos-of-my-best-boy-ben)
+- [Still a good boy tho. :D](https://news.puppy-snuggles.com/17533753/still-a-good-boy-tho-d)
+- [We are putting her down tomorrow. She’s been seizing for a while and now that she’s maxed out on her medication it’s time. We’re going to miss you more than words can say. I know you’ll be chasing all the balls when you cross the rainbow bridge.](https://news.puppy-snuggles.com/18313080/we-are-putting-her-down-tomorrow-shes-been-seizing-for-a-while-and-now-that-shes-maxed-out-on-her-medication-its-time-were-going-to-miss-you-more-than-words-can-say-i-know-youll-be-chasing-all-the-balls-when-you-cross-the-rainbow-bridge)
+- [Reggie, Comet and Ruby! All ready for the Queens jubilee](https://news.puppy-snuggles.com/17437785/reggie-comet-and-ruby-all-ready-for-the-queens-jubilee)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
