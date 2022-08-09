@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [July 2022 Book Reading List](https://www.joehxblog.com/july-2022-book-reading-list/)
 - [July 2022 Blog Statistics](https://www.joehxblog.com/july-2022-blog-statistics/)
 - [Questions on Branches and Rebases in Git](https://www.joehxblog.com/questions-on-branches-and-rebases-in-git/)
 - [June 2022 Book Reading List](https://www.joehxblog.com/june-2022-book-reading-list/)
 - [My New Water Softener](https://www.joehxblog.com/my-new-water-softener/)
-- [June 2022 Blog Statistics](https://www.joehxblog.com/june-2022-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
