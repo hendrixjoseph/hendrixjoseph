@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Might be picking up this cute little guy. Looking for name suggestions.](https://news.puppy-snuggles.com/12597285/might-be-picking-up-this-cute-little-guy-looking-for-name-suggestions)
-- [Just a few photos of my best boy, Ben!](https://news.puppy-snuggles.com/16618734/just-a-few-photos-of-my-best-boy-ben)
-- [Still a good boy tho. :D](https://news.puppy-snuggles.com/17533753/still-a-good-boy-tho-d)
-- [We are putting her down tomorrow. She’s been seizing for a while and now that she’s maxed out on her medication it’s time. We’re going to miss you more than words can say. I know you’ll be chasing all the balls when you cross the rainbow bridge.](https://news.puppy-snuggles.com/18313080/we-are-putting-her-down-tomorrow-shes-been-seizing-for-a-while-and-now-that-shes-maxed-out-on-her-medication-its-time-were-going-to-miss-you-more-than-words-can-say-i-know-youll-be-chasing-all-the-balls-when-you-cross-the-rainbow-bridge)
-- [Reggie, Comet and Ruby! All ready for the Queens jubilee](https://news.puppy-snuggles.com/17437785/reggie-comet-and-ruby-all-ready-for-the-queens-jubilee)
+- [Dog sitting for my friend today](https://news.puppy-snuggles.com/9368397/dog-sitting-for-my-friend-today)
+- [my little buddy](https://news.puppy-snuggles.com/19657767/my-little-buddy)
+- [He makes me smile so much. 👼](https://news.puppy-snuggles.com/12718987/he-makes-me-smile-so-much)
+- [the best girl](https://news.puppy-snuggles.com/5302076/the-best-girl)
+- [mind your table manners!](https://news.puppy-snuggles.com/11583650/mind-your-table-manners)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
