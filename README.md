@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Incase anyone didn’t know how wasteful big corporations are this is just 1% of what we find dumpster diving. Nothing expired, nothing recalled, nothing damaged. Perfectly good products that could be donated/discounted but instead thrown away because they get a bigger tax write off.](https://www.reddit.com/r/ZeroWaste/comments/wje1ga/incase_anyone_didnt_know_how_wasteful_big/iji7x10/)
 - [/u/joehx on Tuition reimbursement leaving before 2 year vesting](https://www.reddit.com/r/NorthropGrumman/comments/welhw9/tuition_reimbursement_leaving_before_2_year/iiouug8/)
 - [Cat Working on a Computer T-Shirt](https://www.reddit.com/r/u_joehx/comments/w3vo2b/cat_working_on_a_computer_tshirt/)
 - [In My Defense I Was Left Unsupervised T-Shirt](https://www.reddit.com/r/u_joehx/comments/w248nr/in_my_defense_i_was_left_unsupervised_tshirt/)
 - [JoeHx Tees - My Daily Routine: Get Up, Be Amazing, Go Back To Bed Tshirt](https://www.reddit.com/r/u_joehx/comments/vwzgnz/joehx_tees_my_daily_routine_get_up_be_amazing_go/)
-- [/u/joehx on When did you Blog start to make you $100/Month?](https://www.reddit.com/r/Blogging/comments/vv61nb/when_did_you_blog_start_to_make_you_100month/ifilzlh/)
 <!-- REDDIT:END -->
