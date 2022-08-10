@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog sitting for my friend today](https://news.puppy-snuggles.com/9368397/dog-sitting-for-my-friend-today)
-- [my little buddy](https://news.puppy-snuggles.com/19657767/my-little-buddy)
-- [He makes me smile so much. 👼](https://news.puppy-snuggles.com/12718987/he-makes-me-smile-so-much)
-- [the best girl](https://news.puppy-snuggles.com/5302076/the-best-girl)
-- [mind your table manners!](https://news.puppy-snuggles.com/11583650/mind-your-table-manners)
+- [Cam. 10 yrs old, golden. Napping with packmates. Good boy](https://news.puppy-snuggles.com/13557605/cam-10-yrs-old-golden-napping-with-packmates-good-boy)
+- [I just adopted her yesterday… meet Duffy! ❤️#fosterfail](https://news.puppy-snuggles.com/16601094/i-just-adopted-her-yesterday-meet-duffy-fosterfail)
+- [Old girl almost made it 15 years. We had a great run together, you were my best friend for so much of my life. Thank you for the happiness you gave me, Ruby. I hope you’re enjoying dog heaven with your hubby Max ♥️](https://news.puppy-snuggles.com/19581942/old-girl-almost-made-it-15-years-we-had-a-great-run-together-you-were-my-best-friend-for-so-much-of-my-life-thank-you-for-the-happiness-you-gave-me-ruby-i-hope-youre-enjoying-dog-heaven-with-your-hubby-max)
+- [My littermates are 7 today!](https://news.puppy-snuggles.com/13321436/my-littermates-are-7-today)
+- [lulu is a such a smiley girl](https://news.puppy-snuggles.com/19695964/lulu-is-a-such-a-smiley-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
