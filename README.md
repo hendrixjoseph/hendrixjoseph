@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cam. 10 yrs old, golden. Napping with packmates. Good boy](https://news.puppy-snuggles.com/13557605/cam-10-yrs-old-golden-napping-with-packmates-good-boy)
-- [I just adopted her yesterday… meet Duffy! ❤️#fosterfail](https://news.puppy-snuggles.com/16601094/i-just-adopted-her-yesterday-meet-duffy-fosterfail)
-- [Old girl almost made it 15 years. We had a great run together, you were my best friend for so much of my life. Thank you for the happiness you gave me, Ruby. I hope you’re enjoying dog heaven with your hubby Max ♥️](https://news.puppy-snuggles.com/19581942/old-girl-almost-made-it-15-years-we-had-a-great-run-together-you-were-my-best-friend-for-so-much-of-my-life-thank-you-for-the-happiness-you-gave-me-ruby-i-hope-youre-enjoying-dog-heaven-with-your-hubby-max)
-- [My littermates are 7 today!](https://news.puppy-snuggles.com/13321436/my-littermates-are-7-today)
-- [lulu is a such a smiley girl](https://news.puppy-snuggles.com/19695964/lulu-is-a-such-a-smiley-girl)
+- [My new shelter BFF, I know there is a happy brave boy in there!](https://news.puppy-snuggles.com/12572922/my-new-shelter-bff-i-know-there-is-a-happy-brave-boy-in-there)
+- [I miss you every single day Honey, my sweet angel &lpar;swipe for a cute puppy picture&rpar;](https://news.puppy-snuggles.com/13199071/i-miss-you-every-single-day-honey-my-sweet-angel-swipe-for-a-cute-puppy-picture)
+- [Year of the Dog](https://news.puppy-snuggles.com/12964283/year-of-the-dog)
+- [Paradise for every dog](https://news.puppy-snuggles.com/12807550/paradise-for-every-dog)
+- [Dog breed guesses?](https://news.puppy-snuggles.com/19733733/dog-breed-guesses)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
