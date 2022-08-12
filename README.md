@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new shelter BFF, I know there is a happy brave boy in there!](https://news.puppy-snuggles.com/12572922/my-new-shelter-bff-i-know-there-is-a-happy-brave-boy-in-there)
-- [I miss you every single day Honey, my sweet angel &lpar;swipe for a cute puppy picture&rpar;](https://news.puppy-snuggles.com/13199071/i-miss-you-every-single-day-honey-my-sweet-angel-swipe-for-a-cute-puppy-picture)
-- [Year of the Dog](https://news.puppy-snuggles.com/12964283/year-of-the-dog)
-- [Paradise for every dog](https://news.puppy-snuggles.com/12807550/paradise-for-every-dog)
-- [Dog breed guesses?](https://news.puppy-snuggles.com/19733733/dog-breed-guesses)
+- [My baby just being a good girl, enjoy sunlight and a chin rub](https://news.puppy-snuggles.com/13529921/my-baby-just-being-a-good-girl-enjoy-sunlight-and-a-chin-rub)
+- [I picked up petunia as a foster…but I think I love her and so does Hank!](https://news.puppy-snuggles.com/19760253/i-picked-up-petunia-as-a-fosterbut-i-think-i-love-her-and-so-does-hank)
+- [My doggo living her life](https://news.puppy-snuggles.com/19760255/my-doggo-living-her-life)
+- [Our little senior gal, rescued off the street 4 years ago. She&#39;s mostly blind and partially deaf, but still the best poser.](https://news.puppy-snuggles.com/10829098/our-little-senior-gal-rescued-off-the-street-4-years-ago-shes-mostly-blind-and-partially-deaf-but-still-the-best-poser)
+- [LMAO he caught me taking a picture of him](https://news.puppy-snuggles.com/7099522/lmao-he-caught-me-taking-a-picture-of-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
