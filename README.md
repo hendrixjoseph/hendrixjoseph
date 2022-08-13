@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Will the 3 big IDE:s be ready to handle debugging and other things related to virtual threads when Java 19 is released?](https://www.reddit.com/r/java/comments/wmkr1z/will_the_3_big_ides_be_ready_to_handle_debugging/ijzpkmn/)
 - [/u/joehx on As requested! The subreddits that users of this sub are most active in.](https://www.reddit.com/r/Frugal/comments/wl7cdg/as_requested_the_subreddits_that_users_of_this/ijupmtt/)
 - [/u/joehx on Incase anyone didn’t know how wasteful big corporations are this is just 1% of what we find dumpster diving. Nothing expired, nothing recalled, nothing damaged. Perfectly good products that could be donated/discounted but instead thrown away because they get a bigger tax write off.](https://www.reddit.com/r/ZeroWaste/comments/wje1ga/incase_anyone_didnt_know_how_wasteful_big/iji7x10/)
 - [/u/joehx on Tuition reimbursement leaving before 2 year vesting](https://www.reddit.com/r/NorthropGrumman/comments/welhw9/tuition_reimbursement_leaving_before_2_year/iiouug8/)
 - [Cat Working on a Computer T-Shirt](https://www.reddit.com/r/u_joehx/comments/w3vo2b/cat_working_on_a_computer_tshirt/)
-- [In My Defense I Was Left Unsupervised T-Shirt](https://www.reddit.com/r/u_joehx/comments/w248nr/in_my_defense_i_was_left_unsupervised_tshirt/)
 <!-- REDDIT:END -->
