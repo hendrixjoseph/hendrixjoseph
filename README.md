@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby just being a good girl, enjoy sunlight and a chin rub](https://news.puppy-snuggles.com/13529921/my-baby-just-being-a-good-girl-enjoy-sunlight-and-a-chin-rub)
-- [I picked up petunia as a foster…but I think I love her and so does Hank!](https://news.puppy-snuggles.com/19760253/i-picked-up-petunia-as-a-fosterbut-i-think-i-love-her-and-so-does-hank)
-- [My doggo living her life](https://news.puppy-snuggles.com/19760255/my-doggo-living-her-life)
-- [Our little senior gal, rescued off the street 4 years ago. She&#39;s mostly blind and partially deaf, but still the best poser.](https://news.puppy-snuggles.com/10829098/our-little-senior-gal-rescued-off-the-street-4-years-ago-shes-mostly-blind-and-partially-deaf-but-still-the-best-poser)
-- [LMAO he caught me taking a picture of him](https://news.puppy-snuggles.com/7099522/lmao-he-caught-me-taking-a-picture-of-him)
+- [The hardest part when you work at an animal refuge is when you can’t save them after they have been rescued. RIP to this beautiful pup, &lpar;her story in the comments&rpar; and we are sorry sweet girl we didn’t have a chance to give you a name](https://news.puppy-snuggles.com/18896276/the-hardest-part-when-you-work-at-an-animal-refuge-is-when-you-cant-save-them-after-they-have-been-rescued-rip-to-this-beautiful-pup-her-story-in-the-comments-and-we-are-sorry-sweet-girl-we-didnt-have-a-chance-to-give-you-a-name)
+- [cooper](https://news.puppy-snuggles.com/6822126/cooper)
+- [I smell food](https://news.puppy-snuggles.com/11124448/i-smell-food)
+- [He deserves the best](https://news.puppy-snuggles.com/6822124/he-deserves-the-best)
+- [Just a good boy taking his Tinder pic.](https://news.puppy-snuggles.com/13289370/just-a-good-boy-taking-his-tinder-pic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
