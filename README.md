@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The hardest part when you work at an animal refuge is when you can’t save them after they have been rescued. RIP to this beautiful pup, &lpar;her story in the comments&rpar; and we are sorry sweet girl we didn’t have a chance to give you a name](https://news.puppy-snuggles.com/18896276/the-hardest-part-when-you-work-at-an-animal-refuge-is-when-you-cant-save-them-after-they-have-been-rescued-rip-to-this-beautiful-pup-her-story-in-the-comments-and-we-are-sorry-sweet-girl-we-didnt-have-a-chance-to-give-you-a-name)
-- [cooper](https://news.puppy-snuggles.com/6822126/cooper)
-- [I smell food](https://news.puppy-snuggles.com/11124448/i-smell-food)
-- [He deserves the best](https://news.puppy-snuggles.com/6822124/he-deserves-the-best)
-- [Just a good boy taking his Tinder pic.](https://news.puppy-snuggles.com/13289370/just-a-good-boy-taking-his-tinder-pic)
+- [I’ve met this dog in Turkey while I was laying on the grass. We took pictures together 🥰](https://news.puppy-snuggles.com/19821360/ive-met-this-dog-in-turkey-while-i-was-laying-on-the-grass-we-took-pictures-together)
+- [i see it all...](https://news.puppy-snuggles.com/11691626/i-see-it-all)
+- [Happy hiker](https://news.puppy-snuggles.com/19036418/happy-hiker)
+- [Happy little pupper](https://news.puppy-snuggles.com/8139941/happy-little-pupper)
+- [I still can’t believe our 8 month old puppy posed for a picture at our wedding. Best day ever and she got to be a part of it!!!](https://news.puppy-snuggles.com/12105022/i-still-cant-believe-our-8-month-old-puppy-posed-for-a-picture-at-our-wedding-best-day-ever-and-she-got-to-be-a-part-of-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
