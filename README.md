@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ve met this dog in Turkey while I was laying on the grass. We took pictures together 🥰](https://news.puppy-snuggles.com/19821360/ive-met-this-dog-in-turkey-while-i-was-laying-on-the-grass-we-took-pictures-together)
-- [i see it all...](https://news.puppy-snuggles.com/11691626/i-see-it-all)
-- [Happy hiker](https://news.puppy-snuggles.com/19036418/happy-hiker)
-- [Happy little pupper](https://news.puppy-snuggles.com/8139941/happy-little-pupper)
-- [I still can’t believe our 8 month old puppy posed for a picture at our wedding. Best day ever and she got to be a part of it!!!](https://news.puppy-snuggles.com/12105022/i-still-cant-believe-our-8-month-old-puppy-posed-for-a-picture-at-our-wedding-best-day-ever-and-she-got-to-be-a-part-of-it)
+- [Cattle Dogs Are So ☺️](https://news.puppy-snuggles.com/19573363/cattle-dogs-are-so)
+- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
+- [Charleston Animal Society issues statement after 4 dogs found dead at ‘unlivable’ West Ashley home](https://news.puppy-snuggles.com/19566256/charleston-animal-society-issues-statement-after-4-dogs-found-dead-at-unlivable-west-ashley-home)
+- [Velma is back and happy. and the fridge is clean](https://news.puppy-snuggles.com/19668335/velma-is-back-and-happy-and-the-fridge-is-clean)
+- [Daisy being a goof before bedtime](https://news.puppy-snuggles.com/11236682/daisy-being-a-goof-before-bedtime)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
