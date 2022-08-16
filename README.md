@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cattle Dogs Are So ☺️](https://news.puppy-snuggles.com/19573363/cattle-dogs-are-so)
-- [My parent&#39;s curly haired, Nova Scotian Duck Tolling Retriever.](https://news.puppy-snuggles.com/11420317/my-parents-curly-haired-nova-scotian-duck-tolling-retriever)
-- [Charleston Animal Society issues statement after 4 dogs found dead at ‘unlivable’ West Ashley home](https://news.puppy-snuggles.com/19566256/charleston-animal-society-issues-statement-after-4-dogs-found-dead-at-unlivable-west-ashley-home)
-- [Velma is back and happy. and the fridge is clean](https://news.puppy-snuggles.com/19668335/velma-is-back-and-happy-and-the-fridge-is-clean)
-- [Daisy being a goof before bedtime](https://news.puppy-snuggles.com/11236682/daisy-being-a-goof-before-bedtime)
+- [A bit windy](https://news.puppy-snuggles.com/10767725/a-bit-windy)
+- [He just woke up from a nap :3](https://news.puppy-snuggles.com/10759238/he-just-woke-up-from-a-nap-3)
+- [I just realized my dog looks like the shy seal!!](https://news.puppy-snuggles.com/10759236/i-just-realized-my-dog-looks-like-the-shy-seal)
+- [My baby has his own baby](https://news.puppy-snuggles.com/10745365/my-baby-has-his-own-baby)
+- [The Whoopsie Face…](https://news.puppy-snuggles.com/10745363/the-whoopsie-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
