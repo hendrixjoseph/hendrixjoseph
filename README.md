@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A bit windy](https://news.puppy-snuggles.com/10767725/a-bit-windy)
-- [He just woke up from a nap :3](https://news.puppy-snuggles.com/10759238/he-just-woke-up-from-a-nap-3)
-- [I just realized my dog looks like the shy seal!!](https://news.puppy-snuggles.com/10759236/i-just-realized-my-dog-looks-like-the-shy-seal)
-- [My baby has his own baby](https://news.puppy-snuggles.com/10745365/my-baby-has-his-own-baby)
-- [The Whoopsie Face…](https://news.puppy-snuggles.com/10745363/the-whoopsie-face)
+- [The boys](https://news.puppy-snuggles.com/11764428/the-boys)
+- [FROG](https://news.puppy-snuggles.com/13315246/frog)
+- [Don&#39;t mind me, I&#39;m just relaxing](https://news.puppy-snuggles.com/19923921/dont-mind-me-im-just-relaxing)
+- [When your 5 minutes late with dinner.](https://news.puppy-snuggles.com/19923920/when-your-5-minutes-late-with-dinner)
+- [Apparently my dog does not want to go on a walk right now](https://news.puppy-snuggles.com/13359115/apparently-my-dog-does-not-want-to-go-on-a-walk-right-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
