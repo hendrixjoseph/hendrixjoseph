@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The boys](https://news.puppy-snuggles.com/11764428/the-boys)
-- [FROG](https://news.puppy-snuggles.com/13315246/frog)
-- [Don&#39;t mind me, I&#39;m just relaxing](https://news.puppy-snuggles.com/19923921/dont-mind-me-im-just-relaxing)
-- [When your 5 minutes late with dinner.](https://news.puppy-snuggles.com/19923920/when-your-5-minutes-late-with-dinner)
-- [Apparently my dog does not want to go on a walk right now](https://news.puppy-snuggles.com/13359115/apparently-my-dog-does-not-want-to-go-on-a-walk-right-now)
+- [The floof](https://news.puppy-snuggles.com/11349727/the-floof)
+- [new family member, baby scout](https://news.puppy-snuggles.com/14887000/new-family-member-baby-scout)
+- [All grown up](https://news.puppy-snuggles.com/9764271/all-grown-up)
+- [Hunter](https://news.puppy-snuggles.com/13476979/hunter)
+- [My husband and I are trying to befriend a local &lpar;supposed&rpar; stray. Could not get her to go through the house to the backyard though 😥 I guess we&#39;ll have to keep trying](https://news.puppy-snuggles.com/12206575/my-husband-and-i-are-trying-to-befriend-a-local-supposed-stray-could-not-get-her-to-go-through-the-house-to-the-backyard-though-i-guess-well-have-to-keep-trying)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
