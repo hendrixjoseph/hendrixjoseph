@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mailon sleeping with a friend](https://news.puppy-snuggles.com/19624136/mailon-sleeping-with-a-friend)
-- [My perfect little man, Dave.](https://news.puppy-snuggles.com/6248089/my-perfect-little-man-dave)
-- [meet the furry seal known as scout!](https://news.puppy-snuggles.com/11844461/meet-the-furry-seal-known-as-scout)
-- [I Love You Ghost](https://news.puppy-snuggles.com/13774971/i-love-you-ghost)
-- [A good and warm sleep](https://news.puppy-snuggles.com/10058189/a-good-and-warm-sleep)
+- [Rotten soldier girl 💜](https://news.puppy-snuggles.com/20023860/rotten-soldier-girl)
+- [Our Hero today. 2 years ago on this day this lovely girl &lpar;gracie&rpar; made one hell of a racket, when my wife forgot about the oil on the stove and it caught alight. She saved our house from burning down.](https://news.puppy-snuggles.com/14717982/our-hero-today-2-years-ago-on-this-day-this-lovely-girl-gracie-made-one-hell-of-a-racket-when-my-wife-forgot-about-the-oil-on-the-stove-and-it-caught-alight-she-saved-our-house-from-burning-down)
+- [Felix recently turned two!](https://news.puppy-snuggles.com/10673709/felix-recently-turned-two)
+- [What are you doing on the kitty bed?](https://news.puppy-snuggles.com/11407517/what-are-you-doing-on-the-kitty-bed)
+- [One of my favorite dog portraits that I took! WoofTastic.](https://news.puppy-snuggles.com/12065838/one-of-my-favorite-dog-portraits-that-i-took-wooftastic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
