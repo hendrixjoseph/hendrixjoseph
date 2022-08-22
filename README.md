@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [:D](https://news.puppy-snuggles.com/19751014/d)
-- [We are picking up this rescue boy in less than 2 weeks and cannot WAIT](https://news.puppy-snuggles.com/11558404/we-are-picking-up-this-rescue-boy-in-less-than-2-weeks-and-cannot-wait)
-- [Sorry for the rant.](https://news.puppy-snuggles.com/11407525/sorry-for-the-rant)
-- [Lucy was extremely excited to come to her new home](https://news.puppy-snuggles.com/11794063/lucy-was-extremely-excited-to-come-to-her-new-home)
-- [On his best behavior](https://news.puppy-snuggles.com/10430993/on-his-best-behavior)
+- [Ruger just cheesin’](https://news.puppy-snuggles.com/8188988/ruger-just-cheesin)
+- [My BestFriend , always smiling](https://news.puppy-snuggles.com/11954242/my-bestfriend-always-smiling)
+- [I&#39;m honestly playing xbox and look to my right to just see him staring at me like this.](https://news.puppy-snuggles.com/13641362/im-honestly-playing-xbox-and-look-to-my-right-to-just-see-him-staring-at-me-like-this)
+- [I adopted my dog from an organization that rescues from high kill shelters across the state. Her best friend there is a wolf-dog who is too wild to be adopted. We get to go visit occasionally 😊](https://news.puppy-snuggles.com/20081277/i-adopted-my-dog-from-an-organization-that-rescues-from-high-kill-shelters-across-the-state-her-best-friend-there-is-a-wolf-dog-who-is-too-wild-to-be-adopted-we-get-to-go-visit-occasionally)
+- [Sadie, 2 months to 2 years &lpar;+Her brother Hank&rpar;](https://news.puppy-snuggles.com/7724987/sadie-2-months-to-2-years-her-brother-hank)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
