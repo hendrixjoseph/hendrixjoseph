@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ruger just cheesin’](https://news.puppy-snuggles.com/8188988/ruger-just-cheesin)
-- [My BestFriend , always smiling](https://news.puppy-snuggles.com/11954242/my-bestfriend-always-smiling)
-- [I&#39;m honestly playing xbox and look to my right to just see him staring at me like this.](https://news.puppy-snuggles.com/13641362/im-honestly-playing-xbox-and-look-to-my-right-to-just-see-him-staring-at-me-like-this)
-- [I adopted my dog from an organization that rescues from high kill shelters across the state. Her best friend there is a wolf-dog who is too wild to be adopted. We get to go visit occasionally 😊](https://news.puppy-snuggles.com/20081277/i-adopted-my-dog-from-an-organization-that-rescues-from-high-kill-shelters-across-the-state-her-best-friend-there-is-a-wolf-dog-who-is-too-wild-to-be-adopted-we-get-to-go-visit-occasionally)
-- [Sadie, 2 months to 2 years &lpar;+Her brother Hank&rpar;](https://news.puppy-snuggles.com/7724987/sadie-2-months-to-2-years-her-brother-hank)
+- [Catch the smile](https://news.puppy-snuggles.com/10106203/catch-the-smile)
+- [The Tail of Two Labs](https://news.puppy-snuggles.com/12588544/the-tail-of-two-labs)
+- [When your dog wants to be outside but has FOMO](https://news.puppy-snuggles.com/17735570/when-your-dog-wants-to-be-outside-but-has-fomo)
+- [When you ask the owner to get together to nibble slippers 😂😂](https://news.puppy-snuggles.com/19723613/when-you-ask-the-owner-to-get-together-to-nibble-slippers)
+- [Every day I remind him that he&#39;s the best boy!](https://news.puppy-snuggles.com/17636254/every-day-i-remind-him-that-hes-the-best-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
