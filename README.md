@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on As requested! The subreddits that users of this sub are most active in.](https://www.reddit.com/r/Frugal/comments/wl7cdg/as_requested_the_subreddits_that_users_of_this/ikepdvl/)
-- [/u/joehx on Will the 3 big IDE:s be ready to handle debugging and other things related to virtual threads when Java 19 is released?](https://www.reddit.com/r/java/comments/wmkr1z/will_the_3_big_ides_be_ready_to_handle_debugging/ikep7wn/)
-- [/u/joehx on Will the 3 big IDE:s be ready to handle debugging and other things related to virtual threads when Java 19 is released?](https://www.reddit.com/r/java/comments/wmkr1z/will_the_3_big_ides_be_ready_to_handle_debugging/ijzpkmn/)
-- [/u/joehx on As requested! The subreddits that users of this sub are most active in.](https://www.reddit.com/r/Frugal/comments/wl7cdg/as_requested_the_subreddits_that_users_of_this/ijupmtt/)
-- [/u/joehx on Incase anyone didn’t know how wasteful big corporations are this is just 1% of what we find dumpster diving. Nothing expired, nothing recalled, nothing damaged. Perfectly good products that could be donated/discounted but instead thrown away because they get a bigger tax write off.](https://www.reddit.com/r/ZeroWaste/comments/wje1ga/incase_anyone_didnt_know_how_wasteful_big/iji7x10/)
+- [/u/joehx on Daily FI discussion thread - Monday, August 22, 2022](https://www.reddit.com/r/financialindependence/comments/wuoh0l/daily_fi_discussion_thread_monday_august_22_2022/ild3iza/)
+- [/u/joehx on Daily FI discussion thread - Monday, August 22, 2022](https://www.reddit.com/r/financialindependence/comments/wuoh0l/daily_fi_discussion_thread_monday_august_22_2022/ilcwi8s/)
+- [/u/joehx on Daily FI discussion thread - Monday, August 22, 2022](https://www.reddit.com/r/financialindependence/comments/wuoh0l/daily_fi_discussion_thread_monday_august_22_2022/ilcvwy5/)
+- [/u/joehx on Daily FI discussion thread - Monday, August 22, 2022](https://www.reddit.com/r/financialindependence/comments/wuoh0l/daily_fi_discussion_thread_monday_august_22_2022/ilcvugr/)
+- [/u/joehx on Daily FI discussion thread - Monday, August 22, 2022](https://www.reddit.com/r/financialindependence/comments/wuoh0l/daily_fi_discussion_thread_monday_august_22_2022/ilc46zw/)
 <!-- REDDIT:END -->
