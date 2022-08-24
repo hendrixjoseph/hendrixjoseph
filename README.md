@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Catch the smile](https://news.puppy-snuggles.com/10106203/catch-the-smile)
-- [The Tail of Two Labs](https://news.puppy-snuggles.com/12588544/the-tail-of-two-labs)
-- [When your dog wants to be outside but has FOMO](https://news.puppy-snuggles.com/17735570/when-your-dog-wants-to-be-outside-but-has-fomo)
-- [When you ask the owner to get together to nibble slippers 😂😂](https://news.puppy-snuggles.com/19723613/when-you-ask-the-owner-to-get-together-to-nibble-slippers)
-- [Every day I remind him that he&#39;s the best boy!](https://news.puppy-snuggles.com/17636254/every-day-i-remind-him-that-hes-the-best-boy)
+- [Last pictures of my girl before she crossed the bridge today. Cancer sucks and she deserves to be remembered.](https://news.puppy-snuggles.com/12053383/last-pictures-of-my-girl-before-she-crossed-the-bridge-today-cancer-sucks-and-she-deserves-to-be-remembered)
+- [how wonderful. that&#39;s a dog i really like](https://news.puppy-snuggles.com/8417889/how-wonderful-thats-a-dog-i-really-like)
+- [Just a dog after a long day of walking](https://news.puppy-snuggles.com/7013555/just-a-dog-after-a-long-day-of-walking)
+- [My pup Pixel &lpar; adopted Nov. &rpar;](https://news.puppy-snuggles.com/13615448/my-pup-pixel-adopted-nov)
+- [Selfie with and my friend](https://news.puppy-snuggles.com/10812624/selfie-with-and-my-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
