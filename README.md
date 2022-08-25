@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Last pictures of my girl before she crossed the bridge today. Cancer sucks and she deserves to be remembered.](https://news.puppy-snuggles.com/12053383/last-pictures-of-my-girl-before-she-crossed-the-bridge-today-cancer-sucks-and-she-deserves-to-be-remembered)
-- [how wonderful. that&#39;s a dog i really like](https://news.puppy-snuggles.com/8417889/how-wonderful-thats-a-dog-i-really-like)
-- [Just a dog after a long day of walking](https://news.puppy-snuggles.com/7013555/just-a-dog-after-a-long-day-of-walking)
-- [My pup Pixel &lpar; adopted Nov. &rpar;](https://news.puppy-snuggles.com/13615448/my-pup-pixel-adopted-nov)
-- [Selfie with and my friend](https://news.puppy-snuggles.com/10812624/selfie-with-and-my-friend)
+- [Tongue Smile!](https://news.puppy-snuggles.com/11046586/tongue-smile)
+- [Always Smiling, my little Eva](https://news.puppy-snuggles.com/11037964/always-smiling-my-little-eva)
+- [watch my dog grow up](https://news.puppy-snuggles.com/11037963/watch-my-dog-grow-up)
+- [My girl, Ash.](https://news.puppy-snuggles.com/11037962/my-girl-ash)
+- [Don&#39;t touch my puppies! I am watching you Mister.](https://news.puppy-snuggles.com/11028468/dont-touch-my-puppies-i-am-watching-you-mister)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
