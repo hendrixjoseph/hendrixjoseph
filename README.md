@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tongue Smile!](https://news.puppy-snuggles.com/11046586/tongue-smile)
-- [Always Smiling, my little Eva](https://news.puppy-snuggles.com/11037964/always-smiling-my-little-eva)
-- [watch my dog grow up](https://news.puppy-snuggles.com/11037963/watch-my-dog-grow-up)
-- [My girl, Ash.](https://news.puppy-snuggles.com/11037962/my-girl-ash)
-- [Don&#39;t touch my puppies! I am watching you Mister.](https://news.puppy-snuggles.com/11028468/dont-touch-my-puppies-i-am-watching-you-mister)
+- [Ready to the Garden.!!!](https://news.puppy-snuggles.com/7229137/ready-to-the-garden)
+- [I&#39;m so lucky](https://news.puppy-snuggles.com/17921394/im-so-lucky)
+- [Hugh Jackman says “blep”](https://news.puppy-snuggles.com/6333240/hugh-jackman-says-blep)
+- [Happy old boy!](https://news.puppy-snuggles.com/13055986/happy-old-boy)
+- [Tucker just wants all the attention](https://news.puppy-snuggles.com/13783957/tucker-just-wants-all-the-attention)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
