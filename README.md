@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ready to the Garden.!!!](https://news.puppy-snuggles.com/7229137/ready-to-the-garden)
-- [I&#39;m so lucky](https://news.puppy-snuggles.com/17921394/im-so-lucky)
-- [Hugh Jackman says “blep”](https://news.puppy-snuggles.com/6333240/hugh-jackman-says-blep)
-- [Happy old boy!](https://news.puppy-snuggles.com/13055986/happy-old-boy)
-- [Tucker just wants all the attention](https://news.puppy-snuggles.com/13783957/tucker-just-wants-all-the-attention)
+- [My dog Rufus](https://news.puppy-snuggles.com/13145566/my-dog-rufus)
+- [So heartbroken to have lost my best friend of almost 15 yrs. You were the best boy Jack 💔](https://news.puppy-snuggles.com/13047104/so-heartbroken-to-have-lost-my-best-friend-of-almost-15-yrs-you-were-the-best-boy-jack)
+- [Showing his beautiful smile](https://news.puppy-snuggles.com/10820977/showing-his-beautiful-smile)
+- [Hi Everyone give Jeff a wave](https://news.puppy-snuggles.com/8507967/hi-everyone-give-jeff-a-wave)
+- [Dalmatian being the perfect model! &lpar;Seattle WA&rpar;](https://news.puppy-snuggles.com/13138558/dalmatian-being-the-perfect-model-seattle-wa)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
