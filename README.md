@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog Rufus](https://news.puppy-snuggles.com/13145566/my-dog-rufus)
-- [So heartbroken to have lost my best friend of almost 15 yrs. You were the best boy Jack 💔](https://news.puppy-snuggles.com/13047104/so-heartbroken-to-have-lost-my-best-friend-of-almost-15-yrs-you-were-the-best-boy-jack)
-- [Showing his beautiful smile](https://news.puppy-snuggles.com/10820977/showing-his-beautiful-smile)
-- [Hi Everyone give Jeff a wave](https://news.puppy-snuggles.com/8507967/hi-everyone-give-jeff-a-wave)
-- [Dalmatian being the perfect model! &lpar;Seattle WA&rpar;](https://news.puppy-snuggles.com/13138558/dalmatian-being-the-perfect-model-seattle-wa)
+- [If you make a mistake, please come back and apologize too.](https://news.puppy-snuggles.com/4536639/if-you-make-a-mistake-please-come-back-and-apologize-too)
+- [When you&#39;re late for work](https://news.puppy-snuggles.com/16957576/when-youre-late-for-work)
+- [This little 3 lbs. dude is a descendant of a wolf?](https://news.puppy-snuggles.com/19393881/this-little-3-lbs-dude-is-a-descendant-of-a-wolf)
+- [These two are very cuddly](https://news.puppy-snuggles.com/19133097/these-two-are-very-cuddly)
+- [Pogdog](https://news.puppy-snuggles.com/7553672/pogdog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
