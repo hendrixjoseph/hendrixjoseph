@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you make a mistake, please come back and apologize too.](https://news.puppy-snuggles.com/4536639/if-you-make-a-mistake-please-come-back-and-apologize-too)
-- [When you&#39;re late for work](https://news.puppy-snuggles.com/16957576/when-youre-late-for-work)
-- [This little 3 lbs. dude is a descendant of a wolf?](https://news.puppy-snuggles.com/19393881/this-little-3-lbs-dude-is-a-descendant-of-a-wolf)
-- [These two are very cuddly](https://news.puppy-snuggles.com/19133097/these-two-are-very-cuddly)
-- [Pogdog](https://news.puppy-snuggles.com/7553672/pogdog)
+- [Zuko is getting big!](https://news.puppy-snuggles.com/8979195/zuko-is-getting-big)
+- [Unpugged from the matrix](https://news.puppy-snuggles.com/7536889/unpugged-from-the-matrix)
+- [welcome summer](https://news.puppy-snuggles.com/14904878/welcome-summer)
+- [Goodnight frens](https://news.puppy-snuggles.com/13582001/goodnight-frens)
+- [She has never seen so much snow](https://news.puppy-snuggles.com/4096605/she-has-never-seen-so-much-snow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
