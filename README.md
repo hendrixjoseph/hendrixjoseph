@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Zuko is getting big!](https://news.puppy-snuggles.com/8979195/zuko-is-getting-big)
-- [Unpugged from the matrix](https://news.puppy-snuggles.com/7536889/unpugged-from-the-matrix)
-- [welcome summer](https://news.puppy-snuggles.com/14904878/welcome-summer)
-- [Goodnight frens](https://news.puppy-snuggles.com/13582001/goodnight-frens)
-- [She has never seen so much snow](https://news.puppy-snuggles.com/4096605/she-has-never-seen-so-much-snow)
+- [Dog drinking rain...](https://news.puppy-snuggles.com/11469368/dog-drinking-rain)
+- [what breed is my handsome 80lbs boy?](https://news.puppy-snuggles.com/20222650/what-breed-is-my-handsome-80lbs-boy)
+- [Cute Dog and Fall Leaves](https://news.puppy-snuggles.com/11892605/cute-dog-and-fall-leaves)
+- [Our little bumblebees getting ready for Howl-o-ween❤️](https://news.puppy-snuggles.com/9789373/our-little-bumblebees-getting-ready-for-howl-o-ween)
+- [This is my beautiful boy Buddy ^-^](https://news.puppy-snuggles.com/13468256/this-is-my-beautiful-boy-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
