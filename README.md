@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog drinking rain...](https://news.puppy-snuggles.com/11469368/dog-drinking-rain)
-- [what breed is my handsome 80lbs boy?](https://news.puppy-snuggles.com/20222650/what-breed-is-my-handsome-80lbs-boy)
-- [Cute Dog and Fall Leaves](https://news.puppy-snuggles.com/11892605/cute-dog-and-fall-leaves)
-- [Our little bumblebees getting ready for Howl-o-ween❤️](https://news.puppy-snuggles.com/9789373/our-little-bumblebees-getting-ready-for-howl-o-ween)
-- [This is my beautiful boy Buddy ^-^](https://news.puppy-snuggles.com/13468256/this-is-my-beautiful-boy-buddy)
+- [Big cool grin at the end 😎](https://news.puppy-snuggles.com/13335251/big-cool-grin-at-the-end)
+- [Good Morning! Hands off keyboard and pet me!](https://news.puppy-snuggles.com/17405672/good-morning-hands-off-keyboard-and-pet-me)
+- [Look at her face. She acts as if it’s the best day of her life.](https://news.puppy-snuggles.com/13037989/look-at-her-face-she-acts-as-if-its-the-best-day-of-her-life)
+- [boop me hooman!](https://news.puppy-snuggles.com/16530387/boop-me-hooman)
+- [Roommate rescued a puppy. Her name is Mia and she has to grow into those ears!](https://news.puppy-snuggles.com/11133823/roommate-rescued-a-puppy-her-name-is-mia-and-she-has-to-grow-into-those-ears)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
