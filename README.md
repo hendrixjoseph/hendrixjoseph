@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big cool grin at the end 😎](https://news.puppy-snuggles.com/13335251/big-cool-grin-at-the-end)
-- [Good Morning! Hands off keyboard and pet me!](https://news.puppy-snuggles.com/17405672/good-morning-hands-off-keyboard-and-pet-me)
-- [Look at her face. She acts as if it’s the best day of her life.](https://news.puppy-snuggles.com/13037989/look-at-her-face-she-acts-as-if-its-the-best-day-of-her-life)
-- [boop me hooman!](https://news.puppy-snuggles.com/16530387/boop-me-hooman)
-- [Roommate rescued a puppy. Her name is Mia and she has to grow into those ears!](https://news.puppy-snuggles.com/11133823/roommate-rescued-a-puppy-her-name-is-mia-and-she-has-to-grow-into-those-ears)
+- [My best girl Lucy had such a beautiful and happy smile. We lost her 10 weeks ago today at age 17. But she’s in our hearts every single minute of every single day.](https://news.puppy-snuggles.com/5157884/my-best-girl-lucy-had-such-a-beautiful-and-happy-smile-we-lost-her-10-weeks-ago-today-at-age-17-but-shes-in-our-hearts-every-single-minute-of-every-single-day)
+- [Baby girl is 12!](https://news.puppy-snuggles.com/5149145/baby-girl-is-12)
+- [Had a surgery on his leggy, still smiling though!](https://news.puppy-snuggles.com/5149144/had-a-surgery-on-his-leggy-still-smiling-though)
+- [Hugo and Otis &lpar;father and son&rpar;](https://news.puppy-snuggles.com/5149143/hugo-and-otis-father-and-son)
+- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
