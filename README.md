@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My best girl Lucy had such a beautiful and happy smile. We lost her 10 weeks ago today at age 17. But she’s in our hearts every single minute of every single day.](https://news.puppy-snuggles.com/5157884/my-best-girl-lucy-had-such-a-beautiful-and-happy-smile-we-lost-her-10-weeks-ago-today-at-age-17-but-shes-in-our-hearts-every-single-minute-of-every-single-day)
-- [Baby girl is 12!](https://news.puppy-snuggles.com/5149145/baby-girl-is-12)
-- [Had a surgery on his leggy, still smiling though!](https://news.puppy-snuggles.com/5149144/had-a-surgery-on-his-leggy-still-smiling-though)
-- [Hugo and Otis &lpar;father and son&rpar;](https://news.puppy-snuggles.com/5149143/hugo-and-otis-father-and-son)
-- [This is Edie and she’s very surprised by what you have to say.](https://news.puppy-snuggles.com/5143822/this-is-edie-and-shes-very-surprised-by-what-you-have-to-say)
+- [Here&#39;s a bunch of pictures of Beagle Boy Leo!](https://news.puppy-snuggles.com/20319549/heres-a-bunch-of-pictures-of-beagle-boy-leo)
+- [I love these little men so much](https://news.puppy-snuggles.com/12387150/i-love-these-little-men-so-much)
+- [My sweet Kinsey, Kinsey Bear, Little Mamas. She had to take the big sleep yesterday, after twelve years of love. I could write an entire book about her, but for now I just want to say that I’ll miss you forever. Rest easy sweet girl.](https://news.puppy-snuggles.com/11538905/my-sweet-kinsey-kinsey-bear-little-mamas-she-had-to-take-the-big-sleep-yesterday-after-twelve-years-of-love-i-could-write-an-entire-book-about-her-but-for-now-i-just-want-to-say-that-ill-miss-you-forever-rest-easy-sweet-girl)
+- [Sadie](https://news.puppy-snuggles.com/11124450/sadie)
+- [Just your cute neighborhood dog checking in to make sure you’ve had a good day!](https://news.puppy-snuggles.com/13047108/just-your-cute-neighborhood-dog-checking-in-to-make-sure-youve-had-a-good-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
