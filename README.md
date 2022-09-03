@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here&#39;s a bunch of pictures of Beagle Boy Leo!](https://news.puppy-snuggles.com/20319549/heres-a-bunch-of-pictures-of-beagle-boy-leo)
-- [I love these little men so much](https://news.puppy-snuggles.com/12387150/i-love-these-little-men-so-much)
-- [My sweet Kinsey, Kinsey Bear, Little Mamas. She had to take the big sleep yesterday, after twelve years of love. I could write an entire book about her, but for now I just want to say that I’ll miss you forever. Rest easy sweet girl.](https://news.puppy-snuggles.com/11538905/my-sweet-kinsey-kinsey-bear-little-mamas-she-had-to-take-the-big-sleep-yesterday-after-twelve-years-of-love-i-could-write-an-entire-book-about-her-but-for-now-i-just-want-to-say-that-ill-miss-you-forever-rest-easy-sweet-girl)
-- [Sadie](https://news.puppy-snuggles.com/11124450/sadie)
-- [Just your cute neighborhood dog checking in to make sure you’ve had a good day!](https://news.puppy-snuggles.com/13047108/just-your-cute-neighborhood-dog-checking-in-to-make-sure-youve-had-a-good-day)
+- [My baby boy. The 186 lb lap dog.](https://news.puppy-snuggles.com/13897615/my-baby-boy-the-186-lb-lap-dog)
+- [Dobby &amp;amp;amp; Archer! Best friend&#39;s forever!!❤](https://news.puppy-snuggles.com/9527403/dobby-amp-archer-best-friends-forever)
+- [4 years ago today I adopted this little good ball!](https://news.puppy-snuggles.com/10665867/4-years-ago-today-i-adopted-this-little-good-ball)
+- [My sister’s dog looks more like a stuffed animal than a real dog](https://news.puppy-snuggles.com/8526753/my-sisters-dog-looks-more-like-a-stuffed-animal-than-a-real-dog)
+- [A rare smile from my grumpy Lhasa Apso!💛💜](https://news.puppy-snuggles.com/13557603/a-rare-smile-from-my-grumpy-lhasa-apso)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
