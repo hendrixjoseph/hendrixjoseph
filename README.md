@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby boy. The 186 lb lap dog.](https://news.puppy-snuggles.com/13897615/my-baby-boy-the-186-lb-lap-dog)
-- [Dobby &amp;amp;amp; Archer! Best friend&#39;s forever!!❤](https://news.puppy-snuggles.com/9527403/dobby-amp-archer-best-friends-forever)
-- [4 years ago today I adopted this little good ball!](https://news.puppy-snuggles.com/10665867/4-years-ago-today-i-adopted-this-little-good-ball)
-- [My sister’s dog looks more like a stuffed animal than a real dog](https://news.puppy-snuggles.com/8526753/my-sisters-dog-looks-more-like-a-stuffed-animal-than-a-real-dog)
-- [A rare smile from my grumpy Lhasa Apso!💛💜](https://news.puppy-snuggles.com/13557603/a-rare-smile-from-my-grumpy-lhasa-apso)
+- [So apparently Hunter learned to use a pillow](https://news.puppy-snuggles.com/13154548/so-apparently-hunter-learned-to-use-a-pillow)
+- [Best Friend Ever](https://news.puppy-snuggles.com/11150835/best-friend-ever)
+- [That smile could light up a whole town](https://news.puppy-snuggles.com/13744866/that-smile-could-light-up-a-whole-town)
+- [I love driving](https://news.puppy-snuggles.com/17064554/i-love-driving)
+- [Our dog Rocco went to heaven today. This was taken an hour before he left us. He had T-cell lymphoma 💔](https://news.puppy-snuggles.com/11599858/our-dog-rocco-went-to-heaven-today-this-was-taken-an-hour-before-he-left-us-he-had-t-cell-lymphoma)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
