@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So apparently Hunter learned to use a pillow](https://news.puppy-snuggles.com/13154548/so-apparently-hunter-learned-to-use-a-pillow)
-- [Best Friend Ever](https://news.puppy-snuggles.com/11150835/best-friend-ever)
-- [That smile could light up a whole town](https://news.puppy-snuggles.com/13744866/that-smile-could-light-up-a-whole-town)
-- [I love driving](https://news.puppy-snuggles.com/17064554/i-love-driving)
-- [Our dog Rocco went to heaven today. This was taken an hour before he left us. He had T-cell lymphoma 💔](https://news.puppy-snuggles.com/11599858/our-dog-rocco-went-to-heaven-today-this-was-taken-an-hour-before-he-left-us-he-had-t-cell-lymphoma)
+- [Presa Canario puppy &lpar;9 months old&rpar;](https://news.puppy-snuggles.com/15034202/presa-canario-puppy-9-months-old)
+- [She has a knife](https://news.puppy-snuggles.com/12892406/she-has-a-knife)
+- [Spent a while training her to be patient. I&#39;m very proud of how far she&#39;s come](https://news.puppy-snuggles.com/11750154/spent-a-while-training-her-to-be-patient-im-very-proud-of-how-far-shes-come)
+- [Delilah](https://news.puppy-snuggles.com/11676126/delilah)
+- [She has THREE BEDS](https://news.puppy-snuggles.com/6933084/she-has-three-beds)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
