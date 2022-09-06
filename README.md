@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Presa Canario puppy &lpar;9 months old&rpar;](https://news.puppy-snuggles.com/15034202/presa-canario-puppy-9-months-old)
-- [She has a knife](https://news.puppy-snuggles.com/12892406/she-has-a-knife)
-- [Spent a while training her to be patient. I&#39;m very proud of how far she&#39;s come](https://news.puppy-snuggles.com/11750154/spent-a-while-training-her-to-be-patient-im-very-proud-of-how-far-shes-come)
-- [Delilah](https://news.puppy-snuggles.com/11676126/delilah)
-- [She has THREE BEDS](https://news.puppy-snuggles.com/6933084/she-has-three-beds)
+- [once again, Bob my dog, running like a puppy &lpar;he even spilled my brother&#39;s juice&rpar;](https://news.puppy-snuggles.com/14419824/once-again-bob-my-dog-running-like-a-puppy-he-even-spilled-my-brothers-juice)
+- [Do you think you can skate better than that?](https://news.puppy-snuggles.com/16032376/do-you-think-you-can-skate-better-than-that)
+- [The mother lode](https://news.puppy-snuggles.com/11452984/the-mother-lode)
+- [You are welcome](https://news.puppy-snuggles.com/12777747/you-are-welcome)
+- [Fenton is getting bigger, but he still loves visiting the office](https://news.puppy-snuggles.com/11210788/fenton-is-getting-bigger-but-he-still-loves-visiting-the-office)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
