@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [once again, Bob my dog, running like a puppy &lpar;he even spilled my brother&#39;s juice&rpar;](https://news.puppy-snuggles.com/14419824/once-again-bob-my-dog-running-like-a-puppy-he-even-spilled-my-brothers-juice)
-- [Do you think you can skate better than that?](https://news.puppy-snuggles.com/16032376/do-you-think-you-can-skate-better-than-that)
-- [The mother lode](https://news.puppy-snuggles.com/11452984/the-mother-lode)
-- [You are welcome](https://news.puppy-snuggles.com/12777747/you-are-welcome)
-- [Fenton is getting bigger, but he still loves visiting the office](https://news.puppy-snuggles.com/11210788/fenton-is-getting-bigger-but-he-still-loves-visiting-the-office)
+- [Daisy from Ukraine](https://news.puppy-snuggles.com/17293275/daisy-from-ukraine)
+- [Fun Day at the Beach!](https://news.puppy-snuggles.com/8740312/fun-day-at-the-beach)
+- [Good country boi crossed the rainbow bridge yesterday under his favorite shady tree. I hope he’s playing with every sprinkler he wants up there.](https://news.puppy-snuggles.com/7910979/good-country-boi-crossed-the-rainbow-bridge-yesterday-under-his-favorite-shady-tree-i-hope-hes-playing-with-every-sprinkler-he-wants-up-there)
+- [The afternoon is so peaceful](https://news.puppy-snuggles.com/7973976/the-afternoon-is-so-peaceful)
+- [My little chunk turns one on Friday](https://news.puppy-snuggles.com/5532296/my-little-chunk-turns-one-on-friday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
