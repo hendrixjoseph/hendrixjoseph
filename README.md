@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daisy from Ukraine](https://news.puppy-snuggles.com/17293275/daisy-from-ukraine)
-- [Fun Day at the Beach!](https://news.puppy-snuggles.com/8740312/fun-day-at-the-beach)
-- [Good country boi crossed the rainbow bridge yesterday under his favorite shady tree. I hope he’s playing with every sprinkler he wants up there.](https://news.puppy-snuggles.com/7910979/good-country-boi-crossed-the-rainbow-bridge-yesterday-under-his-favorite-shady-tree-i-hope-hes-playing-with-every-sprinkler-he-wants-up-there)
-- [The afternoon is so peaceful](https://news.puppy-snuggles.com/7973976/the-afternoon-is-so-peaceful)
-- [My little chunk turns one on Friday](https://news.puppy-snuggles.com/5532296/my-little-chunk-turns-one-on-friday)
+- [My neighbors got a puppy, and he is such a GOOD BOY!!](https://news.puppy-snuggles.com/13343037/my-neighbors-got-a-puppy-and-he-is-such-a-good-boy)
+- [Home decor with dogs](https://news.puppy-snuggles.com/7611009/home-decor-with-dogs)
+- [Théoden may think he&#39;s king, but that&#39;s my throne!](https://news.puppy-snuggles.com/13005335/theoden-may-think-hes-king-but-thats-my-throne)
+- [His smile hasn&#39;t changed!](https://news.puppy-snuggles.com/15299296/his-smile-hasnt-changed)
+- [Molly enjoyed her snow day!](https://news.puppy-snuggles.com/14543522/molly-enjoyed-her-snow-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
