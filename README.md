@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My neighbors got a puppy, and he is such a GOOD BOY!!](https://news.puppy-snuggles.com/13343037/my-neighbors-got-a-puppy-and-he-is-such-a-good-boy)
-- [Home decor with dogs](https://news.puppy-snuggles.com/7611009/home-decor-with-dogs)
-- [Théoden may think he&#39;s king, but that&#39;s my throne!](https://news.puppy-snuggles.com/13005335/theoden-may-think-hes-king-but-thats-my-throne)
-- [His smile hasn&#39;t changed!](https://news.puppy-snuggles.com/15299296/his-smile-hasnt-changed)
-- [Molly enjoyed her snow day!](https://news.puppy-snuggles.com/14543522/molly-enjoyed-her-snow-day)
+- [Happy Halloween !](https://news.puppy-snuggles.com/10890302/happy-halloween)
+- [The Great Wave of Dogs, made by me:&rpar; &lpar;art&rpar;](https://news.puppy-snuggles.com/20284257/the-great-wave-of-dogs-made-by-me-art)
+- [The ones that keep me going😍](https://news.puppy-snuggles.com/10700050/the-ones-that-keep-me-going)
+- [I used to take her to this pier every day before it was closed to the public. This grin suggests she enjoyed it](https://news.puppy-snuggles.com/9755135/i-used-to-take-her-to-this-pier-every-day-before-it-was-closed-to-the-public-this-grin-suggests-she-enjoyed-it)
+- [Happy International Dog Day from Hank and Ladybird!](https://news.puppy-snuggles.com/20277056/happy-international-dog-day-from-hank-and-ladybird)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
