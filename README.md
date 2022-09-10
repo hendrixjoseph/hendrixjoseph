@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Halloween !](https://news.puppy-snuggles.com/10890302/happy-halloween)
-- [The Great Wave of Dogs, made by me:&rpar; &lpar;art&rpar;](https://news.puppy-snuggles.com/20284257/the-great-wave-of-dogs-made-by-me-art)
-- [The ones that keep me going😍](https://news.puppy-snuggles.com/10700050/the-ones-that-keep-me-going)
-- [I used to take her to this pier every day before it was closed to the public. This grin suggests she enjoyed it](https://news.puppy-snuggles.com/9755135/i-used-to-take-her-to-this-pier-every-day-before-it-was-closed-to-the-public-this-grin-suggests-she-enjoyed-it)
-- [Happy International Dog Day from Hank and Ladybird!](https://news.puppy-snuggles.com/20277056/happy-international-dog-day-from-hank-and-ladybird)
+- [My three legged girl ❤️](https://news.puppy-snuggles.com/18877738/my-three-legged-girl)
+- [Staffordshire Bull Terrier Toys](https://news.puppy-snuggles.com/19046183/staffordshire-bull-terrier-toys)
+- [Breeze just kicking back](https://news.puppy-snuggles.com/5097610/breeze-just-kicking-back)
+- [Let drive him to the trampolines](https://news.puppy-snuggles.com/19460929/let-drive-him-to-the-trampolines)
+- [Just rescued this little fella from a high kill shelter. He&#39;s the cutest puppy I&#39;ve ever seen in my life and is such an incredible sweetheart! 🥺💙](https://news.puppy-snuggles.com/18984141/just-rescued-this-little-fella-from-a-high-kill-shelter-hes-the-cutest-puppy-ive-ever-seen-in-my-life-and-is-such-an-incredible-sweetheart)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
