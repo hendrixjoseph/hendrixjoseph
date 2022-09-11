@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My three legged girl ❤️](https://news.puppy-snuggles.com/18877738/my-three-legged-girl)
-- [Staffordshire Bull Terrier Toys](https://news.puppy-snuggles.com/19046183/staffordshire-bull-terrier-toys)
-- [Breeze just kicking back](https://news.puppy-snuggles.com/5097610/breeze-just-kicking-back)
-- [Let drive him to the trampolines](https://news.puppy-snuggles.com/19460929/let-drive-him-to-the-trampolines)
-- [Just rescued this little fella from a high kill shelter. He&#39;s the cutest puppy I&#39;ve ever seen in my life and is such an incredible sweetheart! 🥺💙](https://news.puppy-snuggles.com/18984141/just-rescued-this-little-fella-from-a-high-kill-shelter-hes-the-cutest-puppy-ive-ever-seen-in-my-life-and-is-such-an-incredible-sweetheart)
+- [Let&#39;s Dance](https://news.puppy-snuggles.com/11996161/lets-dance)
+- [First bath smiles &amp;amp;lt;3](https://news.puppy-snuggles.com/14650719/first-bath-smiles-lt3)
+- [Found out today that my &lpar;not so little&rpar; boy has a cancerous tumour in his hip that will continue to grow. Not sure how long we have left with him. I wish they survived forever ❤️](https://news.puppy-snuggles.com/14634504/found-out-today-that-my-not-so-little-boy-has-a-cancerous-tumour-in-his-hip-that-will-continue-to-grow-not-sure-how-long-we-have-left-with-him-i-wish-they-survived-forever)
+- [A Decade of Life for Diachi. Happy Birthday sweetheart.](https://news.puppy-snuggles.com/14650720/a-decade-of-life-for-diachi-happy-birthday-sweetheart)
+- [I Like To Do This When It Rains...](https://news.puppy-snuggles.com/10273231/i-like-to-do-this-when-it-rains)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
