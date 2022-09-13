@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [That one time when my mom showed my dog a caterpillar and she hysterically over reacted like she was both disgusted and horrified. I have 2 other hilarious pictures of this situation. Everytime I see this, I imagine her screaming dumb like Heffer from Rocko&#39;s Modern Life 😂](https://news.puppy-snuggles.com/8059064/that-one-time-when-my-mom-showed-my-dog-a-caterpillar-and-she-hysterically-over-reacted-like-she-was-both-disgusted-and-horrified-i-have-2-other-hilarious-pictures-of-this-situation-everytime-i-see-this-i-imagine-her-screaming-dumb-like-heffer-from-rockos-modern-life)
-- [The dog](https://news.puppy-snuggles.com/7724991/the-dog)
-- [ozzy you ?&rpar;](https://news.puppy-snuggles.com/19296176/ozzy-you)
-- [Comet, Reggie and Ruby](https://news.puppy-snuggles.com/19270356/comet-reggie-and-ruby)
-- [My dogs give off drastically different vibes](https://news.puppy-snuggles.com/13328440/my-dogs-give-off-drastically-different-vibes)
+- [Can you guess what mixed breed is Bentley?](https://news.puppy-snuggles.com/14333670/can-you-guess-what-mixed-breed-is-bentley)
+- [Happy Girl! 🌼 Cookie, the sweet Mini-Dachshund!](https://news.puppy-snuggles.com/12263112/happy-girl-cookie-the-sweet-mini-dachshund)
+- [Dreaming sweetly](https://news.puppy-snuggles.com/11236686/dreaming-sweetly)
+- [Frank. 10 Years ❤️](https://news.puppy-snuggles.com/17636256/frank-10-years)
+- [Three stooges](https://news.puppy-snuggles.com/10141672/three-stooges)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
