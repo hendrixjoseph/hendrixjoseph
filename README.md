@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can you guess what mixed breed is Bentley?](https://news.puppy-snuggles.com/14333670/can-you-guess-what-mixed-breed-is-bentley)
-- [Happy Girl! 🌼 Cookie, the sweet Mini-Dachshund!](https://news.puppy-snuggles.com/12263112/happy-girl-cookie-the-sweet-mini-dachshund)
-- [Dreaming sweetly](https://news.puppy-snuggles.com/11236686/dreaming-sweetly)
-- [Frank. 10 Years ❤️](https://news.puppy-snuggles.com/17636256/frank-10-years)
-- [Three stooges](https://news.puppy-snuggles.com/10141672/three-stooges)
+- [I moustache you a question](https://news.puppy-snuggles.com/12816057/i-moustache-you-a-question)
+- [My dogs first camping trip](https://news.puppy-snuggles.com/12180259/my-dogs-first-camping-trip)
+- [hahaha](https://news.puppy-snuggles.com/7273540/hahaha)
+- [Small stick](https://news.puppy-snuggles.com/8731290/small-stick)
+- [Charlie is crossing rainbow bridge this morning. He was a very, very, very good boy. I love you Charlie.](https://news.puppy-snuggles.com/12250729/charlie-is-crossing-rainbow-bridge-this-morning-he-was-a-very-very-very-good-boy-i-love-you-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
