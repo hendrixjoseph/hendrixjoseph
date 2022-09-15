@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I moustache you a question](https://news.puppy-snuggles.com/12816057/i-moustache-you-a-question)
-- [My dogs first camping trip](https://news.puppy-snuggles.com/12180259/my-dogs-first-camping-trip)
-- [hahaha](https://news.puppy-snuggles.com/7273540/hahaha)
-- [Small stick](https://news.puppy-snuggles.com/8731290/small-stick)
-- [Charlie is crossing rainbow bridge this morning. He was a very, very, very good boy. I love you Charlie.](https://news.puppy-snuggles.com/12250729/charlie-is-crossing-rainbow-bridge-this-morning-he-was-a-very-very-very-good-boy-i-love-you-charlie)
+- [Reflecting](https://news.puppy-snuggles.com/8274680/reflecting)
+- [Dog nail not broken but very swollen](https://news.puppy-snuggles.com/11599864/dog-nail-not-broken-but-very-swollen)
+- [The first few nights home…](https://news.puppy-snuggles.com/10083362/the-first-few-nights-home)
+- [How am I supposed to leave the house with Daisy looking at me like this?](https://news.puppy-snuggles.com/12004421/how-am-i-supposed-to-leave-the-house-with-daisy-looking-at-me-like-this)
+- [Happy second birthday my king](https://news.puppy-snuggles.com/19668340/happy-second-birthday-my-king)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
