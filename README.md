@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Reflecting](https://news.puppy-snuggles.com/8274680/reflecting)
-- [Dog nail not broken but very swollen](https://news.puppy-snuggles.com/11599864/dog-nail-not-broken-but-very-swollen)
-- [The first few nights home…](https://news.puppy-snuggles.com/10083362/the-first-few-nights-home)
-- [How am I supposed to leave the house with Daisy looking at me like this?](https://news.puppy-snuggles.com/12004421/how-am-i-supposed-to-leave-the-house-with-daisy-looking-at-me-like-this)
-- [Happy second birthday my king](https://news.puppy-snuggles.com/19668340/happy-second-birthday-my-king)
+- [Can I get a bit of love for my best girl Dinki 10 month old Huntaway](https://news.puppy-snuggles.com/14155306/can-i-get-a-bit-of-love-for-my-best-girl-dinki-10-month-old-huntaway)
+- [Dodger just keeping his eye on me](https://news.puppy-snuggles.com/8106841/dodger-just-keeping-his-eye-on-me)
+- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
+- [diesel then and now a year later](https://news.puppy-snuggles.com/17525870/diesel-then-and-now-a-year-later)
+- [Camouflage, cover, and concealment](https://news.puppy-snuggles.com/14626094/camouflage-cover-and-concealment)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
