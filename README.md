@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can I get a bit of love for my best girl Dinki 10 month old Huntaway](https://news.puppy-snuggles.com/14155306/can-i-get-a-bit-of-love-for-my-best-girl-dinki-10-month-old-huntaway)
-- [Dodger just keeping his eye on me](https://news.puppy-snuggles.com/8106841/dodger-just-keeping-his-eye-on-me)
-- [Piper&#39;s 12th birthday &lpar;she&#39;s on the right&rpar;](https://news.puppy-snuggles.com/12047689/pipers-12th-birthday-shes-on-the-right)
-- [diesel then and now a year later](https://news.puppy-snuggles.com/17525870/diesel-then-and-now-a-year-later)
-- [Camouflage, cover, and concealment](https://news.puppy-snuggles.com/14626094/camouflage-cover-and-concealment)
+- [Smiles all the time 😄](https://news.puppy-snuggles.com/8810309/smiles-all-the-time)
+- [My cute little fluff ball, always so happy](https://news.puppy-snuggles.com/13037994/my-cute-little-fluff-ball-always-so-happy)
+- [I wanna hold your hand.](https://news.puppy-snuggles.com/17383547/i-wanna-hold-your-hand)
+- [Bringing this lil man home in a few weeks. Name ideas?](https://news.puppy-snuggles.com/13385092/bringing-this-lil-man-home-in-a-few-weeks-name-ideas)
+- [He dreams of being a fish!](https://news.puppy-snuggles.com/20172270/he-dreams-of-being-a-fish)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
