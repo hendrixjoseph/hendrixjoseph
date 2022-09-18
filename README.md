@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiles all the time 😄](https://news.puppy-snuggles.com/8810309/smiles-all-the-time)
-- [My cute little fluff ball, always so happy](https://news.puppy-snuggles.com/13037994/my-cute-little-fluff-ball-always-so-happy)
-- [I wanna hold your hand.](https://news.puppy-snuggles.com/17383547/i-wanna-hold-your-hand)
-- [Bringing this lil man home in a few weeks. Name ideas?](https://news.puppy-snuggles.com/13385092/bringing-this-lil-man-home-in-a-few-weeks-name-ideas)
-- [He dreams of being a fish!](https://news.puppy-snuggles.com/20172270/he-dreams-of-being-a-fish)
+- [His favorite toy is the broken bottom of a flower pot.](https://news.puppy-snuggles.com/13129139/his-favorite-toy-is-the-broken-bottom-of-a-flower-pot)
+- [Happiest fella out there](https://news.puppy-snuggles.com/13120934/happiest-fella-out-there)
+- [What would you do if a child kicked your dog?](https://news.puppy-snuggles.com/18877737/what-would-you-do-if-a-child-kicked-your-dog)
+- [say hello to my new baby girl Mia](https://news.puppy-snuggles.com/19760256/say-hello-to-my-new-baby-girl-mia)
+- [Trooper, this boy has been with me since I was 6. Love this dude](https://news.puppy-snuggles.com/6780490/trooper-this-boy-has-been-with-me-since-i-was-6-love-this-dude)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
