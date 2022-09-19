@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His favorite toy is the broken bottom of a flower pot.](https://news.puppy-snuggles.com/13129139/his-favorite-toy-is-the-broken-bottom-of-a-flower-pot)
-- [Happiest fella out there](https://news.puppy-snuggles.com/13120934/happiest-fella-out-there)
-- [What would you do if a child kicked your dog?](https://news.puppy-snuggles.com/18877737/what-would-you-do-if-a-child-kicked-your-dog)
-- [say hello to my new baby girl Mia](https://news.puppy-snuggles.com/19760256/say-hello-to-my-new-baby-girl-mia)
-- [Trooper, this boy has been with me since I was 6. Love this dude](https://news.puppy-snuggles.com/6780490/trooper-this-boy-has-been-with-me-since-i-was-6-love-this-dude)
+- [I was told I should post more pictures of Roxie…. RIP baby girl.](https://news.puppy-snuggles.com/8203097/i-was-told-i-should-post-more-pictures-of-roxie-rip-baby-girl)
+- [I never posted the after vet picture from the other day. This was the look I got when we left](https://news.puppy-snuggles.com/7244598/i-never-posted-the-after-vet-picture-from-the-other-day-this-was-the-look-i-got-when-we-left)
+- [My huskie Koda sticking his head out the sunroof.](https://news.puppy-snuggles.com/7925034/my-huskie-koda-sticking-his-head-out-the-sunroof)
+- [Fun in the off lead paddock with my gang. The Bandit the terrier did enjoy himself but the high winds made him squint.](https://news.puppy-snuggles.com/11814485/fun-in-the-off-lead-paddock-with-my-gang-the-bandit-the-terrier-did-enjoy-himself-but-the-high-winds-made-him-squint)
+- [Me and Edgar, my girlfriend&#39;s dog](https://news.puppy-snuggles.com/8669138/me-and-edgar-my-girlfriends-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
