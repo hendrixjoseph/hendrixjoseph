@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy happy happy dog](https://news.puppy-snuggles.com/12466835/happy-happy-happy-dog)
-- [Our new boy is perfect!](https://news.puppy-snuggles.com/19207138/our-new-boy-is-perfect)
-- [Recently moved to Denver, CO and our girl is loving it!!!](https://news.puppy-snuggles.com/16740941/recently-moved-to-denver-co-and-our-girl-is-loving-it)
-- [Hello, I require attention please](https://news.puppy-snuggles.com/17931141/hello-i-require-attention-please)
-- [Finley loves tennis ball...like really them.](https://news.puppy-snuggles.com/12466836/finley-loves-tennis-balllike-really-them)
+- [As always Bailey loves her picture taken and Willow thinks she&#39;s in trouble. Lots of treats involved!](https://news.puppy-snuggles.com/12230888/as-always-bailey-loves-her-picture-taken-and-willow-thinks-shes-in-trouble-lots-of-treats-involved)
+- [the best boy on a beach in Croatia](https://news.puppy-snuggles.com/19441970/the-best-boy-on-a-beach-in-croatia)
+- [get your dog a dog](https://news.puppy-snuggles.com/12352929/get-your-dog-a-dog)
+- [does anyone know what kinda doggy this is?](https://news.puppy-snuggles.com/10936399/does-anyone-know-what-kinda-doggy-this-is)
+- [Got my first dog a year and a half ago, I was 47 years old. Best decision ever! My beautiful best friend 🐾 Hope these photos make someone smile 😊](https://news.puppy-snuggles.com/13953757/got-my-first-dog-a-year-and-a-half-ago-i-was-47-years-old-best-decision-ever-my-beautiful-best-friend-hope-these-photos-make-someone-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
