@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [As always Bailey loves her picture taken and Willow thinks she&#39;s in trouble. Lots of treats involved!](https://news.puppy-snuggles.com/12230888/as-always-bailey-loves-her-picture-taken-and-willow-thinks-shes-in-trouble-lots-of-treats-involved)
-- [the best boy on a beach in Croatia](https://news.puppy-snuggles.com/19441970/the-best-boy-on-a-beach-in-croatia)
-- [get your dog a dog](https://news.puppy-snuggles.com/12352929/get-your-dog-a-dog)
-- [does anyone know what kinda doggy this is?](https://news.puppy-snuggles.com/10936399/does-anyone-know-what-kinda-doggy-this-is)
-- [Got my first dog a year and a half ago, I was 47 years old. Best decision ever! My beautiful best friend 🐾 Hope these photos make someone smile 😊](https://news.puppy-snuggles.com/13953757/got-my-first-dog-a-year-and-a-half-ago-i-was-47-years-old-best-decision-ever-my-beautiful-best-friend-hope-these-photos-make-someone-smile)
+- [Sky](https://news.puppy-snuggles.com/11996162/sky)
+- [Roses are red, Violets are blue...](https://news.puppy-snuggles.com/6570031/roses-are-red-violets-are-blue)
+- [I lost my best boy to cancer last month. I’m still so devastated and heartbroken. He was my best friend. I wish we could have our pets with us forever. Run free buddy. I love you, Ky.](https://news.puppy-snuggles.com/11885435/i-lost-my-best-boy-to-cancer-last-month-im-still-so-devastated-and-heartbroken-he-was-my-best-friend-i-wish-we-could-have-our-pets-with-us-forever-run-free-buddy-i-love-you-ky)
+- [Hi Myla wants to remind everyone that everything will be okay](https://news.puppy-snuggles.com/8911656/hi-myla-wants-to-remind-everyone-that-everything-will-be-okay)
+- [Here is a collection of my chihuahua &lpar;Pluto&rpar; looking derpy. Enjoy](https://news.puppy-snuggles.com/14485931/here-is-a-collection-of-my-chihuahua-pluto-looking-derpy-enjoy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
