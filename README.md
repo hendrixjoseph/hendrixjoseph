@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Eli5 why the male seahorse gives birth.](https://www.reddit.com/r/explainlikeimfive/comments/xkdznv/eli5_why_the_male_seahorse_gives_birth/ipdflwu/)
 - [Cyborg Cat Portrait T-Shirt](https://www.reddit.com/r/u_joehx/comments/xjpqmd/cyborg_cat_portrait_tshirt/)
 - [/u/joehx on How does one become better at confrontation?](https://www.reddit.com/r/AskReddit/comments/xiuksh/how_does_one_become_better_at_confrontation/ip57nhp/)
 - [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: September, 2022](https://www.reddit.com/r/cscareerquestions/comments/xh9pgd/official_salary_sharing_thread_for_experienced/ip2hke3/)
 - [/u/joehx on Daily FI discussion thread - Monday, September 05, 2022](https://www.reddit.com/r/financialindependence/comments/x6bham/daily_fi_discussion_thread_monday_september_05/in8pjla/)
-- [/u/joehx on Generic savings tips that annoy you?](https://www.reddit.com/r/Frugal/comments/x4yndk/generic_savings_tips_that_annoy_you/imzesiz/)
 <!-- REDDIT:END -->
