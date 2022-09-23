@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sky](https://news.puppy-snuggles.com/11996162/sky)
-- [Roses are red, Violets are blue...](https://news.puppy-snuggles.com/6570031/roses-are-red-violets-are-blue)
-- [I lost my best boy to cancer last month. I’m still so devastated and heartbroken. He was my best friend. I wish we could have our pets with us forever. Run free buddy. I love you, Ky.](https://news.puppy-snuggles.com/11885435/i-lost-my-best-boy-to-cancer-last-month-im-still-so-devastated-and-heartbroken-he-was-my-best-friend-i-wish-we-could-have-our-pets-with-us-forever-run-free-buddy-i-love-you-ky)
-- [Hi Myla wants to remind everyone that everything will be okay](https://news.puppy-snuggles.com/8911656/hi-myla-wants-to-remind-everyone-that-everything-will-be-okay)
-- [Here is a collection of my chihuahua &lpar;Pluto&rpar; looking derpy. Enjoy](https://news.puppy-snuggles.com/14485931/here-is-a-collection-of-my-chihuahua-pluto-looking-derpy-enjoy)
+- [aren&#39;t they cute? 🥰](https://news.puppy-snuggles.com/11658811/arent-they-cute)
+- [Her test results come in next week! Give me final guesses for her breed :&rpar;](https://news.puppy-snuggles.com/12096958/her-test-results-come-in-next-week-give-me-final-guesses-for-her-breed)
+- [This is a picture I took of Ace. Ace is adorable. That is all](https://news.puppy-snuggles.com/15936603/this-is-a-picture-i-took-of-ace-ace-is-adorable-that-is-all)
+- [I love that my big dog will get down so my little dog can play with him.](https://news.puppy-snuggles.com/15027007/i-love-that-my-big-dog-will-get-down-so-my-little-dog-can-play-with-him)
+- [my smiling puppers](https://news.puppy-snuggles.com/19334544/my-smiling-puppers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
