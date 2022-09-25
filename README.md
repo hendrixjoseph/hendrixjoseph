@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog spike always looks nervous](https://news.puppy-snuggles.com/14265544/my-dog-spike-always-looks-nervous)
-- [Unique beauty](https://news.puppy-snuggles.com/9694050/unique-beauty)
-- [My buddy with his Christmas present. He was a good boy for Christmas even with all these people around.](https://news.puppy-snuggles.com/12677353/my-buddy-with-his-christmas-present-he-was-a-good-boy-for-christmas-even-with-all-these-people-around)
-- [I got this dog for free on Craigslist. I think she&#39;s so beautiful!](https://news.puppy-snuggles.com/14759517/i-got-this-dog-for-free-on-craigslist-i-think-shes-so-beautiful)
-- [Jabba is a happy pup with his new ball 🎾](https://news.puppy-snuggles.com/7410622/jabba-is-a-happy-pup-with-his-new-ball)
+- [Some fun pics of my goofy springer.](https://news.puppy-snuggles.com/11108442/some-fun-pics-of-my-goofy-springer)
+- [Had to say goodbye to my 15yo buddy Rex today. Put to sleep in my arms. Rest well my furry forever-friend.](https://news.puppy-snuggles.com/20081282/had-to-say-goodbye-to-my-15yo-buddy-rex-today-put-to-sleep-in-my-arms-rest-well-my-furry-forever-friend)
+- [Just adopted this handsome man! Everyone say hi to Leo!](https://news.puppy-snuggles.com/12257365/just-adopted-this-handsome-man-everyone-say-hi-to-leo)
+- [Bumi loves visiting the Loveliest Village on the Plains](https://news.puppy-snuggles.com/18783743/bumi-loves-visiting-the-loveliest-village-on-the-plains)
+- [My dog always has funny facial expressions in pics. He just turned 5.](https://news.puppy-snuggles.com/11098743/my-dog-always-has-funny-facial-expressions-in-pics-he-just-turned-5)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
