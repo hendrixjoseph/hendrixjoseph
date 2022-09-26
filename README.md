@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Some fun pics of my goofy springer.](https://news.puppy-snuggles.com/11108442/some-fun-pics-of-my-goofy-springer)
-- [Had to say goodbye to my 15yo buddy Rex today. Put to sleep in my arms. Rest well my furry forever-friend.](https://news.puppy-snuggles.com/20081282/had-to-say-goodbye-to-my-15yo-buddy-rex-today-put-to-sleep-in-my-arms-rest-well-my-furry-forever-friend)
-- [Just adopted this handsome man! Everyone say hi to Leo!](https://news.puppy-snuggles.com/12257365/just-adopted-this-handsome-man-everyone-say-hi-to-leo)
-- [Bumi loves visiting the Loveliest Village on the Plains](https://news.puppy-snuggles.com/18783743/bumi-loves-visiting-the-loveliest-village-on-the-plains)
-- [My dog always has funny facial expressions in pics. He just turned 5.](https://news.puppy-snuggles.com/11098743/my-dog-always-has-funny-facial-expressions-in-pics-he-just-turned-5)
+- [RIP Chewie. I love and miss you.](https://news.puppy-snuggles.com/14803416/rip-chewie-i-love-and-miss-you)
+- [The first Halloween we will spend together](https://news.puppy-snuggles.com/10922870/the-first-halloween-we-will-spend-together)
+- [Nothing like bight sun and a car ride to start the day.](https://news.puppy-snuggles.com/10872110/nothing-like-bight-sun-and-a-car-ride-to-start-the-day)
+- [Broken Doggo](https://news.puppy-snuggles.com/11452979/broken-doggo)
+- [Grinning boi](https://news.puppy-snuggles.com/11478085/grinning-boi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
