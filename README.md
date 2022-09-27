@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Chewie. I love and miss you.](https://news.puppy-snuggles.com/14803416/rip-chewie-i-love-and-miss-you)
-- [The first Halloween we will spend together](https://news.puppy-snuggles.com/10922870/the-first-halloween-we-will-spend-together)
-- [Nothing like bight sun and a car ride to start the day.](https://news.puppy-snuggles.com/10872110/nothing-like-bight-sun-and-a-car-ride-to-start-the-day)
-- [Broken Doggo](https://news.puppy-snuggles.com/11452979/broken-doggo)
-- [Grinning boi](https://news.puppy-snuggles.com/11478085/grinning-boi)
+- [Its called a guilty dog test the guilty dog cant](https://news.puppy-snuggles.com/15837740/its-called-a-guilty-dog-test-the-guilty-dog-cant)
+- [Lila’s teef are so cute like littol grains of rice &amp;amp;lt;3](https://news.puppy-snuggles.com/11334099/lilas-teef-are-so-cute-like-littol-grains-of-rice-lt3)
+- [Two peas in a pod](https://news.puppy-snuggles.com/12428914/two-peas-in-a-pod)
+- [DOGGO BE SO CUTE](https://news.puppy-snuggles.com/7250878/doggo-be-so-cute)
+- [The first time high five! My heart melts!](https://news.puppy-snuggles.com/11996160/the-first-time-high-five-my-heart-melts)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
