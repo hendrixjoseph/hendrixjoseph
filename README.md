@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Its called a guilty dog test the guilty dog cant](https://news.puppy-snuggles.com/15837740/its-called-a-guilty-dog-test-the-guilty-dog-cant)
-- [Lila’s teef are so cute like littol grains of rice &amp;amp;lt;3](https://news.puppy-snuggles.com/11334099/lilas-teef-are-so-cute-like-littol-grains-of-rice-lt3)
-- [Two peas in a pod](https://news.puppy-snuggles.com/12428914/two-peas-in-a-pod)
-- [DOGGO BE SO CUTE](https://news.puppy-snuggles.com/7250878/doggo-be-so-cute)
-- [The first time high five! My heart melts!](https://news.puppy-snuggles.com/11996160/the-first-time-high-five-my-heart-melts)
+- [I taught her how to use a pillow... Now, I&#39;m not allowed to have any pillows](https://news.puppy-snuggles.com/8030979/i-taught-her-how-to-use-a-pillow-now-im-not-allowed-to-have-any-pillows)
+- [Today I had to bury my best friend for 15 years. We got Jessie when I was 5 and she was always there. I miss you girl.](https://news.puppy-snuggles.com/10611914/today-i-had-to-bury-my-best-friend-for-15-years-we-got-jessie-when-i-was-5-and-she-was-always-there-i-miss-you-girl)
+- [This is Trevor. His original owner dumped him on the side of the road when he was a pup, and he found his way to my parents house. He’s been part of the family ever since. He’s getting on in years, but he’s always a good boy.](https://news.puppy-snuggles.com/13154544/this-is-trevor-his-original-owner-dumped-him-on-the-side-of-the-road-when-he-was-a-pup-and-he-found-his-way-to-my-parents-house-hes-been-part-of-the-family-ever-since-hes-getting-on-in-years-but-hes-always-a-good-boy)
+- [This is Bear. Just about the best family dog ever IMO. Vet says his time is short. It has been a good 12 years old friend.](https://news.puppy-snuggles.com/7657945/this-is-bear-just-about-the-best-family-dog-ever-imo-vet-says-his-time-is-short-it-has-been-a-good-12-years-old-friend)
+- [The boss brought his new puppy, Fenton into the office](https://news.puppy-snuggles.com/10076790/the-boss-brought-his-new-puppy-fenton-into-the-office)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
