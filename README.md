@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I taught her how to use a pillow... Now, I&#39;m not allowed to have any pillows](https://news.puppy-snuggles.com/8030979/i-taught-her-how-to-use-a-pillow-now-im-not-allowed-to-have-any-pillows)
-- [Today I had to bury my best friend for 15 years. We got Jessie when I was 5 and she was always there. I miss you girl.](https://news.puppy-snuggles.com/10611914/today-i-had-to-bury-my-best-friend-for-15-years-we-got-jessie-when-i-was-5-and-she-was-always-there-i-miss-you-girl)
-- [This is Trevor. His original owner dumped him on the side of the road when he was a pup, and he found his way to my parents house. He’s been part of the family ever since. He’s getting on in years, but he’s always a good boy.](https://news.puppy-snuggles.com/13154544/this-is-trevor-his-original-owner-dumped-him-on-the-side-of-the-road-when-he-was-a-pup-and-he-found-his-way-to-my-parents-house-hes-been-part-of-the-family-ever-since-hes-getting-on-in-years-but-hes-always-a-good-boy)
-- [This is Bear. Just about the best family dog ever IMO. Vet says his time is short. It has been a good 12 years old friend.](https://news.puppy-snuggles.com/7657945/this-is-bear-just-about-the-best-family-dog-ever-imo-vet-says-his-time-is-short-it-has-been-a-good-12-years-old-friend)
-- [The boss brought his new puppy, Fenton into the office](https://news.puppy-snuggles.com/10076790/the-boss-brought-his-new-puppy-fenton-into-the-office)
+- [Pencil realistic portrait. Commission work](https://news.puppy-snuggles.com/10492289/pencil-realistic-portrait-commission-work)
+- [Ryū the Blue Eye Border &lpar;Kage Bunshin no Jutsu&rpar;](https://news.puppy-snuggles.com/3782767/ryu-the-blue-eye-border-kage-bunshin-no-jutsu)
+- [Winnie’s first birthday !](https://news.puppy-snuggles.com/15077352/winnies-first-birthday)
+- [Bo &lpar;9yrs&rpar; on Crosby beach. He turned into a silly pup for a day](https://news.puppy-snuggles.com/10473212/bo-9yrs-on-crosby-beach-he-turned-into-a-silly-pup-for-a-day)
+- [Cutie Dog!!!](https://news.puppy-snuggles.com/8498901/cutie-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
