@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pencil realistic portrait. Commission work](https://news.puppy-snuggles.com/10492289/pencil-realistic-portrait-commission-work)
-- [Ryū the Blue Eye Border &lpar;Kage Bunshin no Jutsu&rpar;](https://news.puppy-snuggles.com/3782767/ryu-the-blue-eye-border-kage-bunshin-no-jutsu)
-- [Winnie’s first birthday !](https://news.puppy-snuggles.com/15077352/winnies-first-birthday)
-- [Bo &lpar;9yrs&rpar; on Crosby beach. He turned into a silly pup for a day](https://news.puppy-snuggles.com/10473212/bo-9yrs-on-crosby-beach-he-turned-into-a-silly-pup-for-a-day)
-- [Cutie Dog!!!](https://news.puppy-snuggles.com/8498901/cutie-dog)
+- [What is this position called!? XD](https://news.puppy-snuggles.com/14837203/what-is-this-position-called-xd)
+- [Happy 1st birthday, Acorn](https://news.puppy-snuggles.com/14735516/happy-1st-birthday-acorn)
+- [Hoodie Weather](https://news.puppy-snuggles.com/14938182/hoodie-weather)
+- [I think someone had a good day! Swipe to see all the fun :&rpar;](https://news.puppy-snuggles.com/18822257/i-think-someone-had-a-good-day-swipe-to-see-all-the-fun)
+- [My dog Hahn is the smiliest boi I’ve ever seen. I literally have thousands of photos just like these.](https://news.puppy-snuggles.com/10363108/my-dog-hahn-is-the-smiliest-boi-ive-ever-seen-i-literally-have-thousands-of-photos-just-like-these)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
