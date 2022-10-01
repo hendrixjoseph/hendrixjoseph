@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What is this position called!? XD](https://news.puppy-snuggles.com/14837203/what-is-this-position-called-xd)
-- [Happy 1st birthday, Acorn](https://news.puppy-snuggles.com/14735516/happy-1st-birthday-acorn)
-- [Hoodie Weather](https://news.puppy-snuggles.com/14938182/hoodie-weather)
-- [I think someone had a good day! Swipe to see all the fun :&rpar;](https://news.puppy-snuggles.com/18822257/i-think-someone-had-a-good-day-swipe-to-see-all-the-fun)
-- [My dog Hahn is the smiliest boi I’ve ever seen. I literally have thousands of photos just like these.](https://news.puppy-snuggles.com/10363108/my-dog-hahn-is-the-smiliest-boi-ive-ever-seen-i-literally-have-thousands-of-photos-just-like-these)
+- [Odin just enjoying the porch while it rains](https://news.puppy-snuggles.com/9728803/odin-just-enjoying-the-porch-while-it-rains)
+- [We were worried they wouldn&#39;t like each other!](https://news.puppy-snuggles.com/11574516/we-were-worried-they-wouldnt-like-each-other)
+- [Hope you’re having as good of a Monday as she is!](https://news.puppy-snuggles.com/13129141/hope-youre-having-as-good-of-a-monday-as-she-is)
+- [@romanthechow on his 2nd birthday :&rpar;](https://news.puppy-snuggles.com/8002449/at-romanthechow-on-his-2nd-birthday)
+- [Dog Couple Arguing](https://news.puppy-snuggles.com/13948321/dog-couple-arguing)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
