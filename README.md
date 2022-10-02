@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Odin just enjoying the porch while it rains](https://news.puppy-snuggles.com/9728803/odin-just-enjoying-the-porch-while-it-rains)
-- [We were worried they wouldn&#39;t like each other!](https://news.puppy-snuggles.com/11574516/we-were-worried-they-wouldnt-like-each-other)
-- [Hope you’re having as good of a Monday as she is!](https://news.puppy-snuggles.com/13129141/hope-youre-having-as-good-of-a-monday-as-she-is)
-- [@romanthechow on his 2nd birthday :&rpar;](https://news.puppy-snuggles.com/8002449/at-romanthechow-on-his-2nd-birthday)
-- [Dog Couple Arguing](https://news.puppy-snuggles.com/13948321/dog-couple-arguing)
+- [Before &amp;amp;amp; after belly pat pictures... For science.](https://news.puppy-snuggles.com/13989284/before-amp-after-belly-pat-pictures-for-science)
+- [Salty the dog taking a nap](https://news.puppy-snuggles.com/10032268/salty-the-dog-taking-a-nap)
+- [Meet Kiko, August 2021… to Him now🤩🤩](https://news.puppy-snuggles.com/16992373/meet-kiko-august-2021-to-him-now)
+- [SAD](https://news.puppy-snuggles.com/10051097/sad)
+- [My granddog Leela with the Mr Bill stuffy I gave her](https://news.puppy-snuggles.com/10006705/my-granddog-leela-with-the-mr-bill-stuffy-i-gave-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
