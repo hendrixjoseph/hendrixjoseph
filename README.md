@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Before &amp;amp;amp; after belly pat pictures... For science.](https://news.puppy-snuggles.com/13989284/before-amp-after-belly-pat-pictures-for-science)
-- [Salty the dog taking a nap](https://news.puppy-snuggles.com/10032268/salty-the-dog-taking-a-nap)
-- [Meet Kiko, August 2021… to Him now🤩🤩](https://news.puppy-snuggles.com/16992373/meet-kiko-august-2021-to-him-now)
-- [SAD](https://news.puppy-snuggles.com/10051097/sad)
-- [My granddog Leela with the Mr Bill stuffy I gave her](https://news.puppy-snuggles.com/10006705/my-granddog-leela-with-the-mr-bill-stuffy-i-gave-her)
+- [accidentally woke finn up from his nap, he was very sleepy](https://news.puppy-snuggles.com/7116361/accidentally-woke-finn-up-from-his-nap-he-was-very-sleepy)
+- [Wake Up!](https://news.puppy-snuggles.com/18886578/wake-up)
+- [Brothers 🥰](https://news.puppy-snuggles.com/8086237/brothers)
+- [Nice and energetic as always](https://news.puppy-snuggles.com/12250728/nice-and-energetic-as-always)
+- [why does she look like she’s posing for a school photo 😂](https://news.puppy-snuggles.com/12636063/why-does-she-look-like-shes-posing-for-a-school-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
