@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [accidentally woke finn up from his nap, he was very sleepy](https://news.puppy-snuggles.com/7116361/accidentally-woke-finn-up-from-his-nap-he-was-very-sleepy)
-- [Wake Up!](https://news.puppy-snuggles.com/18886578/wake-up)
-- [Brothers 🥰](https://news.puppy-snuggles.com/8086237/brothers)
-- [Nice and energetic as always](https://news.puppy-snuggles.com/12250728/nice-and-energetic-as-always)
-- [why does she look like she’s posing for a school photo 😂](https://news.puppy-snuggles.com/12636063/why-does-she-look-like-shes-posing-for-a-school-photo)
+- [My nightmare.](https://news.puppy-snuggles.com/15003480/my-nightmare)
+- [He&#39;s happy with his wormie :D](https://news.puppy-snuggles.com/9473160/hes-happy-with-his-wormie-d)
+- [&amp;amp;quot;Stoffel&amp;amp;quot;, pastelpainting, me, 2022](https://news.puppy-snuggles.com/15216383/quotstoffelquot-pastelpainting-me-2022)
+- [Sleepy sleeper 🖤](https://news.puppy-snuggles.com/14827992/sleepy-sleeper)
+- [Cuteness](https://news.puppy-snuggles.com/15240625/cuteness)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
