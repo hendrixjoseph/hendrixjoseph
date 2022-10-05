@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My nightmare.](https://news.puppy-snuggles.com/15003480/my-nightmare)
-- [He&#39;s happy with his wormie :D](https://news.puppy-snuggles.com/9473160/hes-happy-with-his-wormie-d)
-- [&amp;amp;quot;Stoffel&amp;amp;quot;, pastelpainting, me, 2022](https://news.puppy-snuggles.com/15216383/quotstoffelquot-pastelpainting-me-2022)
-- [Sleepy sleeper 🖤](https://news.puppy-snuggles.com/14827992/sleepy-sleeper)
-- [Cuteness](https://news.puppy-snuggles.com/15240625/cuteness)
+- [Tulip do blep](https://news.puppy-snuggles.com/10141667/tulip-do-blep)
+- [Said goodbye to my 18 year old angel a few days ago. She was the best dog I&#39;ve ever had and will be so, so missed. Haven&#39;t had a house without her for as long as I can remember](https://news.puppy-snuggles.com/13726646/said-goodbye-to-my-18-year-old-angel-a-few-days-ago-she-was-the-best-dog-ive-ever-had-and-will-be-so-so-missed-havent-had-a-house-without-her-for-as-long-as-i-can-remember)
+- [Family photo with Lila and Lukas, the neighborhood Shar Peis.](https://news.puppy-snuggles.com/8483305/family-photo-with-lila-and-lukas-the-neighborhood-shar-peis)
+- [This is Atticus. Some days I don&#39;t know who rescued who.](https://news.puppy-snuggles.com/9919411/this-is-atticus-some-days-i-dont-know-who-rescued-who)
+- [This is what an exhausted dog looks like after a bark park](https://news.puppy-snuggles.com/11488161/this-is-what-an-exhausted-dog-looks-like-after-a-bark-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
