@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily Chat Thread - October 05, 2022](https://www.reddit.com/r/cscareerquestions/comments/xw3etd/daily_chat_thread_october_05_2022/ir58rco/)
 - [/u/joehx on Can you be authorized user on card but also get your own? Spouse stuff](https://www.reddit.com/r/CreditCards/comments/xovft4/can_you_be_authorized_user_on_card_but_also_get/iq1axyo/)
 - [/u/joehx on Daily FI discussion thread - Saturday, September 24, 2022](https://www.reddit.com/r/financialindependence/comments/xmnrcg/daily_fi_discussion_thread_saturday_september_24/ipqb63l/)
 - [/u/joehx on What is the strangest thing that is actually in the Bible?](https://www.reddit.com/r/AskReddit/comments/xl9nj6/what_is_the_strangest_thing_that_is_actually_in/ipi7jc1/)
 - [/u/joehx on ELI5: I often hear about how powerful the graphics chips are in NVIDIA graphics cards, so why do they not use these for computer processing too?](https://www.reddit.com/r/explainlikeimfive/comments/xl9r0n/eli5_i_often_hear_about_how_powerful_the_graphics/ipi6gca/)
-- [/u/joehx on Eli5 why the male seahorse gives birth.](https://www.reddit.com/r/explainlikeimfive/comments/xkdznv/eli5_why_the_male_seahorse_gives_birth/ipdflwu/)
 <!-- REDDIT:END -->
