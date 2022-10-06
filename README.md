@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [September 2022 Book Reading List](https://www.joehxblog.com/september-2022-book-reading-list/)
 - [September 2022 Blog Statistics](https://www.joehxblog.com/september-2022-blog-statistics/)
 - [Semi Truck Tire Blowout](https://www.joehxblog.com/semi-truck-tire-blowout/)
 - [When is it Worth It to Close a CD Early?](https://www.joehxblog.com/when-is-it-worth-it-to-close-a-cd-early/)
 - [August 2022 Book Reading List](https://www.joehxblog.com/august-2022-book-reading-list/)
-- [Is Worthy Bonds Having Liquidity Problems?](https://www.joehxblog.com/is-worthy-bonds-having-liquidity-problems/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
