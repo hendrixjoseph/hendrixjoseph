@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [photos taken before an attack](https://news.puppy-snuggles.com/19886947/photos-taken-before-an-attack)
-- [Hope she makes your day a little better!](https://news.puppy-snuggles.com/20047480/hope-she-makes-your-day-a-little-better)
-- [My good boy Mike, he recently passed onto the great beyond](https://news.puppy-snuggles.com/19657769/my-good-boy-mike-he-recently-passed-onto-the-great-beyond)
-- [Adoption went through. Meet Winifred.](https://news.puppy-snuggles.com/20053866/adoption-went-through-meet-winifred)
-- [such an excited baby](https://news.puppy-snuggles.com/20023861/such-an-excited-baby)
+- [Pupdate: I am 15 weeks old today](https://news.puppy-snuggles.com/15405264/pupdate-i-am-15-weeks-old-today)
+- [This makes me so happy :&rpar;](https://news.puppy-snuggles.com/8748903/this-makes-me-so-happy)
+- [Happy Jackson](https://news.puppy-snuggles.com/7045826/happy-jackson)
+- [Little Elmo excited for his birthday cake](https://news.puppy-snuggles.com/18886576/little-elmo-excited-for-his-birthday-cake)
+- [My favorite one.](https://news.puppy-snuggles.com/15557851/my-favorite-one)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
