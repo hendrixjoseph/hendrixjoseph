@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pupdate: I am 15 weeks old today](https://news.puppy-snuggles.com/15405264/pupdate-i-am-15-weeks-old-today)
-- [This makes me so happy :&rpar;](https://news.puppy-snuggles.com/8748903/this-makes-me-so-happy)
-- [Happy Jackson](https://news.puppy-snuggles.com/7045826/happy-jackson)
-- [Little Elmo excited for his birthday cake](https://news.puppy-snuggles.com/18886576/little-elmo-excited-for-his-birthday-cake)
-- [My favorite one.](https://news.puppy-snuggles.com/15557851/my-favorite-one)
+- [The only family member happy on Monday](https://news.puppy-snuggles.com/11866693/the-only-family-member-happy-on-monday)
+- [.7 seconds after opening a bag of chips](https://news.puppy-snuggles.com/12096960/7-seconds-after-opening-a-bag-of-chips)
+- [Singer Jaheim arrested for animal cruelty, accused of starving 15 dogs; 1 dead](https://news.puppy-snuggles.com/9314351/singer-jaheim-arrested-for-animal-cruelty-accused-of-starving-15-dogs-1-dead)
+- [My cigar smoking buddy crossed the rainbow bridge today. Hopefully he can bring a smile to a few more faces one last time](https://news.puppy-snuggles.com/21428728/my-cigar-smoking-buddy-crossed-the-rainbow-bridge-today-hopefully-he-can-bring-a-smile-to-a-few-more-faces-one-last-time)
+- [Girlfriend loves to buy the little guy clothes. Here he is looking like he&#39;s ready to fax some paperwork.](https://news.puppy-snuggles.com/11919824/girlfriend-loves-to-buy-the-little-guy-clothes-here-he-is-looking-like-hes-ready-to-fax-some-paperwork)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
