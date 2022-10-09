@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The only family member happy on Monday](https://news.puppy-snuggles.com/11866693/the-only-family-member-happy-on-monday)
-- [.7 seconds after opening a bag of chips](https://news.puppy-snuggles.com/12096960/7-seconds-after-opening-a-bag-of-chips)
-- [Singer Jaheim arrested for animal cruelty, accused of starving 15 dogs; 1 dead](https://news.puppy-snuggles.com/9314351/singer-jaheim-arrested-for-animal-cruelty-accused-of-starving-15-dogs-1-dead)
-- [My cigar smoking buddy crossed the rainbow bridge today. Hopefully he can bring a smile to a few more faces one last time](https://news.puppy-snuggles.com/21428728/my-cigar-smoking-buddy-crossed-the-rainbow-bridge-today-hopefully-he-can-bring-a-smile-to-a-few-more-faces-one-last-time)
-- [Girlfriend loves to buy the little guy clothes. Here he is looking like he&#39;s ready to fax some paperwork.](https://news.puppy-snuggles.com/11919824/girlfriend-loves-to-buy-the-little-guy-clothes-here-he-is-looking-like-hes-ready-to-fax-some-paperwork)
+- [One of the last pictures i took of my Canadian shepherd before he passed this afternoon. He had an amazing 11 years on this earth, and has been my best friend since i was 6. God bless dogs.](https://news.puppy-snuggles.com/16842047/one-of-the-last-pictures-i-took-of-my-canadian-shepherd-before-he-passed-this-afternoon-he-had-an-amazing-11-years-on-this-earth-and-has-been-my-best-friend-since-i-was-6-god-bless-dogs)
+- [After the dog was hit by a pillow...](https://news.puppy-snuggles.com/11427166/after-the-dog-was-hit-by-a-pillow)
+- [My Golden dog Loves the Cold Weather](https://news.puppy-snuggles.com/8381536/my-golden-dog-loves-the-cold-weather)
+- [My first puppy!!](https://news.puppy-snuggles.com/21471012/my-first-puppy)
+- [Smokey in his little pajamas](https://news.puppy-snuggles.com/21471013/smokey-in-his-little-pajamas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
