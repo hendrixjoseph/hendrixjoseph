@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on In Which I Animate the first 50 Steps of a Stable Diffusion Text2Image Generation – JoeHx Blog](https://www.reddit.com/r/StableDiffusion/comments/xz27oe/in_which_i_animate_the_first_50_steps_of_a_stable/irjts2a/)
+- [In Which I Animate the first 50 Steps of a Stable Diffusion Text2Image Generation – JoeHx Blog](https://www.reddit.com/r/StableDiffusion/comments/xz27oe/in_which_i_animate_the_first_50_steps_of_a_stable/)
 - [0.0 I Don&#39;t Run T-Shirt](https://www.reddit.com/r/u_joehx/comments/xwslkr/00_i_dont_run_tshirt/)
 - [/u/joehx on Daily Chat Thread - October 05, 2022](https://www.reddit.com/r/cscareerquestions/comments/xw3etd/daily_chat_thread_october_05_2022/ir58rco/)
 - [/u/joehx on Can you be authorized user on card but also get your own? Spouse stuff](https://www.reddit.com/r/CreditCards/comments/xovft4/can_you_be_authorized_user_on_card_but_also_get/iq1axyo/)
-- [/u/joehx on Daily FI discussion thread - Saturday, September 24, 2022](https://www.reddit.com/r/financialindependence/comments/xmnrcg/daily_fi_discussion_thread_saturday_september_24/ipqb63l/)
-- [/u/joehx on What is the strangest thing that is actually in the Bible?](https://www.reddit.com/r/AskReddit/comments/xl9nj6/what_is_the_strangest_thing_that_is_actually_in/ipi7jc1/)
 <!-- REDDIT:END -->
