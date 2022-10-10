@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One of the last pictures i took of my Canadian shepherd before he passed this afternoon. He had an amazing 11 years on this earth, and has been my best friend since i was 6. God bless dogs.](https://news.puppy-snuggles.com/16842047/one-of-the-last-pictures-i-took-of-my-canadian-shepherd-before-he-passed-this-afternoon-he-had-an-amazing-11-years-on-this-earth-and-has-been-my-best-friend-since-i-was-6-god-bless-dogs)
-- [After the dog was hit by a pillow...](https://news.puppy-snuggles.com/11427166/after-the-dog-was-hit-by-a-pillow)
-- [My Golden dog Loves the Cold Weather](https://news.puppy-snuggles.com/8381536/my-golden-dog-loves-the-cold-weather)
-- [My first puppy!!](https://news.puppy-snuggles.com/21471012/my-first-puppy)
-- [Smokey in his little pajamas](https://news.puppy-snuggles.com/21471013/smokey-in-his-little-pajamas)
+- [Been trying to find the time to paint this. By far my favorite pic of my girl :&rpar;](https://news.puppy-snuggles.com/14148993/been-trying-to-find-the-time-to-paint-this-by-far-my-favorite-pic-of-my-girl)
+- [The puppy just celebrated his 10th birthday. He is 50% Husky, 50% German Shepherd but 110% good boy! Here&#39;s a couple photos from his party.](https://news.puppy-snuggles.com/9081707/the-puppy-just-celebrated-his-10th-birthday-he-is-50-husky-50-german-shepherd-but-110-good-boy-heres-a-couple-photos-from-his-party)
+- [SOOO CUTE](https://news.puppy-snuggles.com/21495663/sooo-cute)
+- [Hércules [3 years old] and Apollo [4 months] finally posed for a picture.](https://news.puppy-snuggles.com/10032270/hercules-3-years-old-and-apollo-4-months-finally-posed-for-a-picture)
+- [Would like everyone to meet Berry my little fluff bum](https://news.puppy-snuggles.com/12565090/would-like-everyone-to-meet-berry-my-little-fluff-bum)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
