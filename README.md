@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on In Which I Animate the first 50 Steps of a Stable Diffusion Text2Image Generation – JoeHx Blog](https://www.reddit.com/r/StableDiffusion/comments/xz27oe/in_which_i_animate_the_first_50_steps_of_a_stable/irjts2a/)
-- [In Which I Animate the first 50 Steps of a Stable Diffusion Text2Image Generation – JoeHx Blog](https://www.reddit.com/r/StableDiffusion/comments/xz27oe/in_which_i_animate_the_first_50_steps_of_a_stable/)
-- [0.0 I Don&#39;t Run T-Shirt](https://www.reddit.com/r/u_joehx/comments/xwslkr/00_i_dont_run_tshirt/)
-- [/u/joehx on Daily Chat Thread - October 05, 2022](https://www.reddit.com/r/cscareerquestions/comments/xw3etd/daily_chat_thread_october_05_2022/ir58rco/)
-- [/u/joehx on Can you be authorized user on card but also get your own? Spouse stuff](https://www.reddit.com/r/CreditCards/comments/xovft4/can_you_be_authorized_user_on_card_but_also_get/iq1axyo/)
+- [/u/joehx on Is it too late to get into Software Engineering in your 30’s ?](https://www.reddit.com/r/overemployed/comments/y0dgka/is_it_too_late_to_get_into_software_engineering/irsh85h/)
+- [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irsgx05/)
+- [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irs55oh/)
+- [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irs4xet/)
+- [/u/joehx on Daily FI discussion thread - Monday, October 10, 2022](https://www.reddit.com/r/financialindependence/comments/y09v27/daily_fi_discussion_thread_monday_october_10_2022/irrlkmw/)
 <!-- REDDIT:END -->
