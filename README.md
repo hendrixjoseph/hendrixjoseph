@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Been trying to find the time to paint this. By far my favorite pic of my girl :&rpar;](https://news.puppy-snuggles.com/14148993/been-trying-to-find-the-time-to-paint-this-by-far-my-favorite-pic-of-my-girl)
-- [The puppy just celebrated his 10th birthday. He is 50% Husky, 50% German Shepherd but 110% good boy! Here&#39;s a couple photos from his party.](https://news.puppy-snuggles.com/9081707/the-puppy-just-celebrated-his-10th-birthday-he-is-50-husky-50-german-shepherd-but-110-good-boy-heres-a-couple-photos-from-his-party)
-- [SOOO CUTE](https://news.puppy-snuggles.com/21495663/sooo-cute)
-- [Hércules [3 years old] and Apollo [4 months] finally posed for a picture.](https://news.puppy-snuggles.com/10032270/hercules-3-years-old-and-apollo-4-months-finally-posed-for-a-picture)
-- [Would like everyone to meet Berry my little fluff bum](https://news.puppy-snuggles.com/12565090/would-like-everyone-to-meet-berry-my-little-fluff-bum)
+- [When you sleepz but want treatz](https://news.puppy-snuggles.com/20312140/when-you-sleepz-but-want-treatz)
+- [So this is Weasel. I already had a dog but he needed someone to foster him. I had never fostered before. I immediately fell in love and adopted him. He does this little dance all the time and it cracks me up.](https://news.puppy-snuggles.com/7571378/so-this-is-weasel-i-already-had-a-dog-but-he-needed-someone-to-foster-him-i-had-never-fostered-before-i-immediately-fell-in-love-and-adopted-him-he-does-this-little-dance-all-the-time-and-it-cracks-me-up)
+- [it&#39;s mine, all mine... you can&#39;t have it.](https://news.puppy-snuggles.com/15817657/its-mine-all-mine-you-cant-have-it)
+- [What would you do if a child kicked your dog?](https://news.puppy-snuggles.com/18877737/what-would-you-do-if-a-child-kicked-your-dog)
+- [We&#39;ve started cycling to the dog park!](https://news.puppy-snuggles.com/18950198/weve-started-cycling-to-the-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
