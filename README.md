@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When you sleepz but want treatz](https://news.puppy-snuggles.com/20312140/when-you-sleepz-but-want-treatz)
-- [So this is Weasel. I already had a dog but he needed someone to foster him. I had never fostered before. I immediately fell in love and adopted him. He does this little dance all the time and it cracks me up.](https://news.puppy-snuggles.com/7571378/so-this-is-weasel-i-already-had-a-dog-but-he-needed-someone-to-foster-him-i-had-never-fostered-before-i-immediately-fell-in-love-and-adopted-him-he-does-this-little-dance-all-the-time-and-it-cracks-me-up)
-- [it&#39;s mine, all mine... you can&#39;t have it.](https://news.puppy-snuggles.com/15817657/its-mine-all-mine-you-cant-have-it)
-- [What would you do if a child kicked your dog?](https://news.puppy-snuggles.com/18877737/what-would-you-do-if-a-child-kicked-your-dog)
-- [We&#39;ve started cycling to the dog park!](https://news.puppy-snuggles.com/18950198/weve-started-cycling-to-the-dog-park)
+- [Ladybird](https://news.puppy-snuggles.com/21564263/ladybird)
+- [What kind of mix do you guys think he is?](https://news.puppy-snuggles.com/8800520/what-kind-of-mix-do-you-guys-think-he-is)
+- [Hiding in the long grass…can you see me?! 😜](https://news.puppy-snuggles.com/8417888/hiding-in-the-long-grasscan-you-see-me)
+- [dreamy smile💫](https://news.puppy-snuggles.com/14333669/dreamy-smile)
+- [Human, are you sure about this](https://news.puppy-snuggles.com/9044936/human-are-you-sure-about-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
