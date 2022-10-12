@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Yes the &quot;Future&quot;](https://www.reddit.com/r/CrappyDesign/comments/y193k4/yes_the_future/irx9ltz/)
 - [/u/joehx on Is it too late to get into Software Engineering in your 30’s ?](https://www.reddit.com/r/overemployed/comments/y0dgka/is_it_too_late_to_get_into_software_engineering/irsh85h/)
 - [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irsgx05/)
 - [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irs55oh/)
 - [/u/joehx on &#39;Moronic&#39; Monday - Your weekly thread for the questions you&#39;ve always wanted to ask about personal finances, investing, and growing your personal wealth.](https://www.reddit.com/r/FinancialPlanning/comments/y08wux/moronic_monday_your_weekly_thread_for_the/irs4xet/)
-- [/u/joehx on Daily FI discussion thread - Monday, October 10, 2022](https://www.reddit.com/r/financialindependence/comments/y09v27/daily_fi_discussion_thread_monday_october_10_2022/irrlkmw/)
 <!-- REDDIT:END -->
