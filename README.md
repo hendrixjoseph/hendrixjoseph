@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ladybird](https://news.puppy-snuggles.com/21564263/ladybird)
-- [What kind of mix do you guys think he is?](https://news.puppy-snuggles.com/8800520/what-kind-of-mix-do-you-guys-think-he-is)
-- [Hiding in the long grass…can you see me?! 😜](https://news.puppy-snuggles.com/8417888/hiding-in-the-long-grasscan-you-see-me)
-- [dreamy smile💫](https://news.puppy-snuggles.com/14333669/dreamy-smile)
-- [Human, are you sure about this](https://news.puppy-snuggles.com/9044936/human-are-you-sure-about-this)
+- [he protec, he attac, he taking a nap on his back](https://news.puppy-snuggles.com/8675773/he-protec-he-attac-he-taking-a-nap-on-his-back)
+- [Personal space? I haven&#39;t heard...](https://news.puppy-snuggles.com/21607048/personal-space-i-havent-heard)
+- [My wife stayed home sick yesterday. The coon hound couldn&#39;t be happier. Sick days are her favorite.](https://news.puppy-snuggles.com/10486031/my-wife-stayed-home-sick-yesterday-the-coon-hound-couldnt-be-happier-sick-days-are-her-favorite)
+- [My puppy Reinhardt :&rpar; Open to guesses as to what he might be mixed with!](https://news.puppy-snuggles.com/21564261/my-puppy-reinhardt-open-to-guesses-as-to-what-he-might-be-mixed-with)
+- [Just Passed](https://news.puppy-snuggles.com/21607042/just-passed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
