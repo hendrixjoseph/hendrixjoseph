@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [he protec, he attac, he taking a nap on his back](https://news.puppy-snuggles.com/8675773/he-protec-he-attac-he-taking-a-nap-on-his-back)
-- [Personal space? I haven&#39;t heard...](https://news.puppy-snuggles.com/21607048/personal-space-i-havent-heard)
-- [My wife stayed home sick yesterday. The coon hound couldn&#39;t be happier. Sick days are her favorite.](https://news.puppy-snuggles.com/10486031/my-wife-stayed-home-sick-yesterday-the-coon-hound-couldnt-be-happier-sick-days-are-her-favorite)
-- [My puppy Reinhardt :&rpar; Open to guesses as to what he might be mixed with!](https://news.puppy-snuggles.com/21564261/my-puppy-reinhardt-open-to-guesses-as-to-what-he-might-be-mixed-with)
-- [Just Passed](https://news.puppy-snuggles.com/21607042/just-passed)
+- [Enjoying the sunshine!](https://news.puppy-snuggles.com/19854550/enjoying-the-sunshine)
+- [One of the views that keeps me grounded when I come home after a long day. She will be 10 years old this year.](https://news.puppy-snuggles.com/4284853/one-of-the-views-that-keeps-me-grounded-when-i-come-home-after-a-long-day-she-will-be-10-years-old-this-year)
+- [Bruce trying to smile](https://news.puppy-snuggles.com/6749332/bruce-trying-to-smile)
+- [Reggie is all smiles when seeing me for the first time after lockdown](https://news.puppy-snuggles.com/6710773/reggie-is-all-smiles-when-seeing-me-for-the-first-time-after-lockdown)
+- [Lulu, with scarf. Met by the Tate Modern, London 😍](https://news.puppy-snuggles.com/14526896/lulu-with-scarf-met-by-the-tate-modern-london)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
