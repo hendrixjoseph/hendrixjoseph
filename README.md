@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Enjoying the sunshine!](https://news.puppy-snuggles.com/19854550/enjoying-the-sunshine)
-- [One of the views that keeps me grounded when I come home after a long day. She will be 10 years old this year.](https://news.puppy-snuggles.com/4284853/one-of-the-views-that-keeps-me-grounded-when-i-come-home-after-a-long-day-she-will-be-10-years-old-this-year)
-- [Bruce trying to smile](https://news.puppy-snuggles.com/6749332/bruce-trying-to-smile)
-- [Reggie is all smiles when seeing me for the first time after lockdown](https://news.puppy-snuggles.com/6710773/reggie-is-all-smiles-when-seeing-me-for-the-first-time-after-lockdown)
-- [Lulu, with scarf. Met by the Tate Modern, London 😍](https://news.puppy-snuggles.com/14526896/lulu-with-scarf-met-by-the-tate-modern-london)
+- [Sweetheart recovering from snake bite on her nose.](https://news.puppy-snuggles.com/12394893/sweetheart-recovering-from-snake-bite-on-her-nose)
+- [Meet Dobby, a new addition to our family.](https://news.puppy-snuggles.com/21521991/meet-dobby-a-new-addition-to-our-family)
+- [Otis being himself... What a dork.](https://news.puppy-snuggles.com/21416252/otis-being-himself-what-a-dork)
+- [There’s always something to smile about!](https://news.puppy-snuggles.com/18181251/theres-always-something-to-smile-about)
+- [Hugo became a BARK Ranger again and visited his 8th and 9th states! He and I are on a mission to visit all the lower 48 states and all dog friendly National Parks together. He went from rescue dog to travel dog! His smile makes my day! &lpar;OC&rpar;](https://news.puppy-snuggles.com/21416251/hugo-became-a-bark-ranger-again-and-visited-his-8th-and-9th-states-he-and-i-are-on-a-mission-to-visit-all-the-lower-48-states-and-all-dog-friendly-national-parks-together-he-went-from-rescue-dog-to-travel-dog-his-smile-makes-my-day-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
