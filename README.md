@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sweetheart recovering from snake bite on her nose.](https://news.puppy-snuggles.com/12394893/sweetheart-recovering-from-snake-bite-on-her-nose)
-- [Meet Dobby, a new addition to our family.](https://news.puppy-snuggles.com/21521991/meet-dobby-a-new-addition-to-our-family)
-- [Otis being himself... What a dork.](https://news.puppy-snuggles.com/21416252/otis-being-himself-what-a-dork)
-- [There’s always something to smile about!](https://news.puppy-snuggles.com/18181251/theres-always-something-to-smile-about)
-- [Hugo became a BARK Ranger again and visited his 8th and 9th states! He and I are on a mission to visit all the lower 48 states and all dog friendly National Parks together. He went from rescue dog to travel dog! His smile makes my day! &lpar;OC&rpar;](https://news.puppy-snuggles.com/21416251/hugo-became-a-bark-ranger-again-and-visited-his-8th-and-9th-states-he-and-i-are-on-a-mission-to-visit-all-the-lower-48-states-and-all-dog-friendly-national-parks-together-he-went-from-rescue-dog-to-travel-dog-his-smile-makes-my-day-oc)
+- [Apple hahahaha](https://news.puppy-snuggles.com/9368395/apple-hahahaha)
+- [Happy Golden Smile](https://news.puppy-snuggles.com/15020943/happy-golden-smile)
+- [Happy happy with autumn colors.](https://news.puppy-snuggles.com/21707877/happy-happy-with-autumn-colors)
+- [Big smiles from sweet old Roxy on our walk the other day 🦮](https://news.puppy-snuggles.com/14938184/big-smiles-from-sweet-old-roxy-on-our-walk-the-other-day)
+- [Bella happily snoring away](https://news.puppy-snuggles.com/14404081/bella-happily-snoring-away)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
