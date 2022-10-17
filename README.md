@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Apple hahahaha](https://news.puppy-snuggles.com/9368395/apple-hahahaha)
-- [Happy Golden Smile](https://news.puppy-snuggles.com/15020943/happy-golden-smile)
-- [Happy happy with autumn colors.](https://news.puppy-snuggles.com/21707877/happy-happy-with-autumn-colors)
-- [Big smiles from sweet old Roxy on our walk the other day 🦮](https://news.puppy-snuggles.com/14938184/big-smiles-from-sweet-old-roxy-on-our-walk-the-other-day)
-- [Bella happily snoring away](https://news.puppy-snuggles.com/14404081/bella-happily-snoring-away)
+- [Used to live on the streets.....now look at her. I love her so much.](https://news.puppy-snuggles.com/15584689/used-to-live-on-the-streetsnow-look-at-her-i-love-her-so-much)
+- [Got my pawtrait done!](https://news.puppy-snuggles.com/21738041/got-my-pawtrait-done)
+- [Tank, 14 years old... He still looks like a fresh puppy &lpar;most of the time&rpar;!](https://news.puppy-snuggles.com/8544979/tank-14-years-old-he-still-looks-like-a-fresh-puppy-most-of-the-time)
+- [People cross the street when they see me and my dog coming, but I think she&#39;s just adorable](https://news.puppy-snuggles.com/13648570/people-cross-the-street-when-they-see-me-and-my-dog-coming-but-i-think-shes-just-adorable)
+- [Blep! Bath time with Ash](https://news.puppy-snuggles.com/15634226/blep-bath-time-with-ash)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
