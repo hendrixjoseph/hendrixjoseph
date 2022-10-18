@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Used to live on the streets.....now look at her. I love her so much.](https://news.puppy-snuggles.com/15584689/used-to-live-on-the-streetsnow-look-at-her-i-love-her-so-much)
-- [Got my pawtrait done!](https://news.puppy-snuggles.com/21738041/got-my-pawtrait-done)
-- [Tank, 14 years old... He still looks like a fresh puppy &lpar;most of the time&rpar;!](https://news.puppy-snuggles.com/8544979/tank-14-years-old-he-still-looks-like-a-fresh-puppy-most-of-the-time)
-- [People cross the street when they see me and my dog coming, but I think she&#39;s just adorable](https://news.puppy-snuggles.com/13648570/people-cross-the-street-when-they-see-me-and-my-dog-coming-but-i-think-shes-just-adorable)
-- [Blep! Bath time with Ash](https://news.puppy-snuggles.com/15634226/blep-bath-time-with-ash)
+- [Mozzarella loves a car ride](https://news.puppy-snuggles.com/15989698/mozzarella-loves-a-car-ride)
+- [My Dave gave me a big smile as he was super happy with our morning walk 🥰](https://news.puppy-snuggles.com/11866691/my-dave-gave-me-a-big-smile-as-he-was-super-happy-with-our-morning-walk)
+- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
+- [Our puppy Ava loves her new bone](https://news.puppy-snuggles.com/20291949/our-puppy-ava-loves-her-new-bone)
+- [Motion activated home security camera working as intended](https://news.puppy-snuggles.com/21769077/motion-activated-home-security-camera-working-as-intended)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
