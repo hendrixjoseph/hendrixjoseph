@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mozzarella loves a car ride](https://news.puppy-snuggles.com/15989698/mozzarella-loves-a-car-ride)
-- [My Dave gave me a big smile as he was super happy with our morning walk 🥰](https://news.puppy-snuggles.com/11866691/my-dave-gave-me-a-big-smile-as-he-was-super-happy-with-our-morning-walk)
-- [White and black](https://news.puppy-snuggles.com/10097782/white-and-black)
-- [Our puppy Ava loves her new bone](https://news.puppy-snuggles.com/20291949/our-puppy-ava-loves-her-new-bone)
-- [Motion activated home security camera working as intended](https://news.puppy-snuggles.com/21769077/motion-activated-home-security-camera-working-as-intended)
+- [My dog in emoji form= 😝. What emoji illustrates your dog best?](https://news.puppy-snuggles.com/8127097/my-dog-in-emoji-form-what-emoji-illustrates-your-dog-best)
+- [When you are still tired after a 3 hour nap](https://news.puppy-snuggles.com/21815833/when-you-are-still-tired-after-a-3-hour-nap)
+- [My sweetheart enjoying the sun . I love him so much](https://news.puppy-snuggles.com/9291458/my-sweetheart-enjoying-the-sun-i-love-him-so-much)
+- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
+- [Here&#39;s a spaniel I drew in January &lpar;9&amp;amp;quot;x12&amp;amp;quot;, pastel&rpar;. Not my most detailed ever, but using an image that really captures her personality. Have a great weekend! :&rpar;](https://news.puppy-snuggles.com/15787202/heres-a-spaniel-i-drew-in-january-9quotx12quot-pastel-not-my-most-detailed-ever-but-using-an-image-that-really-captures-her-personality-have-a-great-weekend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
