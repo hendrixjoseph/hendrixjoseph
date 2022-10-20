@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Wednesday, October 19, 2022](https://www.reddit.com/r/financialindependence/comments/y7xip2/daily_fi_discussion_thread_wednesday_october_19/isyqp7e/)
+- [/u/joehx on Daily FI discussion thread - Wednesday, October 19, 2022](https://www.reddit.com/r/financialindependence/comments/y7xip2/daily_fi_discussion_thread_wednesday_october_19/isyomch/)
 - [/u/joehx on three combo nodes in one go](https://www.reddit.com/r/StarTrekTimelines/comments/y7anyx/three_combo_nodes_in_one_go/istgz7c/)
 - [three combo nodes in one go](https://www.reddit.com/r/StarTrekTimelines/comments/y7anyx/three_combo_nodes_in_one_go/)
 - [/u/joehx on Anyone got a signup link they want to share?](https://www.reddit.com/r/Webull/comments/y2p4o8/anyone_got_a_signup_link_they_want_to_share/is5yf1f/)
-- [/u/joehx on Yes the &quot;Future&quot;](https://www.reddit.com/r/CrappyDesign/comments/y193k4/yes_the_future/irx9ltz/)
-- [/u/joehx on Is it too late to get into Software Engineering in your 30’s ?](https://www.reddit.com/r/overemployed/comments/y0dgka/is_it_too_late_to_get_into_software_engineering/irsh85h/)
 <!-- REDDIT:END -->
