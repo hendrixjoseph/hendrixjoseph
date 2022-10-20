@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog in emoji form= 😝. What emoji illustrates your dog best?](https://news.puppy-snuggles.com/8127097/my-dog-in-emoji-form-what-emoji-illustrates-your-dog-best)
-- [When you are still tired after a 3 hour nap](https://news.puppy-snuggles.com/21815833/when-you-are-still-tired-after-a-3-hour-nap)
-- [My sweetheart enjoying the sun . I love him so much](https://news.puppy-snuggles.com/9291458/my-sweetheart-enjoying-the-sun-i-love-him-so-much)
-- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
-- [Here&#39;s a spaniel I drew in January &lpar;9&amp;amp;quot;x12&amp;amp;quot;, pastel&rpar;. Not my most detailed ever, but using an image that really captures her personality. Have a great weekend! :&rpar;](https://news.puppy-snuggles.com/15787202/heres-a-spaniel-i-drew-in-january-9quotx12quot-pastel-not-my-most-detailed-ever-but-using-an-image-that-really-captures-her-personality-have-a-great-weekend)
+- [Can’t beat a couple of worn out lazy labs](https://news.puppy-snuggles.com/13842448/cant-beat-a-couple-of-worn-out-lazy-labs)
+- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
+- [BPD announces death of retired police dog, was known as &#39;Captain of the Dogs&#39;](https://news.puppy-snuggles.com/11091052/bpd-announces-death-of-retired-police-dog-was-known-as-captain-of-the-dogs)
+- [Can I haz?? Pumpkin pie parfait](https://news.puppy-snuggles.com/9859444/can-i-haz-pumpkin-pie-parfait)
+- [Sorry for another sad post. Last night I had to put down my best friend. I wanted to share his adorable face one last time.](https://news.puppy-snuggles.com/11901744/sorry-for-another-sad-post-last-night-i-had-to-put-down-my-best-friend-i-wanted-to-share-his-adorable-face-one-last-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
