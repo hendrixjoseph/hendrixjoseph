@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [October 2022 Blog Statistics](https://www.joehxblog.com/october-2022-blog-statistics/)
 - [2022 Montgomery County, Ohio Ballot Issues](https://www.joehxblog.com/2022-montgomery-county-ohio-ballot-issues/)
 - [The First 50 Steps of a Stable Diffusion Text2Image Generation](https://www.joehxblog.com/the-first-50-steps-of-a-stable-diffusion-text2image-generation/)
 - [September 2022 Book Reading List](https://www.joehxblog.com/september-2022-book-reading-list/)
 - [September 2022 Blog Statistics](https://www.joehxblog.com/september-2022-blog-statistics/)
-- [Semi Truck Tire Blowout](https://www.joehxblog.com/semi-truck-tire-blowout/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
