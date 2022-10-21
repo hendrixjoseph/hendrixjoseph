@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can’t beat a couple of worn out lazy labs](https://news.puppy-snuggles.com/13842448/cant-beat-a-couple-of-worn-out-lazy-labs)
-- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
-- [BPD announces death of retired police dog, was known as &#39;Captain of the Dogs&#39;](https://news.puppy-snuggles.com/11091052/bpd-announces-death-of-retired-police-dog-was-known-as-captain-of-the-dogs)
-- [Can I haz?? Pumpkin pie parfait](https://news.puppy-snuggles.com/9859444/can-i-haz-pumpkin-pie-parfait)
-- [Sorry for another sad post. Last night I had to put down my best friend. I wanted to share his adorable face one last time.](https://news.puppy-snuggles.com/11901744/sorry-for-another-sad-post-last-night-i-had-to-put-down-my-best-friend-i-wanted-to-share-his-adorable-face-one-last-time)
+- [This is love. He protects us from the scary things in life.](https://news.puppy-snuggles.com/21895006/this-is-love-he-protects-us-from-the-scary-things-in-life)
+- [I call this dog Ghostface.](https://news.puppy-snuggles.com/11495747/i-call-this-dog-ghostface)
+- [My girlfriend works as a dog walker, here’s a pic she took of a posing dog &lpar;she gave me permission&rpar;.](https://news.puppy-snuggles.com/11734602/my-girlfriend-works-as-a-dog-walker-heres-a-pic-she-took-of-a-posing-dog-she-gave-me-permission)
+- [Pete sleeping with a smile](https://news.puppy-snuggles.com/12268762/pete-sleeping-with-a-smile)
+- [This is Jake. He reigns puppy terror on the lives of my parents.](https://news.puppy-snuggles.com/21895009/this-is-jake-he-reigns-puppy-terror-on-the-lives-of-my-parents)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
