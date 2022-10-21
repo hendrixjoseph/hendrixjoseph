@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/xsqi0g/monthly_megathread_discuss_quick_frugal_ideas/it2dlyc/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, October 19, 2022](https://www.reddit.com/r/financialindependence/comments/y7xip2/daily_fi_discussion_thread_wednesday_october_19/isyqp7e/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, October 19, 2022](https://www.reddit.com/r/financialindependence/comments/y7xip2/daily_fi_discussion_thread_wednesday_october_19/isyomch/)
 - [/u/joehx on three combo nodes in one go](https://www.reddit.com/r/StarTrekTimelines/comments/y7anyx/three_combo_nodes_in_one_go/istgz7c/)
 - [three combo nodes in one go](https://www.reddit.com/r/StarTrekTimelines/comments/y7anyx/three_combo_nodes_in_one_go/)
-- [/u/joehx on Anyone got a signup link they want to share?](https://www.reddit.com/r/Webull/comments/y2p4o8/anyone_got_a_signup_link_they_want_to_share/is5yf1f/)
 <!-- REDDIT:END -->
