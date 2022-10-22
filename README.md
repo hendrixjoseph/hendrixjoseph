@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is love. He protects us from the scary things in life.](https://news.puppy-snuggles.com/21895006/this-is-love-he-protects-us-from-the-scary-things-in-life)
-- [I call this dog Ghostface.](https://news.puppy-snuggles.com/11495747/i-call-this-dog-ghostface)
-- [My girlfriend works as a dog walker, here’s a pic she took of a posing dog &lpar;she gave me permission&rpar;.](https://news.puppy-snuggles.com/11734602/my-girlfriend-works-as-a-dog-walker-heres-a-pic-she-took-of-a-posing-dog-she-gave-me-permission)
-- [Pete sleeping with a smile](https://news.puppy-snuggles.com/12268762/pete-sleeping-with-a-smile)
-- [This is Jake. He reigns puppy terror on the lives of my parents.](https://news.puppy-snuggles.com/21895009/this-is-jake-he-reigns-puppy-terror-on-the-lives-of-my-parents)
+- [Tia, having a nice day in the sun the other day😁](https://news.puppy-snuggles.com/7310195/tia-having-a-nice-day-in-the-sun-the-other-day)
+- [Murphy says hi](https://news.puppy-snuggles.com/12629015/murphy-says-hi)
+- [I thought this pretty funny so i had to share](https://news.puppy-snuggles.com/11196607/i-thought-this-pretty-funny-so-i-had-to-share)
+- [German shepherd howling with wolves from movie](https://news.puppy-snuggles.com/15795130/german-shepherd-howling-with-wolves-from-movie)
+- [When you desperately want to cuddle in bed](https://news.puppy-snuggles.com/14660495/when-you-desperately-want-to-cuddle-in-bed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
