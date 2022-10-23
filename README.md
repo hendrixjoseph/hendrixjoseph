@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/itblo0h/)
 - [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it93h2k/)
 - [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it91ppr/)
 - [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it90p7b/)
 - [/u/joehx on SWEs who have side hustles, what do you do?](https://www.reddit.com/r/cscareerquestions/comments/y91c87/swes_who_have_side_hustles_what_do_you_do/it7b2rm/)
-- [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/xsqi0g/monthly_megathread_discuss_quick_frugal_ideas/it2dlyc/)
 <!-- REDDIT:END -->
