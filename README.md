@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tia, having a nice day in the sun the other day😁](https://news.puppy-snuggles.com/7310195/tia-having-a-nice-day-in-the-sun-the-other-day)
-- [Murphy says hi](https://news.puppy-snuggles.com/12629015/murphy-says-hi)
-- [I thought this pretty funny so i had to share](https://news.puppy-snuggles.com/11196607/i-thought-this-pretty-funny-so-i-had-to-share)
-- [German shepherd howling with wolves from movie](https://news.puppy-snuggles.com/15795130/german-shepherd-howling-with-wolves-from-movie)
-- [When you desperately want to cuddle in bed](https://news.puppy-snuggles.com/14660495/when-you-desperately-want-to-cuddle-in-bed)
+- [Helno! we hope you like dogs😜](https://news.puppy-snuggles.com/8274673/helno-we-hope-you-like-dogs)
+- [Happy 9th birthday my friend](https://news.puppy-snuggles.com/15645388/happy-9th-birthday-my-friend)
+- [My view when waking from my nap.](https://news.puppy-snuggles.com/10915553/my-view-when-waking-from-my-nap)
+- [Meet My Most Well-Behaved Babies - Matching color too](https://news.puppy-snuggles.com/6749334/meet-my-most-well-behaved-babies-matching-color-too)
+- [Traffic report: roadblocks in the area. Exit closed. &lpar;working from home hazards&rpar;](https://news.puppy-snuggles.com/11358677/traffic-report-roadblocks-in-the-area-exit-closed-working-from-home-hazards)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
