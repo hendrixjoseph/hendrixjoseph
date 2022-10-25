@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A quick doodle of my favorite doodle!](https://news.puppy-snuggles.com/9884018/a-quick-doodle-of-my-favorite-doodle)
-- [2 of my dogs &lpar;she is eating zucchini&rpar;](https://news.puppy-snuggles.com/9909520/2-of-my-dogs-she-is-eating-zucchini)
-- [Juni turned 2 today. She approves of her gifts.](https://news.puppy-snuggles.com/16513797/juni-turned-2-today-she-approves-of-her-gifts)
-- [Duke &lpar;adopted blue heeler&rpar; loving life.](https://news.puppy-snuggles.com/15723152/duke-adopted-blue-heeler-loving-life)
-- [My goofy floof](https://news.puppy-snuggles.com/15879087/my-goofy-floof)
+- [Hardly saw her in all the black](https://news.puppy-snuggles.com/9738388/hardly-saw-her-in-all-the-black)
+- [Happy traveler :3](https://news.puppy-snuggles.com/22022871/happy-traveler-3)
+- [Drogo is born](https://news.puppy-snuggles.com/15357208/drogo-is-born)
+- [The sleeping positions of Snoop](https://news.puppy-snuggles.com/9602907/the-sleeping-positions-of-snoop)
+- [Prince](https://news.puppy-snuggles.com/9859441/prince)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
