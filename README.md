@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hardly saw her in all the black](https://news.puppy-snuggles.com/9738388/hardly-saw-her-in-all-the-black)
-- [Happy traveler :3](https://news.puppy-snuggles.com/22022871/happy-traveler-3)
-- [Drogo is born](https://news.puppy-snuggles.com/15357208/drogo-is-born)
-- [The sleeping positions of Snoop](https://news.puppy-snuggles.com/9602907/the-sleeping-positions-of-snoop)
-- [Prince](https://news.puppy-snuggles.com/9859441/prince)
+- [When I married my wife, she knew I had a girlfriend and always would. My last picture of this lovely lady that will always hold my heart.](https://news.puppy-snuggles.com/12087992/when-i-married-my-wife-she-knew-i-had-a-girlfriend-and-always-would-my-last-picture-of-this-lovely-lady-that-will-always-hold-my-heart)
+- [Seren looks better in my glasses than me!](https://news.puppy-snuggles.com/13267531/seren-looks-better-in-my-glasses-than-me)
+- [When I was told that I was very beautiful&rpar;&rpar;](https://news.puppy-snuggles.com/7069070/when-i-was-told-that-i-was-very-beautiful)
+- [Painted my friends Good Boi](https://news.puppy-snuggles.com/8933151/painted-my-friends-good-boi)
+- [Mid-sneeze](https://news.puppy-snuggles.com/11558403/mid-sneeze)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
