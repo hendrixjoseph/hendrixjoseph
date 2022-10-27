@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I married my wife, she knew I had a girlfriend and always would. My last picture of this lovely lady that will always hold my heart.](https://news.puppy-snuggles.com/12087992/when-i-married-my-wife-she-knew-i-had-a-girlfriend-and-always-would-my-last-picture-of-this-lovely-lady-that-will-always-hold-my-heart)
-- [Seren looks better in my glasses than me!](https://news.puppy-snuggles.com/13267531/seren-looks-better-in-my-glasses-than-me)
-- [When I was told that I was very beautiful&rpar;&rpar;](https://news.puppy-snuggles.com/7069070/when-i-was-told-that-i-was-very-beautiful)
-- [Painted my friends Good Boi](https://news.puppy-snuggles.com/8933151/painted-my-friends-good-boi)
-- [Mid-sneeze](https://news.puppy-snuggles.com/11558403/mid-sneeze)
+- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
+- [My beautiful girl Lexxy.](https://news.puppy-snuggles.com/21377524/my-beautiful-girl-lexxy)
+- [The look I receive when I say &amp;amp;quot;snack bars closed&amp;amp;quot;](https://news.puppy-snuggles.com/11324746/the-look-i-receive-when-i-say-quotsnack-bars-closedquot)
+- [Frank is my best friend](https://news.puppy-snuggles.com/8580515/frank-is-my-best-friend)
+- [We love our walks together. I tried to get a photo of her smiling up at me, but it didn&#39;t quite work. When she does, it&#39;s like she&#39;s saying this is the best thing ever.](https://news.puppy-snuggles.com/14717983/we-love-our-walks-together-i-tried-to-get-a-photo-of-her-smiling-up-at-me-but-it-didnt-quite-work-when-she-does-its-like-shes-saying-this-is-the-best-thing-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
