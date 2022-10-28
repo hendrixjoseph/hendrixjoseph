@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Human-animal Empathy Survey](https://news.puppy-snuggles.com/7318101/human-animal-empathy-survey)
-- [My beautiful girl Lexxy.](https://news.puppy-snuggles.com/21377524/my-beautiful-girl-lexxy)
-- [The look I receive when I say &amp;amp;quot;snack bars closed&amp;amp;quot;](https://news.puppy-snuggles.com/11324746/the-look-i-receive-when-i-say-quotsnack-bars-closedquot)
-- [Frank is my best friend](https://news.puppy-snuggles.com/8580515/frank-is-my-best-friend)
-- [We love our walks together. I tried to get a photo of her smiling up at me, but it didn&#39;t quite work. When she does, it&#39;s like she&#39;s saying this is the best thing ever.](https://news.puppy-snuggles.com/14717983/we-love-our-walks-together-i-tried-to-get-a-photo-of-her-smiling-up-at-me-but-it-didnt-quite-work-when-she-does-its-like-shes-saying-this-is-the-best-thing-ever)
+- [Nothing but smiles when these two get together for a play-date!](https://news.puppy-snuggles.com/22098060/nothing-but-smiles-when-these-two-get-together-for-a-play-date)
+- [Happy Monday friends!](https://news.puppy-snuggles.com/7762942/happy-monday-friends)
+- [I am good. Carry on driving, Ernest.](https://news.puppy-snuggles.com/11631434/i-am-good-carry-on-driving-ernest)
+- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
+- [Check up shots and back to momma&#39;s &lpar; the cage is just for transportation&rpar; 1 litter same mom all dogs different looking, genetics is amazing](https://news.puppy-snuggles.com/12699593/check-up-shots-and-back-to-mommas-the-cage-is-just-for-transportation-1-litter-same-mom-all-dogs-different-looking-genetics-is-amazing)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
