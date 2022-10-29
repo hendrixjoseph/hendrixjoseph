@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nothing but smiles when these two get together for a play-date!](https://news.puppy-snuggles.com/22098060/nothing-but-smiles-when-these-two-get-together-for-a-play-date)
-- [Happy Monday friends!](https://news.puppy-snuggles.com/7762942/happy-monday-friends)
-- [I am good. Carry on driving, Ernest.](https://news.puppy-snuggles.com/11631434/i-am-good-carry-on-driving-ernest)
-- [My dog at my Wedding!!!](https://news.puppy-snuggles.com/7611011/my-dog-at-my-wedding)
-- [Check up shots and back to momma&#39;s &lpar; the cage is just for transportation&rpar; 1 litter same mom all dogs different looking, genetics is amazing](https://news.puppy-snuggles.com/12699593/check-up-shots-and-back-to-mommas-the-cage-is-just-for-transportation-1-litter-same-mom-all-dogs-different-looking-genetics-is-amazing)
+- [Our rescue Kayla &lpar;she been this smiley since we picked her up!&rpar;](https://news.puppy-snuggles.com/5616740/our-rescue-kayla-she-been-this-smiley-since-we-picked-her-up)
+- [My dog getting absolutely dominated at the park](https://news.puppy-snuggles.com/7694053/my-dog-getting-absolutely-dominated-at-the-park)
+- [Just wanted to show off my son](https://news.puppy-snuggles.com/11219330/just-wanted-to-show-off-my-son)
+- [The goodest dog: Riley](https://news.puppy-snuggles.com/5324358/the-goodest-dog-riley)
+- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
