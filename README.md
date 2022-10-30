@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Who’s very famous in your line of work but the average person hasn’t heard about?](https://www.reddit.com/r/AskReddit/comments/ydl1fx/whos_very_famous_in_your_line_of_work_but_the/itsviz2/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/itblo0h/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it93h2k/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it91ppr/)
-- [/u/joehx on Daily FI discussion thread - Friday, October 21, 2022](https://www.reddit.com/r/financialindependence/comments/y9oitf/daily_fi_discussion_thread_friday_october_21_2022/it90p7b/)
+- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9sa2u/)
+- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9s4sg/)
+- [/u/joehx on TIL While useful for those with dietary deficiencies, multivitamins offer no real benefit to the majority of the population. The U.S. Preventive Services Task Force found no clear evidence that consuming multivitamins &quot;made them healthier in any way.&quot;](https://www.reddit.com/r/todayilearned/comments/yghx80/til_while_useful_for_those_with_dietary/iu9ke29/)
+- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9idcx/)
+- [FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/)
 <!-- REDDIT:END -->
