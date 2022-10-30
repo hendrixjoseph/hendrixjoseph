@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our rescue Kayla &lpar;she been this smiley since we picked her up!&rpar;](https://news.puppy-snuggles.com/5616740/our-rescue-kayla-she-been-this-smiley-since-we-picked-her-up)
-- [My dog getting absolutely dominated at the park](https://news.puppy-snuggles.com/7694053/my-dog-getting-absolutely-dominated-at-the-park)
-- [Just wanted to show off my son](https://news.puppy-snuggles.com/11219330/just-wanted-to-show-off-my-son)
-- [The goodest dog: Riley](https://news.puppy-snuggles.com/5324358/the-goodest-dog-riley)
-- [What type of dog is our fosters?](https://news.puppy-snuggles.com/7618415/what-type-of-dog-is-our-fosters)
+- [Conversation in the sky](https://news.puppy-snuggles.com/13505753/conversation-in-the-sky)
+- [[Fluff] My newly registered seizure response doggo being a good girl on the job!](https://news.puppy-snuggles.com/6919012/fluff-my-newly-registered-seizure-response-doggo-being-a-good-girl-on-the-job)
+- [I love you.](https://news.puppy-snuggles.com/12053391/i-love-you)
+- [Today’s my dogs last day. His lung cancer got worse and spread through his eye. I’m going to miss him so much, it hurts. He’s been my best friend since I was 7. I can’t be with him, because I live far away. I love you Benji, more than you know. Keep smiling all the way over to the other side my love](https://news.puppy-snuggles.com/11945413/todays-my-dogs-last-day-his-lung-cancer-got-worse-and-spread-through-his-eye-im-going-to-miss-him-so-much-it-hurts-hes-been-my-best-friend-since-i-was-7-i-cant-be-with-him-because-i-live-far-away-i-love-you-benji-more-than-you-know-keep-smiling-all-the-way-over-to-the-other-side-my-love)
+- [Penny&#39;s first bath. She hated it.](https://news.puppy-snuggles.com/22202071/pennys-first-bath-she-hated-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
