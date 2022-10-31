@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Conversation in the sky](https://news.puppy-snuggles.com/13505753/conversation-in-the-sky)
-- [[Fluff] My newly registered seizure response doggo being a good girl on the job!](https://news.puppy-snuggles.com/6919012/fluff-my-newly-registered-seizure-response-doggo-being-a-good-girl-on-the-job)
-- [I love you.](https://news.puppy-snuggles.com/12053391/i-love-you)
-- [Today’s my dogs last day. His lung cancer got worse and spread through his eye. I’m going to miss him so much, it hurts. He’s been my best friend since I was 7. I can’t be with him, because I live far away. I love you Benji, more than you know. Keep smiling all the way over to the other side my love](https://news.puppy-snuggles.com/11945413/todays-my-dogs-last-day-his-lung-cancer-got-worse-and-spread-through-his-eye-im-going-to-miss-him-so-much-it-hurts-hes-been-my-best-friend-since-i-was-7-i-cant-be-with-him-because-i-live-far-away-i-love-you-benji-more-than-you-know-keep-smiling-all-the-way-over-to-the-other-side-my-love)
-- [Penny&#39;s first bath. She hated it.](https://news.puppy-snuggles.com/22202071/pennys-first-bath-she-hated-it)
+- [We are now foster failures with this 13 year old lab](https://news.puppy-snuggles.com/11625959/we-are-now-foster-failures-with-this-13-year-old-lab)
+- [My goodest girl](https://news.puppy-snuggles.com/11919828/my-goodest-girl)
+- [Saturday morning snuggles](https://news.puppy-snuggles.com/5603744/saturday-morning-snuggles)
+- [Still a dog?](https://news.puppy-snuggles.com/10898334/still-a-dog)
+- [How can someone leave this baby on the street?](https://news.puppy-snuggles.com/6534017/how-can-someone-leave-this-baby-on-the-street)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
