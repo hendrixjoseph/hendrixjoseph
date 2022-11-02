@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Eddy Merckx graduating obedience training.](https://news.puppy-snuggles.com/6827245/eddy-merckx-graduating-obedience-training)
-- [He’s definitely a ball dog](https://news.puppy-snuggles.com/10201408/hes-definitely-a-ball-dog)
-- [Rate her](https://news.puppy-snuggles.com/22264369/rate-her)
-- [Smiling in stroller](https://news.puppy-snuggles.com/22264373/smiling-in-stroller)
-- [My little bumblebee! 💛](https://news.puppy-snuggles.com/22264370/my-little-bumblebee)
+- [&lpar;OC&rpar; Doggy&amp;amp;lt;3](https://news.puppy-snuggles.com/22012988/oc-doggylt3)
+- [My dog in 0.5](https://news.puppy-snuggles.com/22306584/my-dog-in-05)
+- [When they get to a certain age, you really just cherish every moment ❤️](https://news.puppy-snuggles.com/22086927/when-they-get-to-a-certain-age-you-really-just-cherish-every-moment)
+- [Smokey in his little pajamas](https://news.puppy-snuggles.com/21471013/smokey-in-his-little-pajamas)
+- [The floof](https://news.puppy-snuggles.com/11349727/the-floof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
