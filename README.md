@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&lpar;OC&rpar; Doggy&amp;amp;lt;3](https://news.puppy-snuggles.com/22012988/oc-doggylt3)
-- [My dog in 0.5](https://news.puppy-snuggles.com/22306584/my-dog-in-05)
-- [When they get to a certain age, you really just cherish every moment ❤️](https://news.puppy-snuggles.com/22086927/when-they-get-to-a-certain-age-you-really-just-cherish-every-moment)
-- [Smokey in his little pajamas](https://news.puppy-snuggles.com/21471013/smokey-in-his-little-pajamas)
-- [The floof](https://news.puppy-snuggles.com/11349727/the-floof)
+- [The last photo I took of my sweet girl Mitsi. She passed away a few days later.](https://news.puppy-snuggles.com/11307202/the-last-photo-i-took-of-my-sweet-girl-mitsi-she-passed-away-a-few-days-later)
+- [It&#39;s Sakumaru&#39;s 4th birthday](https://news.puppy-snuggles.com/12293516/its-sakumarus-4th-birthday)
+- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
+- [My mom just lost her 16 yo cockapoo last month and now is picking this girl &lpar;cavapoo&rpar; up next week. Any help with names would be great!](https://news.puppy-snuggles.com/20319544/my-mom-just-lost-her-16-yo-cockapoo-last-month-and-now-is-picking-this-girl-cavapoo-up-next-week-any-help-with-names-would-be-great)
+- [One month, the demand for the name](https://news.puppy-snuggles.com/8555286/one-month-the-demand-for-the-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
