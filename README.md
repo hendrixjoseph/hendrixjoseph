@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The last photo I took of my sweet girl Mitsi. She passed away a few days later.](https://news.puppy-snuggles.com/11307202/the-last-photo-i-took-of-my-sweet-girl-mitsi-she-passed-away-a-few-days-later)
-- [It&#39;s Sakumaru&#39;s 4th birthday](https://news.puppy-snuggles.com/12293516/its-sakumarus-4th-birthday)
-- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
-- [My mom just lost her 16 yo cockapoo last month and now is picking this girl &lpar;cavapoo&rpar; up next week. Any help with names would be great!](https://news.puppy-snuggles.com/20319544/my-mom-just-lost-her-16-yo-cockapoo-last-month-and-now-is-picking-this-girl-cavapoo-up-next-week-any-help-with-names-would-be-great)
-- [One month, the demand for the name](https://news.puppy-snuggles.com/8555286/one-month-the-demand-for-the-name)
+- [Meet lulu, isn&#39;t she a beauty](https://news.puppy-snuggles.com/6832807/meet-lulu-isnt-she-a-beauty)
+- [My BestFriend , always smiling](https://news.puppy-snuggles.com/11954242/my-bestfriend-always-smiling)
+- [Rescued these two insanely sweet stray pit bull puppies today.](https://news.puppy-snuggles.com/22153264/rescued-these-two-insanely-sweet-stray-pit-bull-puppies-today)
+- [I think she deserves lots of boops](https://news.puppy-snuggles.com/12769799/i-think-she-deserves-lots-of-boops)
+- [Hey, my name is ash, can you guess my dog breed?](https://news.puppy-snuggles.com/22372651/hey-my-name-is-ash-can-you-guess-my-dog-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
