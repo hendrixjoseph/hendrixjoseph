@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet lulu, isn&#39;t she a beauty](https://news.puppy-snuggles.com/6832807/meet-lulu-isnt-she-a-beauty)
-- [My BestFriend , always smiling](https://news.puppy-snuggles.com/11954242/my-bestfriend-always-smiling)
-- [Rescued these two insanely sweet stray pit bull puppies today.](https://news.puppy-snuggles.com/22153264/rescued-these-two-insanely-sweet-stray-pit-bull-puppies-today)
-- [I think she deserves lots of boops](https://news.puppy-snuggles.com/12769799/i-think-she-deserves-lots-of-boops)
-- [Hey, my name is ash, can you guess my dog breed?](https://news.puppy-snuggles.com/22372651/hey-my-name-is-ash-can-you-guess-my-dog-breed)
+- [Archie smiles](https://news.puppy-snuggles.com/4681207/archie-smiles)
+- [Meet Ruby - aka Rubinator](https://news.puppy-snuggles.com/12522089/meet-ruby-aka-rubinator)
+- [Elmo arrived at his forever home today and is ready to rock ‘n roll!](https://news.puppy-snuggles.com/6992949/elmo-arrived-at-his-forever-home-today-and-is-ready-to-rock-n-roll)
+- [doggooooo](https://news.puppy-snuggles.com/14608040/doggooooo)
+- [Lets Play together...](https://news.puppy-snuggles.com/22416948/lets-play-together)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
