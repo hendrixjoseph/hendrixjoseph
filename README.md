@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Archie smiles](https://news.puppy-snuggles.com/4681207/archie-smiles)
-- [Meet Ruby - aka Rubinator](https://news.puppy-snuggles.com/12522089/meet-ruby-aka-rubinator)
-- [Elmo arrived at his forever home today and is ready to rock ‘n roll!](https://news.puppy-snuggles.com/6992949/elmo-arrived-at-his-forever-home-today-and-is-ready-to-rock-n-roll)
-- [doggooooo](https://news.puppy-snuggles.com/14608040/doggooooo)
-- [Lets Play together...](https://news.puppy-snuggles.com/22416948/lets-play-together)
+- [How can anyone hate these faces](https://news.puppy-snuggles.com/22456889/how-can-anyone-hate-these-faces)
+- [Stop # 6 &amp;amp;amp; 7 On Their First Camping Road Trip, Capital Reef &amp;amp;amp; Arches National Parks](https://news.puppy-snuggles.com/11593179/stop-6-amp-7-on-their-first-camping-road-trip-capital-reef-amp-arches-national-parks)
+- [Boop the snoot](https://news.puppy-snuggles.com/8008759/boop-the-snoot)
+- [Just a doggo and his favorite toy taking a breather after playing fetch. He&#39;s a Frisbee catching machine.](https://news.puppy-snuggles.com/7491074/just-a-doggo-and-his-favorite-toy-taking-a-breather-after-playing-fetch-hes-a-frisbee-catching-machine)
+- [He was tied to a tree the first year of his life. I think he has acclimated well to indoor living. 😂](https://news.puppy-snuggles.com/21461828/he-was-tied-to-a-tree-the-first-year-of-his-life-i-think-he-has-acclimated-well-to-indoor-living)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
