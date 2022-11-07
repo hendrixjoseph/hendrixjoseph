@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How can anyone hate these faces](https://news.puppy-snuggles.com/22456889/how-can-anyone-hate-these-faces)
-- [Stop # 6 &amp;amp;amp; 7 On Their First Camping Road Trip, Capital Reef &amp;amp;amp; Arches National Parks](https://news.puppy-snuggles.com/11593179/stop-6-amp-7-on-their-first-camping-road-trip-capital-reef-amp-arches-national-parks)
-- [Boop the snoot](https://news.puppy-snuggles.com/8008759/boop-the-snoot)
-- [Just a doggo and his favorite toy taking a breather after playing fetch. He&#39;s a Frisbee catching machine.](https://news.puppy-snuggles.com/7491074/just-a-doggo-and-his-favorite-toy-taking-a-breather-after-playing-fetch-hes-a-frisbee-catching-machine)
-- [He was tied to a tree the first year of his life. I think he has acclimated well to indoor living. 😂](https://news.puppy-snuggles.com/21461828/he-was-tied-to-a-tree-the-first-year-of-his-life-i-think-he-has-acclimated-well-to-indoor-living)
+- [Tootsie passed today, she was the best dog in the world.](https://news.puppy-snuggles.com/12146101/tootsie-passed-today-she-was-the-best-dog-in-the-world)
+- [An evening photo of my Malamute I took a few days ago, thought I&#39;d share it here](https://news.puppy-snuggles.com/18392514/an-evening-photo-of-my-malamute-i-took-a-few-days-ago-thought-id-share-it-here)
+- [Our pretty Silver Labrador puppy, CJ playing in the snow.](https://news.puppy-snuggles.com/13461385/our-pretty-silver-labrador-puppy-cj-playing-in-the-snow)
+- [My Jack Russel Sullie ❤️ got to show her the big backyard of our very first home today and she’s so happy 🙌🏻](https://news.puppy-snuggles.com/22482789/my-jack-russel-sullie-got-to-show-her-the-big-backyard-of-our-very-first-home-today-and-shes-so-happy)
+- [It’s his 9th birthday, can’t imagine a life without him anymore 🥺❤️](https://news.puppy-snuggles.com/11726150/its-his-9th-birthday-cant-imagine-a-life-without-him-anymore)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
