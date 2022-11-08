@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tootsie passed today, she was the best dog in the world.](https://news.puppy-snuggles.com/12146101/tootsie-passed-today-she-was-the-best-dog-in-the-world)
-- [An evening photo of my Malamute I took a few days ago, thought I&#39;d share it here](https://news.puppy-snuggles.com/18392514/an-evening-photo-of-my-malamute-i-took-a-few-days-ago-thought-id-share-it-here)
-- [Our pretty Silver Labrador puppy, CJ playing in the snow.](https://news.puppy-snuggles.com/13461385/our-pretty-silver-labrador-puppy-cj-playing-in-the-snow)
-- [My Jack Russel Sullie ❤️ got to show her the big backyard of our very first home today and she’s so happy 🙌🏻](https://news.puppy-snuggles.com/22482789/my-jack-russel-sullie-got-to-show-her-the-big-backyard-of-our-very-first-home-today-and-shes-so-happy)
-- [It’s his 9th birthday, can’t imagine a life without him anymore 🥺❤️](https://news.puppy-snuggles.com/11726150/its-his-9th-birthday-cant-imagine-a-life-without-him-anymore)
+- [My buddy crossed the rainbow bridge yesterday. I wanted to share his beautiful smile with all of you](https://news.puppy-snuggles.com/15434992/my-buddy-crossed-the-rainbow-bridge-yesterday-i-wanted-to-share-his-beautiful-smile-with-all-of-you)
+- [Your dog wants you to hold him while you&#39;re cooking](https://news.puppy-snuggles.com/17800756/your-dog-wants-you-to-hold-him-while-youre-cooking)
+- [You&#39;re so precious when you smile](https://news.puppy-snuggles.com/7681069/youre-so-precious-when-you-smile)
+- [Puppies! Gotta love them😃](https://news.puppy-snuggles.com/22522780/puppies-gotta-love-them)
+- [Walkin&#39; on water. Jöel at Woodgate beach, Australia. Labrador/Mastiff X](https://news.puppy-snuggles.com/11827607/walkin-on-water-joel-at-woodgate-beach-australia-labradormastiff-x)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
