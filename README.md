@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My buddy crossed the rainbow bridge yesterday. I wanted to share his beautiful smile with all of you](https://news.puppy-snuggles.com/15434992/my-buddy-crossed-the-rainbow-bridge-yesterday-i-wanted-to-share-his-beautiful-smile-with-all-of-you)
-- [Your dog wants you to hold him while you&#39;re cooking](https://news.puppy-snuggles.com/17800756/your-dog-wants-you-to-hold-him-while-youre-cooking)
-- [You&#39;re so precious when you smile](https://news.puppy-snuggles.com/7681069/youre-so-precious-when-you-smile)
-- [Puppies! Gotta love them😃](https://news.puppy-snuggles.com/22522780/puppies-gotta-love-them)
-- [Walkin&#39; on water. Jöel at Woodgate beach, Australia. Labrador/Mastiff X](https://news.puppy-snuggles.com/11827607/walkin-on-water-joel-at-woodgate-beach-australia-labradormastiff-x)
+- [Kipling’s &lpar;purple hat&rpar; Birthday Bash!](https://news.puppy-snuggles.com/22555978/kiplings-purple-hat-birthday-bash)
+- [I&#39;m going to sleep on the road one second later](https://news.puppy-snuggles.com/18601937/im-going-to-sleep-on-the-road-one-second-later)
+- [this is chapo&#39;s world. I&#39;m just living in it.](https://news.puppy-snuggles.com/22555981/this-is-chapos-world-im-just-living-in-it)
+- [First time beach. She was afraid first, then curious and after she realized what a beach is she didn&#39;t want to leave.](https://news.puppy-snuggles.com/21638387/first-time-beach-she-was-afraid-first-then-curious-and-after-she-realized-what-a-beach-is-she-didnt-want-to-leave)
+- [A good boi :3](https://news.puppy-snuggles.com/8401213/a-good-boi-3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
