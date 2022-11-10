@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Kipling’s &lpar;purple hat&rpar; Birthday Bash!](https://news.puppy-snuggles.com/22555978/kiplings-purple-hat-birthday-bash)
-- [I&#39;m going to sleep on the road one second later](https://news.puppy-snuggles.com/18601937/im-going-to-sleep-on-the-road-one-second-later)
-- [this is chapo&#39;s world. I&#39;m just living in it.](https://news.puppy-snuggles.com/22555981/this-is-chapos-world-im-just-living-in-it)
-- [First time beach. She was afraid first, then curious and after she realized what a beach is she didn&#39;t want to leave.](https://news.puppy-snuggles.com/21638387/first-time-beach-she-was-afraid-first-then-curious-and-after-she-realized-what-a-beach-is-she-didnt-want-to-leave)
-- [A good boi :3](https://news.puppy-snuggles.com/8401213/a-good-boi-3)
+- [Dog Purposing Style](https://news.puppy-snuggles.com/15440416/dog-purposing-style)
+- [I&#39;m not sure what is happening but Mr Spooks &lpar; Halloween week puppy&rpar; enjoys belly rubs](https://news.puppy-snuggles.com/21850996/im-not-sure-what-is-happening-but-mr-spooks-halloween-week-puppy-enjoys-belly-rubs)
+- [عندما يغلبك النوم](https://news.puppy-snuggles.com/22244440/aandma-yghlbk-alnom)
+- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
+- [Just my dog. I love him](https://news.puppy-snuggles.com/21978305/just-my-dog-i-love-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
