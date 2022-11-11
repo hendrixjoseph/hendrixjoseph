@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog Purposing Style](https://news.puppy-snuggles.com/15440416/dog-purposing-style)
-- [I&#39;m not sure what is happening but Mr Spooks &lpar; Halloween week puppy&rpar; enjoys belly rubs](https://news.puppy-snuggles.com/21850996/im-not-sure-what-is-happening-but-mr-spooks-halloween-week-puppy-enjoys-belly-rubs)
-- [عندما يغلبك النوم](https://news.puppy-snuggles.com/22244440/aandma-yghlbk-alnom)
-- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
-- [Just my dog. I love him](https://news.puppy-snuggles.com/21978305/just-my-dog-i-love-him)
+- [I was testing my new phone&#39;s camera and really liked this picture of my girl.](https://news.puppy-snuggles.com/9954007/i-was-testing-my-new-phones-camera-and-really-liked-this-picture-of-my-girl)
+- [Meet Toby!](https://news.puppy-snuggles.com/13920172/meet-toby)
+- [Nothing like cuddles on a cold day](https://news.puppy-snuggles.com/13535947/nothing-like-cuddles-on-a-cold-day)
+- [Everyone meet Biscuit!](https://news.puppy-snuggles.com/14390914/everyone-meet-biscuit)
+- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
