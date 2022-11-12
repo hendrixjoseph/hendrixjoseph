@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I was testing my new phone&#39;s camera and really liked this picture of my girl.](https://news.puppy-snuggles.com/9954007/i-was-testing-my-new-phones-camera-and-really-liked-this-picture-of-my-girl)
-- [Meet Toby!](https://news.puppy-snuggles.com/13920172/meet-toby)
-- [Nothing like cuddles on a cold day](https://news.puppy-snuggles.com/13535947/nothing-like-cuddles-on-a-cold-day)
-- [Everyone meet Biscuit!](https://news.puppy-snuggles.com/14390914/everyone-meet-biscuit)
-- [I think my puppy has transformed into a new species: A rottweiler rabbit 🐰🥰](https://news.puppy-snuggles.com/10396970/i-think-my-puppy-has-transformed-into-a-new-species-a-rottweiler-rabbit)
+- [She is there for comfort when needed](https://news.puppy-snuggles.com/22170108/she-is-there-for-comfort-when-needed)
+- [Pierre the Husky &amp;amp;amp; Queen Elizabeth the Saarlooswolfdog](https://news.puppy-snuggles.com/22674536/pierre-the-husky-amp-queen-elizabeth-the-saarlooswolfdog)
+- [My favorite breed](https://news.puppy-snuggles.com/14443624/my-favorite-breed)
+- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
+- [Hello everyone, this is Puppy Cruz](https://news.puppy-snuggles.com/21441832/hello-everyone-this-is-puppy-cruz)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
