@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She is there for comfort when needed](https://news.puppy-snuggles.com/22170108/she-is-there-for-comfort-when-needed)
-- [Pierre the Husky &amp;amp;amp; Queen Elizabeth the Saarlooswolfdog](https://news.puppy-snuggles.com/22674536/pierre-the-husky-amp-queen-elizabeth-the-saarlooswolfdog)
-- [My favorite breed](https://news.puppy-snuggles.com/14443624/my-favorite-breed)
-- [he’s a very handsome boy](https://news.puppy-snuggles.com/15051867/hes-a-very-handsome-boy)
-- [Hello everyone, this is Puppy Cruz](https://news.puppy-snuggles.com/21441832/hello-everyone-this-is-puppy-cruz)
+- [When I ask my dog if he wants to go on a walk](https://news.puppy-snuggles.com/10106199/when-i-ask-my-dog-if-he-wants-to-go-on-a-walk)
+- [Morning exercise helps you have an energetic day.](https://news.puppy-snuggles.com/9301932/morning-exercise-helps-you-have-an-energetic-day)
+- [The day we picked him up VS today](https://news.puppy-snuggles.com/10550355/the-day-we-picked-him-up-vs-today)
+- [Made strawberry shortcake for the family and made a doggy friendly one for our girl! Plate licked clean!](https://news.puppy-snuggles.com/7399767/made-strawberry-shortcake-for-the-family-and-made-a-doggy-friendly-one-for-our-girl-plate-licked-clean)
+- [Meet my new baby, Phoebe.](https://news.puppy-snuggles.com/9301928/meet-my-new-baby-phoebe)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
