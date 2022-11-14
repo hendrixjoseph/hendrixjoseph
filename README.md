@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I ask my dog if he wants to go on a walk](https://news.puppy-snuggles.com/10106199/when-i-ask-my-dog-if-he-wants-to-go-on-a-walk)
-- [Morning exercise helps you have an energetic day.](https://news.puppy-snuggles.com/9301932/morning-exercise-helps-you-have-an-energetic-day)
-- [The day we picked him up VS today](https://news.puppy-snuggles.com/10550355/the-day-we-picked-him-up-vs-today)
-- [Made strawberry shortcake for the family and made a doggy friendly one for our girl! Plate licked clean!](https://news.puppy-snuggles.com/7399767/made-strawberry-shortcake-for-the-family-and-made-a-doggy-friendly-one-for-our-girl-plate-licked-clean)
-- [Meet my new baby, Phoebe.](https://news.puppy-snuggles.com/9301928/meet-my-new-baby-phoebe)
+- [rate his squish 0-10 ❤️ &lpar;0 being no squish&rpar;](https://news.puppy-snuggles.com/19676425/rate-his-squish-0-10-0-being-no-squish)
+- [Some pictures I took of my friends dog Gracie. She is so beautiful and photogenic!!](https://news.puppy-snuggles.com/11764427/some-pictures-i-took-of-my-friends-dog-gracie-she-is-so-beautiful-and-photogenic)
+- [Cute Poodle Boy](https://news.puppy-snuggles.com/12268757/cute-poodle-boy)
+- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
+- [Recent commission dog pencil portrait](https://news.puppy-snuggles.com/13633086/recent-commission-dog-pencil-portrait)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
