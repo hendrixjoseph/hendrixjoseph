@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [rate his squish 0-10 ❤️ &lpar;0 being no squish&rpar;](https://news.puppy-snuggles.com/19676425/rate-his-squish-0-10-0-being-no-squish)
-- [Some pictures I took of my friends dog Gracie. She is so beautiful and photogenic!!](https://news.puppy-snuggles.com/11764427/some-pictures-i-took-of-my-friends-dog-gracie-she-is-so-beautiful-and-photogenic)
-- [Cute Poodle Boy](https://news.puppy-snuggles.com/12268757/cute-poodle-boy)
-- [Sorry](https://news.puppy-snuggles.com/11183480/sorry)
-- [Recent commission dog pencil portrait](https://news.puppy-snuggles.com/13633086/recent-commission-dog-pencil-portrait)
+- [Katie Price slammed as she reveals she’s getting a THIRD dog after puppy’s death and giving away her last pet](https://news.puppy-snuggles.com/11228704/katie-price-slammed-as-she-reveals-shes-getting-a-third-dog-after-puppys-death-and-giving-away-her-last-pet)
+- [Grinning boi](https://news.puppy-snuggles.com/11478085/grinning-boi)
+- [This is peanut. &lpar;WooWoo&rpar;](https://news.puppy-snuggles.com/5127610/this-is-peanut-woowoo)
+- [a lost dog need breed id ASAP](https://news.puppy-snuggles.com/11599863/a-lost-dog-need-breed-id-asap)
+- [Adopted my first ever dawg.](https://news.puppy-snuggles.com/22774023/adopted-my-first-ever-dawg)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
