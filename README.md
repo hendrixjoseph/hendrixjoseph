@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Official referral thread](https://www.reddit.com/r/Webull/comments/yvxdse/official_referral_thread/iwj3hqo/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, November 15, 2022](https://www.reddit.com/r/financialindependence/comments/yvsq2i/daily_fi_discussion_thread_tuesday_november_15/iwglb8x/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of November 14, 2022](https://www.reddit.com/r/personalfinance/comments/yuvv4d/weekday_help_and_victory_thread_for_the_week_of/iwgkryz/)
 - [/u/joehx on What &quot;joke&quot; with your SO landed you in the &quot;dog house&quot;?](https://www.reddit.com/r/AskMen/comments/yp1hys/what_joke_with_your_so_landed_you_in_the_dog_house/ivhn52y/)
 - [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9sa2u/)
-- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9s4sg/)
-- [/u/joehx on TIL While useful for those with dietary deficiencies, multivitamins offer no real benefit to the majority of the population. The U.S. Preventive Services Task Force found no clear evidence that consuming multivitamins &quot;made them healthier in any way.&quot;](https://www.reddit.com/r/todayilearned/comments/yghx80/til_while_useful_for_those_with_dietary/iu9ke29/)
-- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9idcx/)
 <!-- REDDIT:END -->
