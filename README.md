@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Katie Price slammed as she reveals she’s getting a THIRD dog after puppy’s death and giving away her last pet](https://news.puppy-snuggles.com/11228704/katie-price-slammed-as-she-reveals-shes-getting-a-third-dog-after-puppys-death-and-giving-away-her-last-pet)
-- [Grinning boi](https://news.puppy-snuggles.com/11478085/grinning-boi)
-- [This is peanut. &lpar;WooWoo&rpar;](https://news.puppy-snuggles.com/5127610/this-is-peanut-woowoo)
-- [a lost dog need breed id ASAP](https://news.puppy-snuggles.com/11599863/a-lost-dog-need-breed-id-asap)
-- [Adopted my first ever dawg.](https://news.puppy-snuggles.com/22774023/adopted-my-first-ever-dawg)
+- [dad says. this is a very important. and famous place. i just know. that i smell. chicharrón. 🐾 📍 Parque Poblado, Medellín, Colombia 🇨🇴](https://news.puppy-snuggles.com/11289640/dad-says-this-is-a-very-important-and-famous-place-i-just-know-that-i-smell-chicharron-parque-poblado-medellin-colombia)
+- [Toast says hi](https://news.puppy-snuggles.com/12311096/toast-says-hi)
+- [Lol](https://news.puppy-snuggles.com/6312559/lol)
+- [viktor has caught bacon](https://news.puppy-snuggles.com/13874301/viktor-has-caught-bacon)
+- [Romeo and Juliette&#39;s dogs](https://news.puppy-snuggles.com/11196608/romeo-and-juliettes-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
