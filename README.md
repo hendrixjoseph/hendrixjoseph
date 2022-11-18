@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [An anti-proverb is changing a proverb - or saying - into something else to be funny. &quot;Don&#39;t put off until tomorrow what you can do today&quot; could change to &quot;Never do today what can be done tomorrow.&quot; What&#39;s your favorite anti-proverb?](https://www.reddit.com/r/AskReddit/comments/yxz3tz/an_antiproverb_is_changing_a_proverb_or_saying/)
 - [/u/joehx on Official referral thread](https://www.reddit.com/r/Webull/comments/yvxdse/official_referral_thread/iwj3hqo/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, November 15, 2022](https://www.reddit.com/r/financialindependence/comments/yvsq2i/daily_fi_discussion_thread_tuesday_november_15/iwglb8x/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of November 14, 2022](https://www.reddit.com/r/personalfinance/comments/yuvv4d/weekday_help_and_victory_thread_for_the_week_of/iwgkryz/)
 - [/u/joehx on What &quot;joke&quot; with your SO landed you in the &quot;dog house&quot;?](https://www.reddit.com/r/AskMen/comments/yp1hys/what_joke_with_your_so_landed_you_in_the_dog_house/ivhn52y/)
-- [/u/joehx on FREE Kroger Bread - see comment for details](https://www.reddit.com/r/freebies/comments/ygo64v/free_kroger_bread_see_comment_for_details/iu9sa2u/)
 <!-- REDDIT:END -->
