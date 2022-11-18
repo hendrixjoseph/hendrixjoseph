@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love this dude. He knows he is mine. Just turned 1](https://news.puppy-snuggles.com/13138561/love-this-dude-he-knows-he-is-mine-just-turned-1)
-- [Easter Buddy](https://news.puppy-snuggles.com/16032383/easter-buddy)
-- [Vicious hairy beast in attack mode.](https://news.puppy-snuggles.com/11538899/vicious-hairy-beast-in-attack-mode)
-- [All grown up for her 2nd Christmas!](https://news.puppy-snuggles.com/12677351/all-grown-up-for-her-2nd-christmas)
-- [I don&#39;t need that](https://news.puppy-snuggles.com/16394156/i-dont-need-that)
+- [I love waking up to everybody in the bed](https://news.puppy-snuggles.com/9062698/i-love-waking-up-to-everybody-in-the-bed)
+- [My fiancé and I were worried we’d never see this. He doesn’t smile often, Captain’s more of a tail wagger. BUT IT HAPPENED! And I’m excited to post it for all of you.](https://news.puppy-snuggles.com/12682986/my-fiance-and-i-were-worried-wed-never-see-this-he-doesnt-smile-often-captains-more-of-a-tail-wagger-but-it-happened-and-im-excited-to-post-it-for-all-of-you)
+- [Handsome boy Ragnar 💙](https://news.puppy-snuggles.com/11368102/handsome-boy-ragnar)
+- [why does she look like she’s posing for a school photo 😂](https://news.puppy-snuggles.com/12636063/why-does-she-look-like-shes-posing-for-a-school-photo)
+- [In a charming low barkchomp](https://news.puppy-snuggles.com/11927295/in-a-charming-low-barkchomp)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
