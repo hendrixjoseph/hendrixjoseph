@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I love waking up to everybody in the bed](https://news.puppy-snuggles.com/9062698/i-love-waking-up-to-everybody-in-the-bed)
-- [My fiancé and I were worried we’d never see this. He doesn’t smile often, Captain’s more of a tail wagger. BUT IT HAPPENED! And I’m excited to post it for all of you.](https://news.puppy-snuggles.com/12682986/my-fiance-and-i-were-worried-wed-never-see-this-he-doesnt-smile-often-captains-more-of-a-tail-wagger-but-it-happened-and-im-excited-to-post-it-for-all-of-you)
-- [Handsome boy Ragnar 💙](https://news.puppy-snuggles.com/11368102/handsome-boy-ragnar)
-- [why does she look like she’s posing for a school photo 😂](https://news.puppy-snuggles.com/12636063/why-does-she-look-like-shes-posing-for-a-school-photo)
-- [In a charming low barkchomp](https://news.puppy-snuggles.com/11927295/in-a-charming-low-barkchomp)
+- [My adorable puppies!](https://news.puppy-snuggles.com/10638105/my-adorable-puppies)
+- [Our little brother Atlas is growing so much! Look how cool his fur coat is! 😍 &lpar;4month old Border Aussie&rpar;](https://news.puppy-snuggles.com/7830621/our-little-brother-atlas-is-growing-so-much-look-how-cool-his-fur-coat-is-4month-old-border-aussie)
+- [&amp;amp;quot;Yea hey you&#39;re not going anywhere without me...&amp;amp;quot;](https://news.puppy-snuggles.com/5507994/quotyea-hey-youre-not-going-anywhere-without-mequot)
+- [My 3 fur babies](https://news.puppy-snuggles.com/9273202/my-3-fur-babies)
+- [Our happy Rottsky, Athena😊](https://news.puppy-snuggles.com/16164796/our-happy-rottsky-athena)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
