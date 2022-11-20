@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My adorable puppies!](https://news.puppy-snuggles.com/10638105/my-adorable-puppies)
-- [Our little brother Atlas is growing so much! Look how cool his fur coat is! 😍 &lpar;4month old Border Aussie&rpar;](https://news.puppy-snuggles.com/7830621/our-little-brother-atlas-is-growing-so-much-look-how-cool-his-fur-coat-is-4month-old-border-aussie)
-- [&amp;amp;quot;Yea hey you&#39;re not going anywhere without me...&amp;amp;quot;](https://news.puppy-snuggles.com/5507994/quotyea-hey-youre-not-going-anywhere-without-mequot)
-- [My 3 fur babies](https://news.puppy-snuggles.com/9273202/my-3-fur-babies)
-- [Our happy Rottsky, Athena😊](https://news.puppy-snuggles.com/16164796/our-happy-rottsky-athena)
+- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
+- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [There&#39;s that lil tongue again!](https://news.puppy-snuggles.com/7369730/theres-that-lil-tongue-again)
+- [The cutest idea!!](https://news.puppy-snuggles.com/6982162/the-cutest-idea)
+- [Shorty gets a sweet potato fry :&rpar;](https://news.puppy-snuggles.com/19508152/shorty-gets-a-sweet-potato-fry)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
