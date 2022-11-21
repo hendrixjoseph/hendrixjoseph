@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My adorable pest has a lot of smiling pictures but this is my favorite happy picture of him.](https://news.puppy-snuggles.com/5703056/my-adorable-pest-has-a-lot-of-smiling-pictures-but-this-is-my-favorite-happy-picture-of-him)
-- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
-- [There&#39;s that lil tongue again!](https://news.puppy-snuggles.com/7369730/theres-that-lil-tongue-again)
-- [The cutest idea!!](https://news.puppy-snuggles.com/6982162/the-cutest-idea)
-- [Shorty gets a sweet potato fry :&rpar;](https://news.puppy-snuggles.com/19508152/shorty-gets-a-sweet-potato-fry)
+- [my dog blue](https://news.puppy-snuggles.com/10621694/my-dog-blue)
+- [My girl in a field with some clovers](https://news.puppy-snuggles.com/21954425/my-girl-in-a-field-with-some-clovers)
+- [I just wanted to get my sunglasses](https://news.puppy-snuggles.com/10083364/i-just-wanted-to-get-my-sunglasses)
+- [not all chihuahuas are evil little ankle biters it depends on how they were raised and loved the farthest lulu would go is to nibble on your fingers](https://news.puppy-snuggles.com/22833367/not-all-chihuahuas-are-evil-little-ankle-biters-it-depends-on-how-they-were-raised-and-loved-the-farthest-lulu-would-go-is-to-nibble-on-your-fingers)
+- [he stole my chair](https://news.puppy-snuggles.com/22844341/he-stole-my-chair)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
