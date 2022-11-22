@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my dog blue](https://news.puppy-snuggles.com/10621694/my-dog-blue)
-- [My girl in a field with some clovers](https://news.puppy-snuggles.com/21954425/my-girl-in-a-field-with-some-clovers)
-- [I just wanted to get my sunglasses](https://news.puppy-snuggles.com/10083364/i-just-wanted-to-get-my-sunglasses)
-- [not all chihuahuas are evil little ankle biters it depends on how they were raised and loved the farthest lulu would go is to nibble on your fingers](https://news.puppy-snuggles.com/22833367/not-all-chihuahuas-are-evil-little-ankle-biters-it-depends-on-how-they-were-raised-and-loved-the-farthest-lulu-would-go-is-to-nibble-on-your-fingers)
-- [he stole my chair](https://news.puppy-snuggles.com/22844341/he-stole-my-chair)
+- [Seal or dog?](https://news.puppy-snuggles.com/23037456/seal-or-dog)
+- [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
+- [Sunday Sun](https://news.puppy-snuggles.com/23037451/sunday-sun)
+- [My sister&#39;s dog, Masha, hopes you have a great day :&rpar;&rpar;](https://news.puppy-snuggles.com/23037453/my-sisters-dog-masha-hopes-you-have-a-great-day)
+- [My handsome boy’s smile](https://news.puppy-snuggles.com/23037450/my-handsome-boys-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
