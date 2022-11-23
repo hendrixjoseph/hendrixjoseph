@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Seal or dog?](https://news.puppy-snuggles.com/23037456/seal-or-dog)
-- [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
-- [Sunday Sun](https://news.puppy-snuggles.com/23037451/sunday-sun)
-- [My sister&#39;s dog, Masha, hopes you have a great day :&rpar;&rpar;](https://news.puppy-snuggles.com/23037453/my-sisters-dog-masha-hopes-you-have-a-great-day)
-- [My handsome boy’s smile](https://news.puppy-snuggles.com/23037450/my-handsome-boys-smile)
+- [And I never thought that 17 years later, my best friend would live to meet my first child](https://news.puppy-snuggles.com/6822127/and-i-never-thought-that-17-years-later-my-best-friend-would-live-to-meet-my-first-child)
+- [This is my boy after 6 months](https://news.puppy-snuggles.com/23059898/this-is-my-boy-after-6-months)
+- [I Wonder if i likes snow](https://news.puppy-snuggles.com/23072311/i-wonder-if-i-likes-snow)
+- [I&#39;m pretty tired but I don&#39;t have the heart to tell her to move](https://news.puppy-snuggles.com/20133702/im-pretty-tired-but-i-dont-have-the-heart-to-tell-her-to-move)
+- [Jack slept in today](https://news.puppy-snuggles.com/21441831/jack-slept-in-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
