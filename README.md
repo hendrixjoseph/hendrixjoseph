@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [And I never thought that 17 years later, my best friend would live to meet my first child](https://news.puppy-snuggles.com/6822127/and-i-never-thought-that-17-years-later-my-best-friend-would-live-to-meet-my-first-child)
-- [This is my boy after 6 months](https://news.puppy-snuggles.com/23059898/this-is-my-boy-after-6-months)
-- [I Wonder if i likes snow](https://news.puppy-snuggles.com/23072311/i-wonder-if-i-likes-snow)
-- [I&#39;m pretty tired but I don&#39;t have the heart to tell her to move](https://news.puppy-snuggles.com/20133702/im-pretty-tired-but-i-dont-have-the-heart-to-tell-her-to-move)
-- [Jack slept in today](https://news.puppy-snuggles.com/21441831/jack-slept-in-today)
+- [My pupper](https://news.puppy-snuggles.com/13582003/my-pupper)
+- [this our new recuse pup from spain, we are unsure of her breed, any ideas?](https://news.puppy-snuggles.com/22456885/this-our-new-recuse-pup-from-spain-we-are-unsure-of-her-breed-any-ideas)
+- [Enjoying the scritches](https://news.puppy-snuggles.com/16574596/enjoying-the-scritches)
+- [1 photo, thousand feelings.](https://news.puppy-snuggles.com/21954428/1-photo-thousand-feelings)
+- [Make sure your local dispensary has an expert on site!](https://news.puppy-snuggles.com/10337230/make-sure-your-local-dispensary-has-an-expert-on-site)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
