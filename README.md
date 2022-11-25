@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pupper](https://news.puppy-snuggles.com/13582003/my-pupper)
-- [this our new recuse pup from spain, we are unsure of her breed, any ideas?](https://news.puppy-snuggles.com/22456885/this-our-new-recuse-pup-from-spain-we-are-unsure-of-her-breed-any-ideas)
-- [Enjoying the scritches](https://news.puppy-snuggles.com/16574596/enjoying-the-scritches)
-- [1 photo, thousand feelings.](https://news.puppy-snuggles.com/21954428/1-photo-thousand-feelings)
-- [Make sure your local dispensary has an expert on site!](https://news.puppy-snuggles.com/10337230/make-sure-your-local-dispensary-has-an-expert-on-site)
+- [very beautiful boy&rpar;&rpar;&rpar;](https://news.puppy-snuggles.com/10166605/very-beautiful-boy)
+- [This is Kobe🥰](https://news.puppy-snuggles.com/11064914/this-is-kobe)
+- [Whippets are bred to race, warm beds, and look handsome](https://news.puppy-snuggles.com/10371594/whippets-are-bred-to-race-warm-beds-and-look-handsome)
+- [My Thora gave birth to 4 healthy beautiful puppies. So proud of her!](https://news.puppy-snuggles.com/9409175/my-thora-gave-birth-to-4-healthy-beautiful-puppies-so-proud-of-her)
+- [Got some great shots of my Pup today!](https://news.puppy-snuggles.com/16121615/got-some-great-shots-of-my-pup-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
