@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [very beautiful boy&rpar;&rpar;&rpar;](https://news.puppy-snuggles.com/10166605/very-beautiful-boy)
-- [This is Kobe🥰](https://news.puppy-snuggles.com/11064914/this-is-kobe)
-- [Whippets are bred to race, warm beds, and look handsome](https://news.puppy-snuggles.com/10371594/whippets-are-bred-to-race-warm-beds-and-look-handsome)
-- [My Thora gave birth to 4 healthy beautiful puppies. So proud of her!](https://news.puppy-snuggles.com/9409175/my-thora-gave-birth-to-4-healthy-beautiful-puppies-so-proud-of-her)
-- [Got some great shots of my Pup today!](https://news.puppy-snuggles.com/16121615/got-some-great-shots-of-my-pup-today)
+- [She is small and cute :D](https://news.puppy-snuggles.com/6955627/she-is-small-and-cute-d)
+- [Father and Daughter](https://news.puppy-snuggles.com/6206056/father-and-daughter)
+- [Milo climbing the furnitures :&rpar;](https://news.puppy-snuggles.com/7719962/milo-climbing-the-furnitures)
+- [What is this breed of dog?](https://news.puppy-snuggles.com/23185584/what-is-this-breed-of-dog)
+- [Our little fur family is complete](https://news.puppy-snuggles.com/7575833/our-little-fur-family-is-complete)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
