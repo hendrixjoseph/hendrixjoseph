@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The toothy fur squirrel waiting patiently for 🌭🌭](https://news.puppy-snuggles.com/10297417/the-toothy-fur-squirrel-waiting-patiently-for)
-- [adopted this dog he is 4 months old now.. what do you think is his breed?](https://news.puppy-snuggles.com/23196460/adopted-this-dog-he-is-4-months-old-now-what-do-you-think-is-his-breed)
-- [My puppos](https://news.puppy-snuggles.com/13308905/my-puppos)
-- [Found this guy out in the oilfield on the reservation. He followed my truck for 3.5 miles, it was like he was begging for help. Let me just pick him up and put him in the truck. Vets closed till Monday, but we got him cleaned up and sprayed the wounds out with wound cleaner. He&#39;s a good boy.](https://news.puppy-snuggles.com/23214207/found-this-guy-out-in-the-oilfield-on-the-reservation-he-followed-my-truck-for-35-miles-it-was-like-he-was-begging-for-help-let-me-just-pick-him-up-and-put-him-in-the-truck-vets-closed-till-monday-but-we-got-him-cleaned-up-and-sprayed-the-wounds-out-with-wound-cleaner-hes-a-good-boy)
-- [Someone wants to play.](https://news.puppy-snuggles.com/9919418/someone-wants-to-play)
+- [My beautiful girl and her Sweet 16 photo shoot.](https://news.puppy-snuggles.com/14946281/my-beautiful-girl-and-her-sweet-16-photo-shoot)
+- [loves his elf toy. Antler ears not so much](https://news.puppy-snuggles.com/23251516/loves-his-elf-toy-antler-ears-not-so-much)
+- [Will they become friends one day?](https://news.puppy-snuggles.com/23251509/will-they-become-friends-one-day)
+- [when you&#39;re the best service pup, you get to carry your new toy to the car❤️](https://news.puppy-snuggles.com/23251508/when-youre-the-best-service-pup-you-get-to-carry-your-new-toy-to-the-car)
+- [Gracie in all of her glory](https://news.puppy-snuggles.com/23251507/gracie-in-all-of-her-glory)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
