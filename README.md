@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My beautiful girl and her Sweet 16 photo shoot.](https://news.puppy-snuggles.com/14946281/my-beautiful-girl-and-her-sweet-16-photo-shoot)
-- [loves his elf toy. Antler ears not so much](https://news.puppy-snuggles.com/23251516/loves-his-elf-toy-antler-ears-not-so-much)
-- [Will they become friends one day?](https://news.puppy-snuggles.com/23251509/will-they-become-friends-one-day)
-- [when you&#39;re the best service pup, you get to carry your new toy to the car❤️](https://news.puppy-snuggles.com/23251508/when-youre-the-best-service-pup-you-get-to-carry-your-new-toy-to-the-car)
-- [Gracie in all of her glory](https://news.puppy-snuggles.com/23251507/gracie-in-all-of-her-glory)
+- [Does your dog do this?!](https://news.puppy-snuggles.com/12403778/does-your-dog-do-this)
+- [Tilly. The Sweetest Girl.](https://news.puppy-snuggles.com/22735925/tilly-the-sweetest-girl)
+- [Every day my neighbor sits at the fence and waits for her good morning treat.](https://news.puppy-snuggles.com/11452982/every-day-my-neighbor-sits-at-the-fence-and-waits-for-her-good-morning-treat)
+- [Lucy guards the front of our house just before sunset Monday evening.](https://news.puppy-snuggles.com/6312558/lucy-guards-the-front-of-our-house-just-before-sunset-monday-evening)
+- [My baby’s smile after we came home](https://news.puppy-snuggles.com/7579966/my-babys-smile-after-we-came-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
