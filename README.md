@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does your dog do this?!](https://news.puppy-snuggles.com/12403778/does-your-dog-do-this)
-- [Tilly. The Sweetest Girl.](https://news.puppy-snuggles.com/22735925/tilly-the-sweetest-girl)
-- [Every day my neighbor sits at the fence and waits for her good morning treat.](https://news.puppy-snuggles.com/11452982/every-day-my-neighbor-sits-at-the-fence-and-waits-for-her-good-morning-treat)
-- [Lucy guards the front of our house just before sunset Monday evening.](https://news.puppy-snuggles.com/6312558/lucy-guards-the-front-of-our-house-just-before-sunset-monday-evening)
-- [My baby’s smile after we came home](https://news.puppy-snuggles.com/7579966/my-babys-smile-after-we-came-home)
+- [say cheeeeeeeeeeeeeeeeeeese!](https://news.puppy-snuggles.com/7507166/say-cheeeeeeeeeeeeeeeeeeese)
+- [always happy lol](https://news.puppy-snuggles.com/8979191/always-happy-lol)
+- [the most satisfied loaf in the area](https://news.puppy-snuggles.com/19197737/the-most-satisfied-loaf-in-the-area)
+- [Had to say goodbye to our boy Denzel on Tuesday. He was 14. So sad but honoured to have been part of his life. Just wanted to share him with the world.](https://news.puppy-snuggles.com/14103988/had-to-say-goodbye-to-our-boy-denzel-on-tuesday-he-was-14-so-sad-but-honoured-to-have-been-part-of-his-life-just-wanted-to-share-him-with-the-world)
+- [It’s cozy season](https://news.puppy-snuggles.com/11691625/its-cozy-season)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
