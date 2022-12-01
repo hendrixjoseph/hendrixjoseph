@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [say cheeeeeeeeeeeeeeeeeeese!](https://news.puppy-snuggles.com/7507166/say-cheeeeeeeeeeeeeeeeeeese)
-- [always happy lol](https://news.puppy-snuggles.com/8979191/always-happy-lol)
-- [the most satisfied loaf in the area](https://news.puppy-snuggles.com/19197737/the-most-satisfied-loaf-in-the-area)
-- [Had to say goodbye to our boy Denzel on Tuesday. He was 14. So sad but honoured to have been part of his life. Just wanted to share him with the world.](https://news.puppy-snuggles.com/14103988/had-to-say-goodbye-to-our-boy-denzel-on-tuesday-he-was-14-so-sad-but-honoured-to-have-been-part-of-his-life-just-wanted-to-share-him-with-the-world)
-- [It’s cozy season](https://news.puppy-snuggles.com/11691625/its-cozy-season)
+- [If happiness was a picture](https://news.puppy-snuggles.com/23360380/if-happiness-was-a-picture)
+- [Dog, me, Acrylic on canvas, Thoughts?](https://news.puppy-snuggles.com/17364661/dog-me-acrylic-on-canvas-thoughts)
+- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
+- [Odie says hi and a happy day to you!](https://news.puppy-snuggles.com/23164537/odie-says-hi-and-a-happy-day-to-you)
+- [What kind of mix do you guys think he is?](https://news.puppy-snuggles.com/8800520/what-kind-of-mix-do-you-guys-think-he-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
