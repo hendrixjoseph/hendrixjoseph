@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If happiness was a picture](https://news.puppy-snuggles.com/23360380/if-happiness-was-a-picture)
-- [Dog, me, Acrylic on canvas, Thoughts?](https://news.puppy-snuggles.com/17364661/dog-me-acrylic-on-canvas-thoughts)
-- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
-- [Odie says hi and a happy day to you!](https://news.puppy-snuggles.com/23164537/odie-says-hi-and-a-happy-day-to-you)
-- [What kind of mix do you guys think he is?](https://news.puppy-snuggles.com/8800520/what-kind-of-mix-do-you-guys-think-he-is)
+- [Did a Hogwarts photoshoot of my dog!!](https://news.puppy-snuggles.com/23397834/did-a-hogwarts-photoshoot-of-my-dog)
+- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
+- [It&#39;s blizzarding here and someone is perfectly happy at -15° 🥶](https://news.puppy-snuggles.com/22663114/its-blizzarding-here-and-someone-is-perfectly-happy-at-15)
+- [Queen of the house.. 👑](https://news.puppy-snuggles.com/22916233/queen-of-the-house)
+- [Can’t believe he’s been gone over 3 months](https://news.puppy-snuggles.com/22317941/cant-believe-hes-been-gone-over-3-months)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
