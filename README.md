@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Did a Hogwarts photoshoot of my dog!!](https://news.puppy-snuggles.com/23397834/did-a-hogwarts-photoshoot-of-my-dog)
-- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
-- [It&#39;s blizzarding here and someone is perfectly happy at -15° 🥶](https://news.puppy-snuggles.com/22663114/its-blizzarding-here-and-someone-is-perfectly-happy-at-15)
-- [Queen of the house.. 👑](https://news.puppy-snuggles.com/22916233/queen-of-the-house)
-- [Can’t believe he’s been gone over 3 months](https://news.puppy-snuggles.com/22317941/cant-believe-hes-been-gone-over-3-months)
+- [Hello human, I would like treats](https://news.puppy-snuggles.com/23437861/hello-human-i-would-like-treats)
+- [RIP My Partner In Crime, My Beautiful Girl. Feb 14 2012 - Oct 06 2022](https://news.puppy-snuggles.com/23424320/rip-my-partner-in-crime-my-beautiful-girl-feb-14-2012-oct-06-2022)
+- [Dog Appreciation post](https://news.puppy-snuggles.com/23397797/dog-appreciation-post)
+- [Hope he brightens your day](https://news.puppy-snuggles.com/23251504/hope-he-brightens-your-day)
+- [Horrible day today, dog of 10 years passed away from cancer.](https://news.puppy-snuggles.com/23196453/horrible-day-today-dog-of-10-years-passed-away-from-cancer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
