@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Friday, December 02, 2022](https://www.reddit.com/r/financialindependence/comments/zaho84/daily_fi_discussion_thread_friday_december_02_2022/iyo8far/)
 - [/u/joehx on For anyone who’s been through the clearance process , does everyone go through a interview for the clearance or has anyone been approved without ?](https://www.reddit.com/r/NorthropGrumman/comments/z9uhm0/for_anyone_whos_been_through_the_clearance/iyimhuh/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, November 30, 2022](https://www.reddit.com/r/financialindependence/comments/z8nmz2/weekly_selfpromotion_thread_wednesday_november_30/iyemfqi/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of November 14, 2022](https://www.reddit.com/r/personalfinance/comments/yuvv4d/weekday_help_and_victory_thread_for_the_week_of/iwuosu6/)
 - [An anti-proverb is changing a proverb - or saying - into something else to be funny. &quot;Don&#39;t put off until tomorrow what you can do today&quot; could change to &quot;Never do today what can be done tomorrow.&quot; What&#39;s your favorite anti-proverb?](https://www.reddit.com/r/AskReddit/comments/yxz3tz/an_antiproverb_is_changing_a_proverb_or_saying/)
-- [/u/joehx on Official referral thread](https://www.reddit.com/r/Webull/comments/yvxdse/official_referral_thread/iwj3hqo/)
 <!-- REDDIT:END -->
