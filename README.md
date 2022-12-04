@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello human, I would like treats](https://news.puppy-snuggles.com/23437861/hello-human-i-would-like-treats)
-- [RIP My Partner In Crime, My Beautiful Girl. Feb 14 2012 - Oct 06 2022](https://news.puppy-snuggles.com/23424320/rip-my-partner-in-crime-my-beautiful-girl-feb-14-2012-oct-06-2022)
-- [Dog Appreciation post](https://news.puppy-snuggles.com/23397797/dog-appreciation-post)
-- [Hope he brightens your day](https://news.puppy-snuggles.com/23251504/hope-he-brightens-your-day)
-- [Horrible day today, dog of 10 years passed away from cancer.](https://news.puppy-snuggles.com/23196453/horrible-day-today-dog-of-10-years-passed-away-from-cancer)
+- [Zoe’s smile before going walkies.](https://news.puppy-snuggles.com/23470950/zoes-smile-before-going-walkies)
+- [Our little baby!](https://news.puppy-snuggles.com/22066877/our-little-baby)
+- [My baby turned 10 today! Pics of him as a puppy and how he is today! He is the goodest boy!!](https://news.puppy-snuggles.com/21757664/my-baby-turned-10-today-pics-of-him-as-a-puppy-and-how-he-is-today-he-is-the-goodest-boy)
+- [First time beach. She was afraid first, then curious and after she realized what a beach is she didn&amp;#039;t want to leave.](https://news.puppy-snuggles.com/21638387/first-time-beach-she-was-afraid-first-then-curious-and-after-she-realized-what-a-beach-is-she-didnt-want-to-leave)
+- [Found this young puppy at the park. Anyone have any idea of why breed she is?](https://news.puppy-snuggles.com/20081279/found-this-young-puppy-at-the-park-anyone-have-any-idea-of-why-breed-she-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
