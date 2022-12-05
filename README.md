@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Zoe’s smile before going walkies.](https://news.puppy-snuggles.com/23470950/zoes-smile-before-going-walkies)
-- [Our little baby!](https://news.puppy-snuggles.com/22066877/our-little-baby)
-- [My baby turned 10 today! Pics of him as a puppy and how he is today! He is the goodest boy!!](https://news.puppy-snuggles.com/21757664/my-baby-turned-10-today-pics-of-him-as-a-puppy-and-how-he-is-today-he-is-the-goodest-boy)
-- [First time beach. She was afraid first, then curious and after she realized what a beach is she didn&amp;#039;t want to leave.](https://news.puppy-snuggles.com/21638387/first-time-beach-she-was-afraid-first-then-curious-and-after-she-realized-what-a-beach-is-she-didnt-want-to-leave)
-- [Found this young puppy at the park. Anyone have any idea of why breed she is?](https://news.puppy-snuggles.com/20081279/found-this-young-puppy-at-the-park-anyone-have-any-idea-of-why-breed-she-is)
+- [What is it ?](https://news.puppy-snuggles.com/23498673/what-is-it)
+- [we call this creature Roxy](https://news.puppy-snuggles.com/22372657/we-call-this-creature-roxy)
+- [Dog can change your life too](https://news.puppy-snuggles.com/20211814/dog-can-change-your-life-too)
+- [A dog, raised with cats &lpar;enable sound&rpar;](https://news.puppy-snuggles.com/19969649/a-dog-raised-with-cats-enable-sound)
+- [look at those ears how they go backwards because of the wind 😍😍](https://news.puppy-snuggles.com/19861937/look-at-those-ears-how-they-go-backwards-because-of-the-wind)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
