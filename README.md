@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What is it ?](https://news.puppy-snuggles.com/23498673/what-is-it)
-- [we call this creature Roxy](https://news.puppy-snuggles.com/22372657/we-call-this-creature-roxy)
-- [Dog can change your life too](https://news.puppy-snuggles.com/20211814/dog-can-change-your-life-too)
-- [A dog, raised with cats &lpar;enable sound&rpar;](https://news.puppy-snuggles.com/19969649/a-dog-raised-with-cats-enable-sound)
-- [look at those ears how they go backwards because of the wind 😍😍](https://news.puppy-snuggles.com/19861937/look-at-those-ears-how-they-go-backwards-because-of-the-wind)
+- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
+- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
+- [Look at Indigo!](https://news.puppy-snuggles.com/23481297/look-at-indigo)
+- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
+- [The Puppy is a service trainnee dog, after his whole day trainning, he is so tried and wants to stay with mummy dog, dog mummy wants get permission to accompany the little puppy. :&rpar;](https://news.puppy-snuggles.com/14773122/the-puppy-is-a-service-trainnee-dog-after-his-whole-day-trainning-he-is-so-tried-and-wants-to-stay-with-mummy-dog-dog-mummy-wants-get-permission-to-accompany-the-little-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
