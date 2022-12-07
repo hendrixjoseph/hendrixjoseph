@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
-- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
-- [Look at Indigo!](https://news.puppy-snuggles.com/23481297/look-at-indigo)
-- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
-- [The Puppy is a service trainnee dog, after his whole day trainning, he is so tried and wants to stay with mummy dog, dog mummy wants get permission to accompany the little puppy. :&rpar;](https://news.puppy-snuggles.com/14773122/the-puppy-is-a-service-trainnee-dog-after-his-whole-day-trainning-he-is-so-tried-and-wants-to-stay-with-mummy-dog-dog-mummy-wants-get-permission-to-accompany-the-little-puppy)
+- [He looks like a soldier](https://news.puppy-snuggles.com/22663112/he-looks-like-a-soldier)
+- [Our first pup Oliver.](https://news.puppy-snuggles.com/22384413/our-first-pup-oliver)
+- [Doggo footos](https://news.puppy-snuggles.com/21543535/doggo-footos)
+- [His and Hers underbites](https://news.puppy-snuggles.com/21543532/his-and-hers-underbites)
+- [Max says happy Tuesday!](https://news.puppy-snuggles.com/21543531/max-says-happy-tuesday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
