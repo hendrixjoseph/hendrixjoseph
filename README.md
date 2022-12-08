@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He looks like a soldier](https://news.puppy-snuggles.com/22663112/he-looks-like-a-soldier)
-- [Our first pup Oliver.](https://news.puppy-snuggles.com/22384413/our-first-pup-oliver)
-- [Doggo footos](https://news.puppy-snuggles.com/21543535/doggo-footos)
-- [His and Hers underbites](https://news.puppy-snuggles.com/21543532/his-and-hers-underbites)
-- [Max says happy Tuesday!](https://news.puppy-snuggles.com/21543531/max-says-happy-tuesday)
+- [warning: dangerous](https://news.puppy-snuggles.com/23605476/warning-dangerous)
+- [Bought him a *very* expensive and warm tepee for winter.. buut..](https://news.puppy-snuggles.com/23605475/bought-him-a-very-expensive-and-warm-tepee-for-winter-buut)
+- [Buddy 🥺🥺 Please send positive vibes, thoughts &amp;amp;amp; prayers to my beloved Buddy. He has a cancerous growth &amp;amp;amp; we find out tomorrow if it has spread. Thanks 🥺🥺](https://news.puppy-snuggles.com/23566740/buddy-please-send-positive-vibes-thoughts-amp-prayers-to-my-beloved-buddy-he-has-a-cancerous-growth-amp-we-find-out-tomorrow-if-it-has-spread-thanks)
+- [Rhea](https://news.puppy-snuggles.com/23175023/rhea)
+- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
