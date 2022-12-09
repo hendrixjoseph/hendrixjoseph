@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [warning: dangerous](https://news.puppy-snuggles.com/23605476/warning-dangerous)
-- [Bought him a *very* expensive and warm tepee for winter.. buut..](https://news.puppy-snuggles.com/23605475/bought-him-a-very-expensive-and-warm-tepee-for-winter-buut)
-- [Buddy 🥺🥺 Please send positive vibes, thoughts &amp;amp;amp; prayers to my beloved Buddy. He has a cancerous growth &amp;amp;amp; we find out tomorrow if it has spread. Thanks 🥺🥺](https://news.puppy-snuggles.com/23566740/buddy-please-send-positive-vibes-thoughts-amp-prayers-to-my-beloved-buddy-he-has-a-cancerous-growth-amp-we-find-out-tomorrow-if-it-has-spread-thanks)
-- [Rhea](https://news.puppy-snuggles.com/23175023/rhea)
-- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
+- [my &amp;amp;quot;beautiful&amp;amp;quot; dog](https://news.puppy-snuggles.com/23644210/my-quotbeautifulquot-dog)
+- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
+- [Lucy posing for some Christmas shots](https://news.puppy-snuggles.com/23644209/lucy-posing-for-some-christmas-shots)
+- [RIP Abby. We sure miss you sweet girl. Thanks for all the great memories &amp;amp;amp; good times.](https://news.puppy-snuggles.com/23631320/rip-abby-we-sure-miss-you-sweet-girl-thanks-for-all-the-great-memories-amp-good-times)
+- [&amp;amp;quot;I&amp;#039;m sorry I poop on the deck when it snows&amp;amp;quot;](https://news.puppy-snuggles.com/23618736/quotim-sorry-i-poop-on-the-deck-when-it-snowsquot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
