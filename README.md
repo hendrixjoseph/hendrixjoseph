@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my &amp;amp;quot;beautiful&amp;amp;quot; dog](https://news.puppy-snuggles.com/23644210/my-quotbeautifulquot-dog)
-- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
-- [Lucy posing for some Christmas shots](https://news.puppy-snuggles.com/23644209/lucy-posing-for-some-christmas-shots)
-- [RIP Abby. We sure miss you sweet girl. Thanks for all the great memories &amp;amp;amp; good times.](https://news.puppy-snuggles.com/23631320/rip-abby-we-sure-miss-you-sweet-girl-thanks-for-all-the-great-memories-amp-good-times)
-- [&amp;amp;quot;I&amp;#039;m sorry I poop on the deck when it snows&amp;amp;quot;](https://news.puppy-snuggles.com/23618736/quotim-sorry-i-poop-on-the-deck-when-it-snowsquot)
+- [I get so overwhelmed with love anytime I look at her 🥹](https://news.puppy-snuggles.com/23684699/i-get-so-overwhelmed-with-love-anytime-i-look-at-her)
+- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
+- [Meet my new BFF!!!](https://news.puppy-snuggles.com/20222652/meet-my-new-bff)
+- [What if I&amp;#039;m not the good boy!](https://news.puppy-snuggles.com/19923923/what-if-im-not-the-good-boy)
+- [A group photo of the crew.](https://news.puppy-snuggles.com/19563291/a-group-photo-of-the-crew)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
