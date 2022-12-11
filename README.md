@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I get so overwhelmed with love anytime I look at her 🥹](https://news.puppy-snuggles.com/23684699/i-get-so-overwhelmed-with-love-anytime-i-look-at-her)
-- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
-- [Meet my new BFF!!!](https://news.puppy-snuggles.com/20222652/meet-my-new-bff)
-- [What if I&amp;#039;m not the good boy!](https://news.puppy-snuggles.com/19923923/what-if-im-not-the-good-boy)
-- [A group photo of the crew.](https://news.puppy-snuggles.com/19563291/a-group-photo-of-the-crew)
+- [My husband took this photo of me and my dog. It perfectly describes my partnership with her!](https://news.puppy-snuggles.com/19055133/my-husband-took-this-photo-of-me-and-my-dog-it-perfectly-describes-my-partnership-with-her)
+- [All my worker does is sleep and fart. Please advise. Should I report him to HR?](https://news.puppy-snuggles.com/19009914/all-my-worker-does-is-sleep-and-fart-please-advise-should-i-report-him-to-hr)
+- [No likey shoes](https://news.puppy-snuggles.com/18610656/no-likey-shoes)
+- [Hashbrown is SO excited to go see her Aunt and Uncle in Las Vegas for July 4th!](https://news.puppy-snuggles.com/18445549/hashbrown-is-so-excited-to-go-see-her-aunt-and-uncle-in-las-vegas-for-july-4th)
+- [Enjoying the autumn sunshine on my cake day](https://news.puppy-snuggles.com/16822113/enjoying-the-autumn-sunshine-on-my-cake-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
