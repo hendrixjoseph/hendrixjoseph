@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My husband took this photo of me and my dog. It perfectly describes my partnership with her!](https://news.puppy-snuggles.com/19055133/my-husband-took-this-photo-of-me-and-my-dog-it-perfectly-describes-my-partnership-with-her)
-- [All my worker does is sleep and fart. Please advise. Should I report him to HR?](https://news.puppy-snuggles.com/19009914/all-my-worker-does-is-sleep-and-fart-please-advise-should-i-report-him-to-hr)
-- [No likey shoes](https://news.puppy-snuggles.com/18610656/no-likey-shoes)
-- [Hashbrown is SO excited to go see her Aunt and Uncle in Las Vegas for July 4th!](https://news.puppy-snuggles.com/18445549/hashbrown-is-so-excited-to-go-see-her-aunt-and-uncle-in-las-vegas-for-july-4th)
-- [Enjoying the autumn sunshine on my cake day](https://news.puppy-snuggles.com/16822113/enjoying-the-autumn-sunshine-on-my-cake-day)
+- [Should I report my sister in law&amp;#039;s aggressive dog to animal control?](https://news.puppy-snuggles.com/23750098/should-i-report-my-sister-in-laws-aggressive-dog-to-animal-control)
+- [Sammy](https://news.puppy-snuggles.com/23581723/sammy)
+- [my painting of my happy dog. trying to convey her feelings.](https://news.puppy-snuggles.com/23489834/my-painting-of-my-happy-dog-trying-to-convey-her-feelings)
+- [Last painting I did of my baby trying to convey her feelings. what do you think?](https://news.puppy-snuggles.com/23489828/last-painting-i-did-of-my-baby-trying-to-convey-her-feelings-what-do-you-think)
+- [Corbin](https://news.puppy-snuggles.com/23412983/corbin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
