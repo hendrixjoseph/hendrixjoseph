@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Should I report my sister in law&amp;#039;s aggressive dog to animal control?](https://news.puppy-snuggles.com/23750098/should-i-report-my-sister-in-laws-aggressive-dog-to-animal-control)
-- [Sammy](https://news.puppy-snuggles.com/23581723/sammy)
-- [my painting of my happy dog. trying to convey her feelings.](https://news.puppy-snuggles.com/23489834/my-painting-of-my-happy-dog-trying-to-convey-her-feelings)
-- [Last painting I did of my baby trying to convey her feelings. what do you think?](https://news.puppy-snuggles.com/23489828/last-painting-i-did-of-my-baby-trying-to-convey-her-feelings-what-do-you-think)
-- [Corbin](https://news.puppy-snuggles.com/23412983/corbin)
+- [Home exercise and pets do not mix well!](https://news.puppy-snuggles.com/23782618/home-exercise-and-pets-do-not-mix-well)
+- [Little photo shoot with our new pup, Kaia](https://news.puppy-snuggles.com/22774025/little-photo-shoot-with-our-new-pup-kaia)
+- [Nothing but smiles when these two get together for a play-date!](https://news.puppy-snuggles.com/22098060/nothing-but-smiles-when-these-two-get-together-for-a-play-date)
+- [Same dog roughly 10 years apart](https://news.puppy-snuggles.com/17010740/same-dog-roughly-10-years-apart)
+- [First vet appointment. Kevin is 32 pounds of chill.](https://news.puppy-snuggles.com/16422272/first-vet-appointment-kevin-is-32-pounds-of-chill)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
