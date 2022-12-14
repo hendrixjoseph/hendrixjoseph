@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Home exercise and pets do not mix well!](https://news.puppy-snuggles.com/23782618/home-exercise-and-pets-do-not-mix-well)
-- [Little photo shoot with our new pup, Kaia](https://news.puppy-snuggles.com/22774025/little-photo-shoot-with-our-new-pup-kaia)
-- [Nothing but smiles when these two get together for a play-date!](https://news.puppy-snuggles.com/22098060/nothing-but-smiles-when-these-two-get-together-for-a-play-date)
-- [Same dog roughly 10 years apart](https://news.puppy-snuggles.com/17010740/same-dog-roughly-10-years-apart)
-- [First vet appointment. Kevin is 32 pounds of chill.](https://news.puppy-snuggles.com/16422272/first-vet-appointment-kevin-is-32-pounds-of-chill)
+- [Cute dog . So lovely .](https://news.puppy-snuggles.com/23823383/cute-dog-so-lovely)
+- [Chowchow Chews &lpar;ASMR&rpar;](https://news.puppy-snuggles.com/23823382/chowchow-chews-asmr)
+- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
+- [best part of my day](https://news.puppy-snuggles.com/23823381/best-part-of-my-day)
+- [Heaven gained the goodest boy](https://news.puppy-snuggles.com/23823379/heaven-gained-the-goodest-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
