@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cute dog . So lovely .](https://news.puppy-snuggles.com/23823383/cute-dog-so-lovely)
-- [Chowchow Chews &lpar;ASMR&rpar;](https://news.puppy-snuggles.com/23823382/chowchow-chews-asmr)
-- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
-- [best part of my day](https://news.puppy-snuggles.com/23823381/best-part-of-my-day)
-- [Heaven gained the goodest boy](https://news.puppy-snuggles.com/23823379/heaven-gained-the-goodest-boy)
+- [smile for the treats](https://news.puppy-snuggles.com/23864102/smile-for-the-treats)
+- [Someone&amp;#039;s Comfy.. Just moved, think Jay&amp;#039;s comfortable already. lol](https://news.puppy-snuggles.com/23864101/someones-comfy-just-moved-think-jays-comfortable-already-lol)
+- [Some of you may remember Samwise, the dog that followed me in the oilfield until I took him home. Here&amp;#039;s some updated photos.](https://news.puppy-snuggles.com/23864100/some-of-you-may-remember-samwise-the-dog-that-followed-me-in-the-oilfield-until-i-took-him-home-heres-some-updated-photos)
+- [Lost his hear flaps then found them again!](https://news.puppy-snuggles.com/23864099/lost-his-hear-flaps-then-found-them-again)
+- [Found dog during storm](https://news.puppy-snuggles.com/23864098/found-dog-during-storm)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
