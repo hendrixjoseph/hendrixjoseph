@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [smile for the treats](https://news.puppy-snuggles.com/23864102/smile-for-the-treats)
-- [Someone&amp;#039;s Comfy.. Just moved, think Jay&amp;#039;s comfortable already. lol](https://news.puppy-snuggles.com/23864101/someones-comfy-just-moved-think-jays-comfortable-already-lol)
-- [Some of you may remember Samwise, the dog that followed me in the oilfield until I took him home. Here&amp;#039;s some updated photos.](https://news.puppy-snuggles.com/23864100/some-of-you-may-remember-samwise-the-dog-that-followed-me-in-the-oilfield-until-i-took-him-home-heres-some-updated-photos)
-- [Lost his hear flaps then found them again!](https://news.puppy-snuggles.com/23864099/lost-his-hear-flaps-then-found-them-again)
-- [Found dog during storm](https://news.puppy-snuggles.com/23864098/found-dog-during-storm)
+- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
+- [Jax protesting getting out of bed with my son this morning](https://news.puppy-snuggles.com/23891914/jax-protesting-getting-out-of-bed-with-my-son-this-morning)
+- [My two good boys. Snow dogs!](https://news.puppy-snuggles.com/23891911/my-two-good-boys-snow-dogs)
+- [let me lick you just for a sec .. please](https://news.puppy-snuggles.com/23891912/let-me-lick-you-just-for-a-sec-please)
+- [wanna be my friend ?? I&amp;#039;ll be yours for life](https://news.puppy-snuggles.com/23891910/wanna-be-my-friend-ill-be-yours-for-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
