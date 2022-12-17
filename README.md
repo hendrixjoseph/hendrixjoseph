@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
-- [Jax protesting getting out of bed with my son this morning](https://news.puppy-snuggles.com/23891914/jax-protesting-getting-out-of-bed-with-my-son-this-morning)
-- [My two good boys. Snow dogs!](https://news.puppy-snuggles.com/23891911/my-two-good-boys-snow-dogs)
-- [let me lick you just for a sec .. please](https://news.puppy-snuggles.com/23891912/let-me-lick-you-just-for-a-sec-please)
-- [wanna be my friend ?? I&amp;#039;ll be yours for life](https://news.puppy-snuggles.com/23891910/wanna-be-my-friend-ill-be-yours-for-life)
+- [RIP Pippin, you were a good girl](https://news.puppy-snuggles.com/23931075/rip-pippin-you-were-a-good-girl)
+- [Monty isn&amp;#039;t thrilled about his mani but loves his crazy mamma anyway](https://news.puppy-snuggles.com/23931073/monty-isnt-thrilled-about-his-mani-but-loves-his-crazy-mamma-anyway)
+- [there are 2 kinds of dogs... and I want them both](https://news.puppy-snuggles.com/23931074/there-are-2-kinds-of-dogs-and-i-want-them-both)
+- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
+- [Another dog attack: Port Alfred woman mauled to death by dogs](https://news.puppy-snuggles.com/23263517/another-dog-attack-port-alfred-woman-mauled-to-death-by-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
