@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Pippin, you were a good girl](https://news.puppy-snuggles.com/23931075/rip-pippin-you-were-a-good-girl)
-- [Monty isn&amp;#039;t thrilled about his mani but loves his crazy mamma anyway](https://news.puppy-snuggles.com/23931073/monty-isnt-thrilled-about-his-mani-but-loves-his-crazy-mamma-anyway)
-- [there are 2 kinds of dogs... and I want them both](https://news.puppy-snuggles.com/23931074/there-are-2-kinds-of-dogs-and-i-want-them-both)
-- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
-- [Another dog attack: Port Alfred woman mauled to death by dogs](https://news.puppy-snuggles.com/23263517/another-dog-attack-port-alfred-woman-mauled-to-death-by-dogs)
+- [The best worst laundry service](https://news.puppy-snuggles.com/23967730/the-best-worst-laundry-service)
+- [Milo smiling :&rpar;](https://news.puppy-snuggles.com/23143194/milo-smiling)
+- [Hikingday 💪🏼](https://news.puppy-snuggles.com/23143193/hikingday)
+- [Rate my dog /10](https://news.puppy-snuggles.com/23122450/rate-my-dog-10)
+- [A happy dog to brighten up your day!](https://news.puppy-snuggles.com/23122448/a-happy-dog-to-brighten-up-your-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
