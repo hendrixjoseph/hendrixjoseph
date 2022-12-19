@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The best worst laundry service](https://news.puppy-snuggles.com/23967730/the-best-worst-laundry-service)
-- [Milo smiling :&rpar;](https://news.puppy-snuggles.com/23143194/milo-smiling)
-- [Hikingday 💪🏼](https://news.puppy-snuggles.com/23143193/hikingday)
-- [Rate my dog /10](https://news.puppy-snuggles.com/23122450/rate-my-dog-10)
-- [A happy dog to brighten up your day!](https://news.puppy-snuggles.com/23122448/a-happy-dog-to-brighten-up-your-day)
+- [My puppy grew eyeliner!](https://news.puppy-snuggles.com/23997229/my-puppy-grew-eyeliner)
+- [First Christmas tree ever!! &lpar; so sorry for bad quality… my camera’s messed up&rpar;](https://news.puppy-snuggles.com/23997228/first-christmas-tree-ever-so-sorry-for-bad-quality-my-cameras-messed-up)
+- [Having fun with snow](https://news.puppy-snuggles.com/23997227/having-fun-with-snow)
+- [Walked into my living room to see this](https://news.puppy-snuggles.com/23997225/walked-into-my-living-room-to-see-this)
+- [Happy 6 months Gotcha Day, Rex!](https://news.puppy-snuggles.com/23997224/happy-6-months-gotcha-day-rex)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
