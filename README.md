@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy grew eyeliner!](https://news.puppy-snuggles.com/23997229/my-puppy-grew-eyeliner)
-- [First Christmas tree ever!! &lpar; so sorry for bad quality… my camera’s messed up&rpar;](https://news.puppy-snuggles.com/23997228/first-christmas-tree-ever-so-sorry-for-bad-quality-my-cameras-messed-up)
-- [Having fun with snow](https://news.puppy-snuggles.com/23997227/having-fun-with-snow)
-- [Walked into my living room to see this](https://news.puppy-snuggles.com/23997225/walked-into-my-living-room-to-see-this)
-- [Happy 6 months Gotcha Day, Rex!](https://news.puppy-snuggles.com/23997224/happy-6-months-gotcha-day-rex)
+- [I’ve made the heartbreaking decision, that I’m gonna have to let this old girl go soon](https://news.puppy-snuggles.com/24019735/ive-made-the-heartbreaking-decision-that-im-gonna-have-to-let-this-old-girl-go-soon)
+- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
+- [Another dog attack: Port Alfred woman mauled to death by dogs](https://news.puppy-snuggles.com/23263517/another-dog-attack-port-alfred-woman-mauled-to-death-by-dogs)
+- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
+- [Just say &amp;amp;quot;cookie&amp;amp;quot; and i&amp;#039;ll be right there](https://news.puppy-snuggles.com/21487081/just-say-quotcookiequot-and-ill-be-right-there)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
