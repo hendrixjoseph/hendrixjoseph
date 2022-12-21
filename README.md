@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ve made the heartbreaking decision, that I’m gonna have to let this old girl go soon](https://news.puppy-snuggles.com/24019735/ive-made-the-heartbreaking-decision-that-im-gonna-have-to-let-this-old-girl-go-soon)
-- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
-- [Another dog attack: Port Alfred woman mauled to death by dogs](https://news.puppy-snuggles.com/23263517/another-dog-attack-port-alfred-woman-mauled-to-death-by-dogs)
-- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
-- [Just say &amp;amp;quot;cookie&amp;amp;quot; and i&amp;#039;ll be right there](https://news.puppy-snuggles.com/21487081/just-say-quotcookiequot-and-ill-be-right-there)
+- [mommy! I am stuck!](https://news.puppy-snuggles.com/24057837/mommy-i-am-stuck)
+- [What should I name him?](https://news.puppy-snuggles.com/24057839/what-should-i-name-him)
+- [Day Off](https://news.puppy-snuggles.com/24057836/day-off)
+- [My dog loves to sleep](https://news.puppy-snuggles.com/24057834/my-dog-loves-to-sleep)
+- [My sweet little angel](https://news.puppy-snuggles.com/24057835/my-sweet-little-angel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
