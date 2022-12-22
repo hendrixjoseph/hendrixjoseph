@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [mommy! I am stuck!](https://news.puppy-snuggles.com/24057837/mommy-i-am-stuck)
-- [What should I name him?](https://news.puppy-snuggles.com/24057839/what-should-i-name-him)
-- [Day Off](https://news.puppy-snuggles.com/24057836/day-off)
-- [My dog loves to sleep](https://news.puppy-snuggles.com/24057834/my-dog-loves-to-sleep)
-- [My sweet little angel](https://news.puppy-snuggles.com/24057835/my-sweet-little-angel)
+- [What breed is my puppy?](https://news.puppy-snuggles.com/24104281/what-breed-is-my-puppy)
+- [My Angel. Actually called Angel](https://news.puppy-snuggles.com/24092871/my-angel-actually-called-angel)
+- [What kind of DOG breed could I be?](https://news.puppy-snuggles.com/24092872/what-kind-of-dog-breed-could-i-be)
+- [My first dog, his name&amp;#039;s Jerry, rescued him from a construction site. Any advice?](https://news.puppy-snuggles.com/24092869/my-first-dog-his-names-jerry-rescued-him-from-a-construction-site-any-advice)
+- [Meet my dog, Rain! &lpar;the last five pics are puppy pics&rpar;](https://news.puppy-snuggles.com/24057833/meet-my-dog-rain-the-last-five-pics-are-puppy-pics)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
