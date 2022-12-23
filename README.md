@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed is my puppy?](https://news.puppy-snuggles.com/24104281/what-breed-is-my-puppy)
-- [My Angel. Actually called Angel](https://news.puppy-snuggles.com/24092871/my-angel-actually-called-angel)
-- [What kind of DOG breed could I be?](https://news.puppy-snuggles.com/24092872/what-kind-of-dog-breed-could-i-be)
-- [My first dog, his name&amp;#039;s Jerry, rescued him from a construction site. Any advice?](https://news.puppy-snuggles.com/24092869/my-first-dog-his-names-jerry-rescued-him-from-a-construction-site-any-advice)
-- [Meet my dog, Rain! &lpar;the last five pics are puppy pics&rpar;](https://news.puppy-snuggles.com/24057833/meet-my-dog-rain-the-last-five-pics-are-puppy-pics)
+- [Hanging out at the cabin](https://news.puppy-snuggles.com/24138757/hanging-out-at-the-cabin)
+- [just wanted to show y&amp;#039;all my beautiful boy billy](https://news.puppy-snuggles.com/24138756/just-wanted-to-show-yall-my-beautiful-boy-billy)
+- [My own version of the Loch Ness monster](https://news.puppy-snuggles.com/24138759/my-own-version-of-the-loch-ness-monster)
+- [Welcome Taja, a 2 year old beauty! Took her home a nearly two weeks ago now](https://news.puppy-snuggles.com/24138758/welcome-taja-a-2-year-old-beauty-took-her-home-a-nearly-two-weeks-ago-now)
+- [My beautiful Rebel and his constant smile](https://news.puppy-snuggles.com/24138752/my-beautiful-rebel-and-his-constant-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
