@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hanging out at the cabin](https://news.puppy-snuggles.com/24138757/hanging-out-at-the-cabin)
-- [just wanted to show y&amp;#039;all my beautiful boy billy](https://news.puppy-snuggles.com/24138756/just-wanted-to-show-yall-my-beautiful-boy-billy)
-- [My own version of the Loch Ness monster](https://news.puppy-snuggles.com/24138759/my-own-version-of-the-loch-ness-monster)
-- [Welcome Taja, a 2 year old beauty! Took her home a nearly two weeks ago now](https://news.puppy-snuggles.com/24138758/welcome-taja-a-2-year-old-beauty-took-her-home-a-nearly-two-weeks-ago-now)
-- [My beautiful Rebel and his constant smile](https://news.puppy-snuggles.com/24138752/my-beautiful-rebel-and-his-constant-smile)
+- [This is Dior and she is my best friend!](https://news.puppy-snuggles.com/23957369/this-is-dior-and-she-is-my-best-friend)
+- [When the phone thinks a nose is a face](https://news.puppy-snuggles.com/23554621/when-the-phone-thinks-a-nose-is-a-face)
+- [Our 5th winter together after being saved from the streets!](https://news.puppy-snuggles.com/23175021/our-5th-winter-together-after-being-saved-from-the-streets)
+- [The day after the bath 🛀🐕](https://news.puppy-snuggles.com/23013863/the-day-after-the-bath)
+- [Lost my weezy last night to cushings](https://news.puppy-snuggles.com/22753257/lost-my-weezy-last-night-to-cushings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
