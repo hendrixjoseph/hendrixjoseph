@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Dior and she is my best friend!](https://news.puppy-snuggles.com/23957369/this-is-dior-and-she-is-my-best-friend)
-- [When the phone thinks a nose is a face](https://news.puppy-snuggles.com/23554621/when-the-phone-thinks-a-nose-is-a-face)
-- [Our 5th winter together after being saved from the streets!](https://news.puppy-snuggles.com/23175021/our-5th-winter-together-after-being-saved-from-the-streets)
-- [The day after the bath 🛀🐕](https://news.puppy-snuggles.com/23013863/the-day-after-the-bath)
-- [Lost my weezy last night to cushings](https://news.puppy-snuggles.com/22753257/lost-my-weezy-last-night-to-cushings)
+- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
+- [my dogs custom designed glow in the dark extra tag](https://news.puppy-snuggles.com/24201175/my-dogs-custom-designed-glow-in-the-dark-extra-tag)
+- [She thinks she is funny…](https://news.puppy-snuggles.com/24201172/she-thinks-she-is-funny)
+- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
+- [Something blue, soft pastel art by me.](https://news.puppy-snuggles.com/23284749/something-blue-soft-pastel-art-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
