@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
-- [my dogs custom designed glow in the dark extra tag](https://news.puppy-snuggles.com/24201175/my-dogs-custom-designed-glow-in-the-dark-extra-tag)
-- [She thinks she is funny…](https://news.puppy-snuggles.com/24201172/she-thinks-she-is-funny)
-- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
-- [Something blue, soft pastel art by me.](https://news.puppy-snuggles.com/23284749/something-blue-soft-pastel-art-by-me)
+- [Dogs Who Think They&amp;#039;re Christmas Trees](https://news.puppy-snuggles.com/24234342/dogs-who-think-theyre-christmas-trees)
+- [lovely emily](https://news.puppy-snuggles.com/24234340/lovely-emily)
+- [My girlfriends heaven, sleeping in and dogs](https://news.puppy-snuggles.com/24234346/my-girlfriends-heaven-sleeping-in-and-dogs)
+- [Does this make me look silly?](https://news.puppy-snuggles.com/24234347/does-this-make-me-look-silly)
+- [If you&amp;#039;ve ever had a dog, you can probably relate.](https://news.puppy-snuggles.com/24234344/if-youve-ever-had-a-dog-you-can-probably-relate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
