@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs Who Think They&amp;#039;re Christmas Trees](https://news.puppy-snuggles.com/24234342/dogs-who-think-theyre-christmas-trees)
-- [lovely emily](https://news.puppy-snuggles.com/24234340/lovely-emily)
-- [My girlfriends heaven, sleeping in and dogs](https://news.puppy-snuggles.com/24234346/my-girlfriends-heaven-sleeping-in-and-dogs)
-- [Does this make me look silly?](https://news.puppy-snuggles.com/24234347/does-this-make-me-look-silly)
-- [If you&amp;#039;ve ever had a dog, you can probably relate.](https://news.puppy-snuggles.com/24234344/if-youve-ever-had-a-dog-you-can-probably-relate)
+- [Boxing Day walk with Poppy](https://news.puppy-snuggles.com/24261029/boxing-day-walk-with-poppy)
+- [boy🖤](https://news.puppy-snuggles.com/24261030/boy)
+- [Name suggestions?](https://news.puppy-snuggles.com/24243029/name-suggestions)
+- [Ha! you can either get in... or GO.](https://news.puppy-snuggles.com/23242007/ha-you-can-either-get-in-or-go)
+- [GS and Mastiff mix? Wife picked him up and he has massive paws.](https://news.puppy-snuggles.com/23013862/gs-and-mastiff-mix-wife-picked-him-up-and-he-has-massive-paws)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
