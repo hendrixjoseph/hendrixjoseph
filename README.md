@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Boxing Day walk with Poppy](https://news.puppy-snuggles.com/24261029/boxing-day-walk-with-poppy)
-- [boy🖤](https://news.puppy-snuggles.com/24261030/boy)
-- [Name suggestions?](https://news.puppy-snuggles.com/24243029/name-suggestions)
-- [Ha! you can either get in... or GO.](https://news.puppy-snuggles.com/23242007/ha-you-can-either-get-in-or-go)
-- [GS and Mastiff mix? Wife picked him up and he has massive paws.](https://news.puppy-snuggles.com/23013862/gs-and-mastiff-mix-wife-picked-him-up-and-he-has-massive-paws)
+- [he has gone from sitting on my lap to cuddling me](https://news.puppy-snuggles.com/24291263/he-has-gone-from-sitting-on-my-lap-to-cuddling-me)
+- [Gift from grandma - Isabelle&amp;#039;s new bed &amp;amp;lt;3](https://news.puppy-snuggles.com/24291264/gift-from-grandma-isabelles-new-bed-lt3)
+- [I have raised a monster... the monster:](https://news.puppy-snuggles.com/24291266/i-have-raised-a-monster-the-monster)
+- [Created artwork to help get this pup adopted.](https://news.puppy-snuggles.com/24291267/created-artwork-to-help-get-this-pup-adopted)
+- [still a pretty new team, but the best service dog I know❤️❤️](https://news.puppy-snuggles.com/24291261/still-a-pretty-new-team-but-the-best-service-dog-i-know)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
