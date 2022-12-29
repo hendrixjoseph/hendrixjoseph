@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [he has gone from sitting on my lap to cuddling me](https://news.puppy-snuggles.com/24291263/he-has-gone-from-sitting-on-my-lap-to-cuddling-me)
-- [Gift from grandma - Isabelle&amp;#039;s new bed &amp;amp;lt;3](https://news.puppy-snuggles.com/24291264/gift-from-grandma-isabelles-new-bed-lt3)
-- [I have raised a monster... the monster:](https://news.puppy-snuggles.com/24291266/i-have-raised-a-monster-the-monster)
-- [Created artwork to help get this pup adopted.](https://news.puppy-snuggles.com/24291267/created-artwork-to-help-get-this-pup-adopted)
-- [still a pretty new team, but the best service dog I know❤️❤️](https://news.puppy-snuggles.com/24291261/still-a-pretty-new-team-but-the-best-service-dog-i-know)
+- [I smell chez](https://news.puppy-snuggles.com/24335910/i-smell-chez)
+- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
+- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
+- [Got this little pooch as a Christmas gift, Can I get some name suggestions?](https://news.puppy-snuggles.com/24335906/got-this-little-pooch-as-a-christmas-gift-can-i-get-some-name-suggestions)
+- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
