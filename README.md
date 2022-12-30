@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I smell chez](https://news.puppy-snuggles.com/24335910/i-smell-chez)
-- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
-- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
-- [Got this little pooch as a Christmas gift, Can I get some name suggestions?](https://news.puppy-snuggles.com/24335906/got-this-little-pooch-as-a-christmas-gift-can-i-get-some-name-suggestions)
-- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
+- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
+- [Cutest thing in history](https://news.puppy-snuggles.com/24369032/cutest-thing-in-history)
+- [My little hero](https://news.puppy-snuggles.com/24369030/my-little-hero)
+- [The biggest bone she has ever seen](https://news.puppy-snuggles.com/24369027/the-biggest-bone-she-has-ever-seen)
+- [Striking a pose](https://news.puppy-snuggles.com/24369028/striking-a-pose)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
