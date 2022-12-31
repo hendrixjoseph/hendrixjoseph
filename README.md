@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
-- [Cutest thing in history](https://news.puppy-snuggles.com/24369032/cutest-thing-in-history)
-- [My little hero](https://news.puppy-snuggles.com/24369030/my-little-hero)
-- [The biggest bone she has ever seen](https://news.puppy-snuggles.com/24369027/the-biggest-bone-she-has-ever-seen)
-- [Striking a pose](https://news.puppy-snuggles.com/24369028/striking-a-pose)
+- [Cepheid is a very hard-working girl, as you can see](https://news.puppy-snuggles.com/24402200/cepheid-is-a-very-hard-working-girl-as-you-can-see)
+- [My little pooch!!](https://news.puppy-snuggles.com/24402201/my-little-pooch)
+- [Cappy &lpar;Chinese Crested Powderpuff&rpar;.](https://news.puppy-snuggles.com/24402199/cappy-chinese-crested-powderpuff)
+- [A couple of pups enjoying their day together](https://news.puppy-snuggles.com/24402196/a-couple-of-pups-enjoying-their-day-together)
+- [We are surrounded daily by these smiley pups at our animal refuge Sara Morocco. With 900 rescues, we are greeted daily by wagging tails and big grins. Life is good](https://news.puppy-snuggles.com/24402198/we-are-surrounded-daily-by-these-smiley-pups-at-our-animal-refuge-sara-morocco-with-900-rescues-we-are-greeted-daily-by-wagging-tails-and-big-grins-life-is-good)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
