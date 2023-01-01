@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cepheid is a very hard-working girl, as you can see](https://news.puppy-snuggles.com/24402200/cepheid-is-a-very-hard-working-girl-as-you-can-see)
-- [My little pooch!!](https://news.puppy-snuggles.com/24402201/my-little-pooch)
-- [Cappy &lpar;Chinese Crested Powderpuff&rpar;.](https://news.puppy-snuggles.com/24402199/cappy-chinese-crested-powderpuff)
-- [A couple of pups enjoying their day together](https://news.puppy-snuggles.com/24402196/a-couple-of-pups-enjoying-their-day-together)
-- [We are surrounded daily by these smiley pups at our animal refuge Sara Morocco. With 900 rescues, we are greeted daily by wagging tails and big grins. Life is good](https://news.puppy-snuggles.com/24402198/we-are-surrounded-daily-by-these-smiley-pups-at-our-animal-refuge-sara-morocco-with-900-rescues-we-are-greeted-daily-by-wagging-tails-and-big-grins-life-is-good)
+- [My pooch 🥰](https://news.puppy-snuggles.com/24432906/my-pooch)
+- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
+- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
+- [You know the drill!](https://news.puppy-snuggles.com/23823378/you-know-the-drill)
+- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
