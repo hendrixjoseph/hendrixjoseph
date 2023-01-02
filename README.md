@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pooch 🥰](https://news.puppy-snuggles.com/24432906/my-pooch)
-- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
-- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
-- [You know the drill!](https://news.puppy-snuggles.com/23823378/you-know-the-drill)
-- [This sweet boy crossed the rainbow bridge yesterday🌈](https://news.puppy-snuggles.com/23809579/this-sweet-boy-crossed-the-rainbow-bridge-yesterday)
+- [Before and After Adaption](https://news.puppy-snuggles.com/24459817/before-and-after-adaption)
+- [So happy cause i received a gift. 🐶😊](https://news.puppy-snuggles.com/24459818/so-happy-cause-i-received-a-gift)
+- [My best bud, Zero](https://news.puppy-snuggles.com/24459820/my-best-bud-zero)
+- [My gorgeous kids! They love/hate each other 🤣](https://news.puppy-snuggles.com/24459816/my-gorgeous-kids-they-lovehate-each-other)
+- [I stayed in touch with the owner of one of Gimli’s littermates. One year of play dates and nothing’s changed.](https://news.puppy-snuggles.com/24432901/i-stayed-in-touch-with-the-owner-of-one-of-gimlis-littermates-one-year-of-play-dates-and-nothings-changed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
