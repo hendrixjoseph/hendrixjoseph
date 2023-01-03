@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Before and After Adaption](https://news.puppy-snuggles.com/24459817/before-and-after-adaption)
-- [So happy cause i received a gift. 🐶😊](https://news.puppy-snuggles.com/24459818/so-happy-cause-i-received-a-gift)
-- [My best bud, Zero](https://news.puppy-snuggles.com/24459820/my-best-bud-zero)
-- [My gorgeous kids! They love/hate each other 🤣](https://news.puppy-snuggles.com/24459816/my-gorgeous-kids-they-lovehate-each-other)
-- [I stayed in touch with the owner of one of Gimli’s littermates. One year of play dates and nothing’s changed.](https://news.puppy-snuggles.com/24432901/i-stayed-in-touch-with-the-owner-of-one-of-gimlis-littermates-one-year-of-play-dates-and-nothings-changed)
+- [Just a happy Bruno](https://news.puppy-snuggles.com/24497783/just-a-happy-bruno)
+- [Scout had his first bath/shower today](https://news.puppy-snuggles.com/24497782/scout-had-his-first-bathshower-today)
+- [Just normal puppy things](https://news.puppy-snuggles.com/24497780/just-normal-puppy-things)
+- [What kind of dog is he? We found him in Georgia.](https://news.puppy-snuggles.com/24497781/what-kind-of-dog-is-he-we-found-him-in-georgia)
+- [Should I adopt him?](https://news.puppy-snuggles.com/24497777/should-i-adopt-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
