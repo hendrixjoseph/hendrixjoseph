@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Welcome to My Profile - Referral &amp; Other Links in this Post &lpar;Updated 01/03/2022&rpar;](https://www.reddit.com/r/u_joehx/comments/102gyk2/welcome_to_my_profile_referral_other_links_in/)
 - [/u/joehx on Trump tax returns dispute White House claim that he donated salary during Covid](https://www.reddit.com/r/inthenews/comments/100jd8y/trump_tax_returns_dispute_white_house_claim_that/j2k7ufg/)
 - [/u/joehx on What was ruined because too many people did it?](https://www.reddit.com/r/AskReddit/comments/zoynqc/what_was_ruined_because_too_many_people_did_it/j0rdd5s/)
 - [/u/joehx on ELI5 Why it is that humans only have two nipples, while other animals have more](https://www.reddit.com/r/explainlikeimfive/comments/zg4jzl/eli5_why_it_is_that_humans_only_have_two_nipples/izf4hnn/)
 - [/u/joehx on Mercedes will start charging $1,200/year to unlock additional power in your car.](https://www.reddit.com/r/Futurology/comments/zg316d/mercedes_will_start_charging_1200year_to_unlock/izf0jbk/)
-- [/u/joehx on eli5 Why did video games only work on channel 3?](https://www.reddit.com/r/explainlikeimfive/comments/zcsqc9/eli5_why_did_video_games_only_work_on_channel_3/iz04261/)
 <!-- REDDIT:END -->
