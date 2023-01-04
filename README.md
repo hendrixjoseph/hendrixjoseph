@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a happy Bruno](https://news.puppy-snuggles.com/24497783/just-a-happy-bruno)
-- [Scout had his first bath/shower today](https://news.puppy-snuggles.com/24497782/scout-had-his-first-bathshower-today)
-- [Just normal puppy things](https://news.puppy-snuggles.com/24497780/just-normal-puppy-things)
-- [What kind of dog is he? We found him in Georgia.](https://news.puppy-snuggles.com/24497781/what-kind-of-dog-is-he-we-found-him-in-georgia)
-- [Should I adopt him?](https://news.puppy-snuggles.com/24497777/should-i-adopt-him)
+- [He&amp;#039;s a handsome boy, we love him sooo much](https://news.puppy-snuggles.com/24531949/hes-a-handsome-boy-we-love-him-sooo-much)
+- [Photo of my lovable doggo with his hoodie lol](https://news.puppy-snuggles.com/24531946/photo-of-my-lovable-doggo-with-his-hoodie-lol)
+- [&amp;amp;quot;hellowww I see you have food right there... can I have some&amp;amp;quot;](https://news.puppy-snuggles.com/24531948/quothellowww-i-see-you-have-food-right-there-can-i-have-somequot)
+- [I adopted the sweetest puppy ever last month 🥰 This is Hazel!](https://news.puppy-snuggles.com/24531947/i-adopted-the-sweetest-puppy-ever-last-month-this-is-hazel)
+- [This is Pickles, 13 years old](https://news.puppy-snuggles.com/24531940/this-is-pickles-13-years-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
