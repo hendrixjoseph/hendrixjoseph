@@ -58,11 +58,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five Blog Posts on [Puppy Snuggles](https://www.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES:START -->
+- [Six Types of Dog Leashes](https://www.puppy-snuggles.com/blog/six-types-of-dog-leashes/)
 - [New Year, New Puppy Celebration](https://www.puppy-snuggles.com/blog/new-year-new-puppy-celebration/)
 - [What is the Proper Way to Take Care of a Dog Over the Holidays?](https://www.puppy-snuggles.com/blog/what-is-the-proper-way-to-take-care-of-a-dog-over-the-holidays/)
 - [Hammer Time In The City](https://www.puppy-snuggles.com/blog/hammer-time-in-the-city/)
 - [All Tuckered In](https://www.puppy-snuggles.com/blog/all-tuckered-in/)
-- [Sleeping after a Merry Christmas](https://www.puppy-snuggles.com/blog/sleeping-after-a-merry-christmas/)
 <!-- PUPPY-SNUGGLES:END -->
 
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
