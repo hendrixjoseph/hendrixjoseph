@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s a handsome boy, we love him sooo much](https://news.puppy-snuggles.com/24531949/hes-a-handsome-boy-we-love-him-sooo-much)
-- [Photo of my lovable doggo with his hoodie lol](https://news.puppy-snuggles.com/24531946/photo-of-my-lovable-doggo-with-his-hoodie-lol)
-- [&amp;amp;quot;hellowww I see you have food right there... can I have some&amp;amp;quot;](https://news.puppy-snuggles.com/24531948/quothellowww-i-see-you-have-food-right-there-can-i-have-somequot)
-- [I adopted the sweetest puppy ever last month 🥰 This is Hazel!](https://news.puppy-snuggles.com/24531947/i-adopted-the-sweetest-puppy-ever-last-month-this-is-hazel)
-- [This is Pickles, 13 years old](https://news.puppy-snuggles.com/24531940/this-is-pickles-13-years-old)
+- [My serious little old boy! Love him so much](https://news.puppy-snuggles.com/23631321/my-serious-little-old-boy-love-him-so-much)
+- [This six month old baby is just too cute!](https://news.puppy-snuggles.com/23386203/this-six-month-old-baby-is-just-too-cute)
+- [Is their bed too small? My mom insists that its big enough.](https://news.puppy-snuggles.com/23122453/is-their-bed-too-small-my-mom-insists-that-its-big-enough)
+- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
+- [I’m loving it](https://news.puppy-snuggles.com/22833371/im-loving-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
