@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My serious little old boy! Love him so much](https://news.puppy-snuggles.com/23631321/my-serious-little-old-boy-love-him-so-much)
-- [This six month old baby is just too cute!](https://news.puppy-snuggles.com/23386203/this-six-month-old-baby-is-just-too-cute)
-- [Is their bed too small? My mom insists that its big enough.](https://news.puppy-snuggles.com/23122453/is-their-bed-too-small-my-mom-insists-that-its-big-enough)
-- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
-- [I’m loving it](https://news.puppy-snuggles.com/22833371/im-loving-it)
+- [All smiles on a nice sunny day! :&rpar;](https://news.puppy-snuggles.com/24606236/all-smiles-on-a-nice-sunny-day)
+- [Best dog ever. Gertrude.](https://news.puppy-snuggles.com/24606237/best-dog-ever-gertrude)
+- [Adopted this little girl. They have no idea what she is…any ideas?](https://news.puppy-snuggles.com/24581733/adopted-this-little-girl-they-have-no-idea-what-she-isany-ideas)
+- [Soooo cuteeeeeeeee! 😍](https://news.puppy-snuggles.com/23671935/soooo-cuteeeeeeeee)
+- [My 12.5 year old pom is sick, hope he get well soon](https://news.puppy-snuggles.com/23518281/my-125-year-old-pom-is-sick-hope-he-get-well-soon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
