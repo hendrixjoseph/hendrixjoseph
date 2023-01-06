@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Books and Articles Mentioned in the Bibliography of The Cuckoo&#39;s Egg by Cliff Stoll](https://www.reddit.com/r/u_joehx/comments/1048wdc/books_and_articles_mentioned_in_the_bibliography/)
 - [/u/joehx on ELI5: What does “.io” mean that is attached to the end of some video games titles and website titles?](https://www.reddit.com/r/explainlikeimfive/comments/102w7gw/eli5_what_does_io_mean_that_is_attached_to_the/j2yb5fh/)
 - [Welcome to My Profile - Referral &amp; Other Links in this Post &lpar;Updated 01/03/2022&rpar;](https://www.reddit.com/r/u_joehx/comments/102gyk2/welcome_to_my_profile_referral_other_links_in/)
 - [/u/joehx on Trump tax returns dispute White House claim that he donated salary during Covid](https://www.reddit.com/r/inthenews/comments/100jd8y/trump_tax_returns_dispute_white_house_claim_that/j2k7ufg/)
 - [/u/joehx on What was ruined because too many people did it?](https://www.reddit.com/r/AskReddit/comments/zoynqc/what_was_ruined_because_too_many_people_did_it/j0rdd5s/)
-- [/u/joehx on ELI5 Why it is that humans only have two nipples, while other animals have more](https://www.reddit.com/r/explainlikeimfive/comments/zg4jzl/eli5_why_it_is_that_humans_only_have_two_nipples/izf4hnn/)
 <!-- REDDIT:END -->
