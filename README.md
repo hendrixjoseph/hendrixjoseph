@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All smiles on a nice sunny day! :&rpar;](https://news.puppy-snuggles.com/24606236/all-smiles-on-a-nice-sunny-day)
-- [Best dog ever. Gertrude.](https://news.puppy-snuggles.com/24606237/best-dog-ever-gertrude)
-- [Adopted this little girl. They have no idea what she is…any ideas?](https://news.puppy-snuggles.com/24581733/adopted-this-little-girl-they-have-no-idea-what-she-isany-ideas)
-- [Soooo cuteeeeeeeee! 😍](https://news.puppy-snuggles.com/23671935/soooo-cuteeeeeeeee)
-- [My 12.5 year old pom is sick, hope he get well soon](https://news.puppy-snuggles.com/23518281/my-125-year-old-pom-is-sick-hope-he-get-well-soon)
+- [let me in guys](https://news.puppy-snuggles.com/24642660/let-me-in-guys)
+- [Hi! Sharing some Dog illustrations I just made :&amp;amp;gt; I hope you&amp;#039;ll like it as much as I enjoyed making it &amp;amp;lt;3](https://news.puppy-snuggles.com/24642661/hi-sharing-some-dog-illustrations-i-just-made-gt-i-hope-youll-like-it-as-much-as-i-enjoyed-making-it-lt3)
+- [Met this poor abandoned girl at a work site. Couldn’t take her in my work truck but came back 3 hours later and she was still there. She has a new home now. Also I don’t like humans who do this to animals.](https://news.puppy-snuggles.com/24592696/met-this-poor-abandoned-girl-at-a-work-site-couldnt-take-her-in-my-work-truck-but-came-back-3-hours-later-and-she-was-still-there-she-has-a-new-home-now-also-i-dont-like-humans-who-do-this-to-animals)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
