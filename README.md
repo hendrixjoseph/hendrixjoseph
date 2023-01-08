@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [let me in guys](https://news.puppy-snuggles.com/24642660/let-me-in-guys)
-- [Hi! Sharing some Dog illustrations I just made :&amp;amp;gt; I hope you&amp;#039;ll like it as much as I enjoyed making it &amp;amp;lt;3](https://news.puppy-snuggles.com/24642661/hi-sharing-some-dog-illustrations-i-just-made-gt-i-hope-youll-like-it-as-much-as-i-enjoyed-making-it-lt3)
-- [Met this poor abandoned girl at a work site. Couldn’t take her in my work truck but came back 3 hours later and she was still there. She has a new home now. Also I don’t like humans who do this to animals.](https://news.puppy-snuggles.com/24592696/met-this-poor-abandoned-girl-at-a-work-site-couldnt-take-her-in-my-work-truck-but-came-back-3-hours-later-and-she-was-still-there-she-has-a-new-home-now-also-i-dont-like-humans-who-do-this-to-animals)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
+- [My far sighted dog wondering where his ball went](https://news.puppy-snuggles.com/24677653/my-far-sighted-dog-wondering-where-his-ball-went)
+- [Neglected dog gets a haircut](https://news.puppy-snuggles.com/24642656/neglected-dog-gets-a-haircut)
+- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
+- [fell asleep on his puzzle](https://news.puppy-snuggles.com/22774022/fell-asleep-on-his-puzzle)
+- [Our brand new family member, Loki. 10wks old](https://news.puppy-snuggles.com/22362325/our-brand-new-family-member-loki-10wks-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
