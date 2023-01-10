@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [welcome to the party, Marty](https://news.puppy-snuggles.com/24716472/welcome-to-the-party-marty)
-- [How boop-able is my nose?](https://news.puppy-snuggles.com/24716470/how-boop-able-is-my-nose)
-- [I played off-leash for the first time at the park with another doggo and made my mom&amp;#039;s heart explode!](https://news.puppy-snuggles.com/24716473/i-played-off-leash-for-the-first-time-at-the-park-with-another-doggo-and-made-my-moms-heart-explode)
-- [We have to put our beautiful Sally down within the next week or so. My first dog. Planning a celebration of life and looking for tips to cherish our last moments with her. Currently filming a tribute video of her last week&lpar;s&rpar; and we want it to be as special as she is.](https://news.puppy-snuggles.com/24716471/we-have-to-put-our-beautiful-sally-down-within-the-next-week-or-so-my-first-dog-planning-a-celebration-of-life-and-looking-for-tips-to-cherish-our-last-moments-with-her-currently-filming-a-tribute-video-of-her-last-weeks-and-we-want-it-to-be-as-special-as-she-is)
-- [Saw this dog on Christmas day outside of our house. Everything is not looking good but we’ll make sure that she received the best Christmas gift ever.. our love and care. Will post photo of her again once she fully recovered.](https://news.puppy-snuggles.com/24707133/saw-this-dog-on-christmas-day-outside-of-our-house-everything-is-not-looking-good-but-well-make-sure-that-she-received-the-best-christmas-gift-ever-our-love-and-care-will-post-photo-of-her-again-once-she-fully-recovered)
+- [Want a kiss? woof 🐶](https://news.puppy-snuggles.com/24749821/want-a-kiss-woof)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
+- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
+- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
