@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Want a kiss? woof 🐶](https://news.puppy-snuggles.com/24749821/want-a-kiss-woof)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
-- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
-- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
+- [Porch time after being in the creek](https://news.puppy-snuggles.com/24788018/porch-time-after-being-in-the-creek)
+- [Chihuahua](https://news.puppy-snuggles.com/24788017/chihuahua)
+- [Ripley is enjoying her first Xmas with us. I think 😬😂](https://news.puppy-snuggles.com/24243028/ripley-is-enjoying-her-first-xmas-with-us-i-think)
+- [Good bye my brother. You were truly the bestest boy until the end :&amp;#039;&lpar;](https://news.puppy-snuggles.com/24243031/good-bye-my-brother-you-were-truly-the-bestest-boy-until-the-end)
+- [Hope you&amp;#039;re all having a wonderful holiday season!](https://news.puppy-snuggles.com/24243036/hope-youre-all-having-a-wonderful-holiday-season)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
