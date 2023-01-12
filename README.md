@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Porch time after being in the creek](https://news.puppy-snuggles.com/24788018/porch-time-after-being-in-the-creek)
-- [Chihuahua](https://news.puppy-snuggles.com/24788017/chihuahua)
-- [Ripley is enjoying her first Xmas with us. I think 😬😂](https://news.puppy-snuggles.com/24243028/ripley-is-enjoying-her-first-xmas-with-us-i-think)
-- [Good bye my brother. You were truly the bestest boy until the end :&amp;#039;&lpar;](https://news.puppy-snuggles.com/24243031/good-bye-my-brother-you-were-truly-the-bestest-boy-until-the-end)
-- [Hope you&amp;#039;re all having a wonderful holiday season!](https://news.puppy-snuggles.com/24243036/hope-youre-all-having-a-wonderful-holiday-season)
+- [Enzo is super happy about all the snow 💙❄️](https://news.puppy-snuggles.com/24832386/enzo-is-super-happy-about-all-the-snow)
+- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
+- [puppy smiles at the waterfall &lpar;komodo&rpar;](https://news.puppy-snuggles.com/17364666/puppy-smiles-at-the-waterfall-komodo)
+- [Her eyes seem to have a soul.](https://news.puppy-snuggles.com/14419823/her-eyes-seem-to-have-a-soul)
+- [We all miss and love you baby girl…4 years old was too young for you to leave me ❤️](https://news.puppy-snuggles.com/14372681/we-all-miss-and-love-you-baby-girl4-years-old-was-too-young-for-you-to-leave-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
