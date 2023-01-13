@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Enzo is super happy about all the snow 💙❄️](https://news.puppy-snuggles.com/24832386/enzo-is-super-happy-about-all-the-snow)
-- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
-- [puppy smiles at the waterfall &lpar;komodo&rpar;](https://news.puppy-snuggles.com/17364666/puppy-smiles-at-the-waterfall-komodo)
-- [Her eyes seem to have a soul.](https://news.puppy-snuggles.com/14419823/her-eyes-seem-to-have-a-soul)
-- [We all miss and love you baby girl…4 years old was too young for you to leave me ❤️](https://news.puppy-snuggles.com/14372681/we-all-miss-and-love-you-baby-girl4-years-old-was-too-young-for-you-to-leave-me)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [Derpy baby.](https://news.puppy-snuggles.com/24727010/derpy-baby)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
+- [Whats up with Billy&amp;#039;s ears?](https://news.puppy-snuggles.com/24357837/whats-up-with-billys-ears)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
