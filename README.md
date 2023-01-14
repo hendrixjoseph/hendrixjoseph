@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [Derpy baby.](https://news.puppy-snuggles.com/24727010/derpy-baby)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
-- [Whats up with Billy&amp;#039;s ears?](https://news.puppy-snuggles.com/24357837/whats-up-with-billys-ears)
+- [My baby girl is the sweetest](https://news.puppy-snuggles.com/24291260/my-baby-girl-is-the-sweetest)
+- [We recently took this beautiful stray into our home. Any guesses of the breed/mix?](https://news.puppy-snuggles.com/24138751/we-recently-took-this-beautiful-stray-into-our-home-any-guesses-of-the-breedmix)
+- [My poodle helping me with Christmas decorations](https://news.puppy-snuggles.com/24057838/my-poodle-helping-me-with-christmas-decorations)
+- [ayy](https://news.puppy-snuggles.com/23710054/ayy)
+- [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
