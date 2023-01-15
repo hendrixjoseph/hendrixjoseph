@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby girl is the sweetest](https://news.puppy-snuggles.com/24291260/my-baby-girl-is-the-sweetest)
-- [We recently took this beautiful stray into our home. Any guesses of the breed/mix?](https://news.puppy-snuggles.com/24138751/we-recently-took-this-beautiful-stray-into-our-home-any-guesses-of-the-breedmix)
-- [My poodle helping me with Christmas decorations](https://news.puppy-snuggles.com/24057838/my-poodle-helping-me-with-christmas-decorations)
-- [ayy](https://news.puppy-snuggles.com/23710054/ayy)
+- [Porch time after being in the creek](https://news.puppy-snuggles.com/24788018/porch-time-after-being-in-the-creek)
+- [dog have emotion](https://news.puppy-snuggles.com/23498672/dog-have-emotion)
+- [found him in the woods, now is a lucky, loved ,bit lazy dog❤️](https://news.puppy-snuggles.com/23205508/found-him-in-the-woods-now-is-a-lucky-loved-bit-lazy-dog)
 - [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
+- [She always smiles when she naps](https://news.puppy-snuggles.com/22735924/she-always-smiles-when-she-naps)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
