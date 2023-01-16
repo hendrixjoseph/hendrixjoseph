@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Porch time after being in the creek](https://news.puppy-snuggles.com/24788018/porch-time-after-being-in-the-creek)
-- [dog have emotion](https://news.puppy-snuggles.com/23498672/dog-have-emotion)
-- [found him in the woods, now is a lucky, loved ,bit lazy dog❤️](https://news.puppy-snuggles.com/23205508/found-him-in-the-woods-now-is-a-lucky-loved-bit-lazy-dog)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
+- [We recently took this beautiful stray into our home. Any guesses of the breed/mix?](https://news.puppy-snuggles.com/24138751/we-recently-took-this-beautiful-stray-into-our-home-any-guesses-of-the-breedmix)
 - [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
-- [She always smiles when she naps](https://news.puppy-snuggles.com/22735924/she-always-smiles-when-she-naps)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
