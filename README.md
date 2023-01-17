@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
-- [We recently took this beautiful stray into our home. Any guesses of the breed/mix?](https://news.puppy-snuggles.com/24138751/we-recently-took-this-beautiful-stray-into-our-home-any-guesses-of-the-breedmix)
-- [We lost our beloved Sophie this weekend. We will love her and miss her forever. DM sucks.](https://news.puppy-snuggles.com/23037448/we-lost-our-beloved-sophie-this-weekend-we-will-love-her-and-miss-her-forever-dm-sucks)
+- [new adoption upside down smiles!](https://news.puppy-snuggles.com/24046762/new-adoption-upside-down-smiles)
+- [The Best Years of My Life was with this Dog! I miss you buddy!](https://news.puppy-snuggles.com/21607040/the-best-years-of-my-life-was-with-this-dog-i-miss-you-buddy)
+- [Today is his first birthday, wish him a happy day ❤️](https://news.puppy-snuggles.com/21574970/today-is-his-first-birthday-wish-him-a-happy-day)
+- [What are weird specific things your dog is scared of?](https://news.puppy-snuggles.com/21574971/what-are-weird-specific-things-your-dog-is-scared-of)
+- [This is Lucy the Goldendoodle [OC]](https://news.puppy-snuggles.com/16635632/this-is-lucy-the-goldendoodle-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
