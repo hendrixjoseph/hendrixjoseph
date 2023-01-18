@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [new adoption upside down smiles!](https://news.puppy-snuggles.com/24046762/new-adoption-upside-down-smiles)
-- [The Best Years of My Life was with this Dog! I miss you buddy!](https://news.puppy-snuggles.com/21607040/the-best-years-of-my-life-was-with-this-dog-i-miss-you-buddy)
-- [Today is his first birthday, wish him a happy day ❤️](https://news.puppy-snuggles.com/21574970/today-is-his-first-birthday-wish-him-a-happy-day)
-- [What are weird specific things your dog is scared of?](https://news.puppy-snuggles.com/21574971/what-are-weird-specific-things-your-dog-is-scared-of)
-- [This is Lucy the Goldendoodle [OC]](https://news.puppy-snuggles.com/16635632/this-is-lucy-the-goldendoodle-oc)
+- [Family of dog walker, 28, mauled to death by eight dogs share their heartache after ‘sudden loss’](https://news.puppy-snuggles.com/25099868/family-of-dog-walker-28-mauled-to-death-by-eight-dogs-share-their-heartache-after-sudden-loss)
+- [Eight dogs remain in custody after dog walker was mauled to death](https://news.puppy-snuggles.com/25099869/eight-dogs-remain-in-custody-after-dog-walker-was-mauled-to-death)
+- [This is Odin we are so excited to be apart of this sub &lpar;:](https://news.puppy-snuggles.com/24581739/this-is-odin-we-are-so-excited-to-be-apart-of-this-sub)
+- [My Guardian Angel](https://news.puppy-snuggles.com/23284750/my-guardian-angel)
+- [This is my dog. You are welcome.](https://news.puppy-snuggles.com/23223407/this-is-my-dog-you-are-welcome)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
