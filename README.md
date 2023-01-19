@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Family of dog walker, 28, mauled to death by eight dogs share their heartache after ‘sudden loss’](https://news.puppy-snuggles.com/25099868/family-of-dog-walker-28-mauled-to-death-by-eight-dogs-share-their-heartache-after-sudden-loss)
-- [Eight dogs remain in custody after dog walker was mauled to death](https://news.puppy-snuggles.com/25099869/eight-dogs-remain-in-custody-after-dog-walker-was-mauled-to-death)
-- [This is Odin we are so excited to be apart of this sub &lpar;:](https://news.puppy-snuggles.com/24581739/this-is-odin-we-are-so-excited-to-be-apart-of-this-sub)
-- [My Guardian Angel](https://news.puppy-snuggles.com/23284750/my-guardian-angel)
-- [This is my dog. You are welcome.](https://news.puppy-snuggles.com/23223407/this-is-my-dog-you-are-welcome)
+- [We have a 110lb bed bug. Bought a king size so we can all have room. Still gets &amp;amp;quot;snuggled&amp;amp;quot; off the bed](https://news.puppy-snuggles.com/23251503/we-have-a-110lb-bed-bug-bought-a-king-size-so-we-can-all-have-room-still-gets-quotsnuggledquot-off-the-bed)
+- [just a cute puppy](https://news.puppy-snuggles.com/22960373/just-a-cute-puppy)
+- [Yoga thinking about food](https://news.puppy-snuggles.com/22807164/yoga-thinking-about-food)
+- [Goofy Tubby](https://news.puppy-snuggles.com/22785020/goofy-tubby)
+- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
