@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We have a 110lb bed bug. Bought a king size so we can all have room. Still gets &amp;amp;quot;snuggled&amp;amp;quot; off the bed](https://news.puppy-snuggles.com/23251503/we-have-a-110lb-bed-bug-bought-a-king-size-so-we-can-all-have-room-still-gets-quotsnuggledquot-off-the-bed)
-- [just a cute puppy](https://news.puppy-snuggles.com/22960373/just-a-cute-puppy)
-- [Yoga thinking about food](https://news.puppy-snuggles.com/22807164/yoga-thinking-about-food)
-- [Goofy Tubby](https://news.puppy-snuggles.com/22785020/goofy-tubby)
-- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
+- [gotta show off my puppy &lpar;tge weirdest dog to exist&rpar;](https://news.puppy-snuggles.com/24172142/gotta-show-off-my-puppy-tge-weirdest-dog-to-exist)
+- [dog does not bite](https://news.puppy-snuggles.com/24007313/dog-does-not-bite)
+- [This is Pepper, she’s the happiest dog on Earth 🌎](https://news.puppy-snuggles.com/21461830/this-is-pepper-shes-the-happiest-dog-on-earth)
+- [Look alike](https://news.puppy-snuggles.com/20319547/look-alike)
+- [Happy Naps](https://news.puppy-snuggles.com/20312133/happy-naps)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
