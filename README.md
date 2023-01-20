@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Renaming Rules based on Contains or Amounts](https://www.reddit.com/r/mintuit/comments/10fnhrh/renaming_rules_based_on_contains_or_amounts/j51c67a/)
 - [/u/joehx on I kid you not, this happened during today&#39;s standup.](https://www.reddit.com/r/ProgrammerHumor/comments/10efm42/i_kid_you_not_this_happened_during_todays_standup/j4sulrx/)
 - [/u/joehx on I just found out my city&#39;s library card comes with unexpected benefits - free admission to the local zoo, museums, etc. Check and see if those are available to you.](https://www.reddit.com/r/Frugal/comments/10c834e/i_just_found_out_my_citys_library_card_comes_with/j4gfsar/)
 - [Books and Articles Mentioned in the Bibliography of The Cuckoo&#39;s Egg by Cliff Stoll](https://www.reddit.com/r/u_joehx/comments/1048wdc/books_and_articles_mentioned_in_the_bibliography/)
 - [/u/joehx on ELI5: What does “.io” mean that is attached to the end of some video games titles and website titles?](https://www.reddit.com/r/explainlikeimfive/comments/102w7gw/eli5_what_does_io_mean_that_is_attached_to_the/j2yb5fh/)
-- [Welcome to My Profile - Referral &amp; Other Links in this Post &lpar;Updated 01/03/2022&rpar;](https://www.reddit.com/r/u_joehx/comments/102gyk2/welcome_to_my_profile_referral_other_links_in/)
 <!-- REDDIT:END -->
