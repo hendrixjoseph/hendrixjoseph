@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [gotta show off my puppy &lpar;tge weirdest dog to exist&rpar;](https://news.puppy-snuggles.com/24172142/gotta-show-off-my-puppy-tge-weirdest-dog-to-exist)
-- [dog does not bite](https://news.puppy-snuggles.com/24007313/dog-does-not-bite)
-- [This is Pepper, she’s the happiest dog on Earth 🌎](https://news.puppy-snuggles.com/21461830/this-is-pepper-shes-the-happiest-dog-on-earth)
-- [Look alike](https://news.puppy-snuggles.com/20319547/look-alike)
-- [Happy Naps](https://news.puppy-snuggles.com/20312133/happy-naps)
+- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [Saw this dog on Christmas day outside of our house. Everything is not looking good but we’ll make sure that she received the best Christmas gift ever.. our love and care. Will post photo of her again once she fully recovered.](https://news.puppy-snuggles.com/24707133/saw-this-dog-on-christmas-day-outside-of-our-house-everything-is-not-looking-good-but-well-make-sure-that-she-received-the-best-christmas-gift-ever-our-love-and-care-will-post-photo-of-her-again-once-she-fully-recovered)
+- [Ready for his date](https://news.puppy-snuggles.com/23498666/ready-for-his-date)
+- [Rooney kickin&amp;#039; it](https://news.puppy-snuggles.com/23489833/rooney-kickin-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
