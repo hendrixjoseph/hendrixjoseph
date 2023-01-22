@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [Saw this dog on Christmas day outside of our house. Everything is not looking good but we’ll make sure that she received the best Christmas gift ever.. our love and care. Will post photo of her again once she fully recovered.](https://news.puppy-snuggles.com/24707133/saw-this-dog-on-christmas-day-outside-of-our-house-everything-is-not-looking-good-but-well-make-sure-that-she-received-the-best-christmas-gift-ever-our-love-and-care-will-post-photo-of-her-again-once-she-fully-recovered)
-- [Ready for his date](https://news.puppy-snuggles.com/23498666/ready-for-his-date)
-- [Rooney kickin&amp;#039; it](https://news.puppy-snuggles.com/23489833/rooney-kickin-it)
+- [Puff is in a very good mood today &lpar;OC&rpar;](https://news.puppy-snuggles.com/25289630/puff-is-in-a-very-good-mood-today-oc)
+- [Frankie the mini dachshund loves couch cuddles](https://news.puppy-snuggles.com/25289631/frankie-the-mini-dachshund-loves-couch-cuddles)
+- [Dog can change your life too](https://news.puppy-snuggles.com/20211814/dog-can-change-your-life-too)
+- [why does it look like my dog was edited in.](https://news.puppy-snuggles.com/17826536/why-does-it-look-like-my-dog-was-edited-in)
+- [Meet my 8mo old Golden Retreiver, Theo!](https://news.puppy-snuggles.com/16377104/meet-my-8mo-old-golden-retreiver-theo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
