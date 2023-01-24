@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ethel, Fred, Bonnie &lpar;white puppy&rpar; and Clyde 🐶❤️](https://news.puppy-snuggles.com/25376148/ethel-fred-bonnie-white-puppy-and-clyde)
-- [Literally right now Pookey shook and this happened ;-&rpar; ps yes half his jaw muscle is gone he&amp;#039;s 16 ♥️](https://news.puppy-snuggles.com/25340231/literally-right-now-pookey-shook-and-this-happened-ps-yes-half-his-jaw-muscle-is-gone-hes-16)
-- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
-- [6 Weeks Old... and Questions!](https://news.puppy-snuggles.com/24677651/6-weeks-old-and-questions)
-- [Hey! We got this dog we&amp;#039;re looking to rehome and wasn&amp;#039;t sure what breed he exactly was? We named him &amp;amp;quot;Beedle&amp;amp;quot; :D](https://news.puppy-snuggles.com/24218906/hey-we-got-this-dog-were-looking-to-rehome-and-wasnt-sure-what-breed-he-exactly-was-we-named-him-quotbeedlequot-d)
+- [Such a cutie patootie](https://news.puppy-snuggles.com/25454044/such-a-cutie-patootie)
+- [Since her photo brought a smile to soo many faces,I decided post another one. Enjoy.](https://news.puppy-snuggles.com/25376150/since-her-photo-brought-a-smile-to-soo-many-facesi-decided-post-another-one-enjoy)
+- [&amp;amp;quot;ENOUGH&amp;amp;quot;](https://news.puppy-snuggles.com/20319545/quotenoughquot)
+- [Drawing I did of my hound in his favourite jumper 🥰 @goldiedesignstudio](https://news.puppy-snuggles.com/17377087/drawing-i-did-of-my-hound-in-his-favourite-jumper-at-goldiedesignstudio)
+- [about-to-get-his-puppuccino smile 🍦](https://news.puppy-snuggles.com/17122380/about-to-get-his-puppuccino-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
