@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Such a cutie patootie](https://news.puppy-snuggles.com/25454044/such-a-cutie-patootie)
-- [Since her photo brought a smile to soo many faces,I decided post another one. Enjoy.](https://news.puppy-snuggles.com/25376150/since-her-photo-brought-a-smile-to-soo-many-facesi-decided-post-another-one-enjoy)
-- [&amp;amp;quot;ENOUGH&amp;amp;quot;](https://news.puppy-snuggles.com/20319545/quotenoughquot)
-- [Drawing I did of my hound in his favourite jumper 🥰 @goldiedesignstudio](https://news.puppy-snuggles.com/17377087/drawing-i-did-of-my-hound-in-his-favourite-jumper-at-goldiedesignstudio)
-- [about-to-get-his-puppuccino smile 🍦](https://news.puppy-snuggles.com/17122380/about-to-get-his-puppuccino-smile)
+- [Got back into taking photos of dogs recently after a 3 year hiatus, and loving it. It really brings me a lot of joy so glad to have it back in my life.](https://news.puppy-snuggles.com/18583562/got-back-into-taking-photos-of-dogs-recently-after-a-3-year-hiatus-and-loving-it-it-really-brings-me-a-lot-of-joy-so-glad-to-have-it-back-in-my-life)
+- [What do you think of my new pet, an English bulldog, &amp;amp;quot;HELP ME GIVE HIM A NAME&amp;amp;quot;?](https://news.puppy-snuggles.com/17947743/what-do-you-think-of-my-new-pet-an-english-bulldog-quothelp-me-give-him-a-namequot)
+- [Профессиональный спортсмен](https://news.puppy-snuggles.com/14558205/professionalnyi-sportsmen)
+- [Just looking](https://news.puppy-snuggles.com/14174213/just-looking)
+- [The dog I adopted when i found her when she was not more than 2 weeks old chewing on my crocs. It was love at first sight and i immediately took her in and begged my dad to keep her and she&amp;#039;s doing so well on our farm, she makes me so happy I&amp;#039;m in the best place in my life always wanted a dog.I❤️HER](https://news.puppy-snuggles.com/13890552/the-dog-i-adopted-when-i-found-her-when-she-was-not-more-than-2-weeks-old-chewing-on-my-crocs-it-was-love-at-first-sight-and-i-immediately-took-her-in-and-begged-my-dad-to-keep-her-and-shes-doing-so-well-on-our-farm-she-makes-me-so-happy-im-in-the-best-place-in-my-life-always-wanted-a-dogiher)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
