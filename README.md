@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Got back into taking photos of dogs recently after a 3 year hiatus, and loving it. It really brings me a lot of joy so glad to have it back in my life.](https://news.puppy-snuggles.com/18583562/got-back-into-taking-photos-of-dogs-recently-after-a-3-year-hiatus-and-loving-it-it-really-brings-me-a-lot-of-joy-so-glad-to-have-it-back-in-my-life)
-- [What do you think of my new pet, an English bulldog, &amp;amp;quot;HELP ME GIVE HIM A NAME&amp;amp;quot;?](https://news.puppy-snuggles.com/17947743/what-do-you-think-of-my-new-pet-an-english-bulldog-quothelp-me-give-him-a-namequot)
-- [Профессиональный спортсмен](https://news.puppy-snuggles.com/14558205/professionalnyi-sportsmen)
-- [Just looking](https://news.puppy-snuggles.com/14174213/just-looking)
-- [The dog I adopted when i found her when she was not more than 2 weeks old chewing on my crocs. It was love at first sight and i immediately took her in and begged my dad to keep her and she&amp;#039;s doing so well on our farm, she makes me so happy I&amp;#039;m in the best place in my life always wanted a dog.I❤️HER](https://news.puppy-snuggles.com/13890552/the-dog-i-adopted-when-i-found-her-when-she-was-not-more-than-2-weeks-old-chewing-on-my-crocs-it-was-love-at-first-sight-and-i-immediately-took-her-in-and-begged-my-dad-to-keep-her-and-shes-doing-so-well-on-our-farm-she-makes-me-so-happy-im-in-the-best-place-in-my-life-always-wanted-a-dogiher)
+- [The pooch’s ears have been standing up ever since he took prednisone! So weird!](https://news.puppy-snuggles.com/23072313/the-poochs-ears-have-been-standing-up-ever-since-he-took-prednisone-so-weird)
+- [The dog squad.](https://news.puppy-snuggles.com/21441834/the-dog-squad)
+- [Can&amp;#039;t imagine my life without this boy &amp;amp;lt;3](https://news.puppy-snuggles.com/19933159/cant-imagine-my-life-without-this-boy-lt3)
+- [Bullet catching a breeze](https://news.puppy-snuggles.com/18711588/bullet-catching-a-breeze)
+- [Took him for a long walk and he enjoyed every moment of it](https://news.puppy-snuggles.com/17617660/took-him-for-a-long-walk-and-he-enjoyed-every-moment-of-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
