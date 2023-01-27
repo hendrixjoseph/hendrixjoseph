@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The pooch’s ears have been standing up ever since he took prednisone! So weird!](https://news.puppy-snuggles.com/23072313/the-poochs-ears-have-been-standing-up-ever-since-he-took-prednisone-so-weird)
-- [The dog squad.](https://news.puppy-snuggles.com/21441834/the-dog-squad)
-- [Can&amp;#039;t imagine my life without this boy &amp;amp;lt;3](https://news.puppy-snuggles.com/19933159/cant-imagine-my-life-without-this-boy-lt3)
-- [Bullet catching a breeze](https://news.puppy-snuggles.com/18711588/bullet-catching-a-breeze)
-- [Took him for a long walk and he enjoyed every moment of it](https://news.puppy-snuggles.com/17617660/took-him-for-a-long-walk-and-he-enjoyed-every-moment-of-it)
+- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
+- [My serious little old boy! Love him so much](https://news.puppy-snuggles.com/23631321/my-serious-little-old-boy-love-him-so-much)
+- [My husband rescued a ditch dog yesterday from the oilfield, every time he looks at you is a &amp;amp;quot;thank you&amp;amp;quot;](https://news.puppy-snuggles.com/23214205/my-husband-rescued-a-ditch-dog-yesterday-from-the-oilfield-every-time-he-looks-at-you-is-a-quotthank-youquot)
+- [Anytime I get in my car, this little dude thinks he’s going somewhere and won’t get out](https://news.puppy-snuggles.com/19787409/anytime-i-get-in-my-car-this-little-dude-thinks-hes-going-somewhere-and-wont-get-out)
+- [Do you like it?](https://news.puppy-snuggles.com/18485908/do-you-like-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
