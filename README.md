@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
-- [My serious little old boy! Love him so much](https://news.puppy-snuggles.com/23631321/my-serious-little-old-boy-love-him-so-much)
-- [My husband rescued a ditch dog yesterday from the oilfield, every time he looks at you is a &amp;amp;quot;thank you&amp;amp;quot;](https://news.puppy-snuggles.com/23214205/my-husband-rescued-a-ditch-dog-yesterday-from-the-oilfield-every-time-he-looks-at-you-is-a-quotthank-youquot)
-- [Anytime I get in my car, this little dude thinks he’s going somewhere and won’t get out](https://news.puppy-snuggles.com/19787409/anytime-i-get-in-my-car-this-little-dude-thinks-hes-going-somewhere-and-wont-get-out)
-- [Do you like it?](https://news.puppy-snuggles.com/18485908/do-you-like-it)
+- [Eight dogs remain in custody after dog walker was mauled to death](https://news.puppy-snuggles.com/25099869/eight-dogs-remain-in-custody-after-dog-walker-was-mauled-to-death)
+- [Family of dog walker, 28, mauled to death by eight dogs share their heartache after ‘sudden loss’](https://news.puppy-snuggles.com/25099868/family-of-dog-walker-28-mauled-to-death-by-eight-dogs-share-their-heartache-after-sudden-loss)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
+- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
