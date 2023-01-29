@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Eight dogs remain in custody after dog walker was mauled to death](https://news.puppy-snuggles.com/25099869/eight-dogs-remain-in-custody-after-dog-walker-was-mauled-to-death)
-- [Family of dog walker, 28, mauled to death by eight dogs share their heartache after ‘sudden loss’](https://news.puppy-snuggles.com/25099868/family-of-dog-walker-28-mauled-to-death-by-eight-dogs-share-their-heartache-after-sudden-loss)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
-- [My man catching some sun!](https://news.puppy-snuggles.com/22130196/my-man-catching-some-sun)
+- [The last picture I got of my very best friend. She was by my side for 12 years - Jesus Christ, I had no idea how bad it would hurt.](https://news.puppy-snuggles.com/25781569/the-last-picture-i-got-of-my-very-best-friend-she-was-by-my-side-for-12-years-jesus-christ-i-had-no-idea-how-bad-it-would-hurt)
+- [Miloh loves snow days](https://news.puppy-snuggles.com/25454043/miloh-loves-snow-days)
+- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
+- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
+- [Help us name our newest member to the family!](https://news.puppy-snuggles.com/24193173/help-us-name-our-newest-member-to-the-family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
