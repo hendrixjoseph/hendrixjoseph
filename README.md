@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The last picture I got of my very best friend. She was by my side for 12 years - Jesus Christ, I had no idea how bad it would hurt.](https://news.puppy-snuggles.com/25781569/the-last-picture-i-got-of-my-very-best-friend-she-was-by-my-side-for-12-years-jesus-christ-i-had-no-idea-how-bad-it-would-hurt)
-- [Miloh loves snow days](https://news.puppy-snuggles.com/25454043/miloh-loves-snow-days)
-- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
-- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
-- [Help us name our newest member to the family!](https://news.puppy-snuggles.com/24193173/help-us-name-our-newest-member-to-the-family)
+- [Adopted Dolly girl today from Texas, first time seeing snow!](https://news.puppy-snuggles.com/25621291/adopted-dolly-girl-today-from-texas-first-time-seeing-snow)
+- [oh hey der](https://news.puppy-snuggles.com/21971066/oh-hey-der)
+- [free dog pic](https://news.puppy-snuggles.com/18245434/free-dog-pic)
+- [Daily dose of Maggie.](https://news.puppy-snuggles.com/17793747/daily-dose-of-maggie)
+- [His first day at his forever home](https://news.puppy-snuggles.com/16548243/his-first-day-at-his-forever-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
