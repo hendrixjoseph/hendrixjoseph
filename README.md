@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted Dolly girl today from Texas, first time seeing snow!](https://news.puppy-snuggles.com/25621291/adopted-dolly-girl-today-from-texas-first-time-seeing-snow)
-- [oh hey der](https://news.puppy-snuggles.com/21971066/oh-hey-der)
-- [free dog pic](https://news.puppy-snuggles.com/18245434/free-dog-pic)
-- [Daily dose of Maggie.](https://news.puppy-snuggles.com/17793747/daily-dose-of-maggie)
-- [His first day at his forever home](https://news.puppy-snuggles.com/16548243/his-first-day-at-his-forever-home)
+- [Nga Kor Ming presented the &amp;#039;Golden Performance&amp;#039; Medal to four tracking dogs, the K9 Unit involved in the Search and Rescue Operation of the Batang Kali Landslide Tragedy](https://news.puppy-snuggles.com/24763113/nga-kor-ming-presented-the-golden-performance-medal-to-four-tracking-dogs-the-k9-unit-involved-in-the-search-and-rescue-operation-of-the-batang-kali-landslide-tragedy)
+- [That face never gets old](https://news.puppy-snuggles.com/23658548/that-face-never-gets-old)
+- [My Pup Cut One](https://news.puppy-snuggles.com/23658543/my-pup-cut-one)
+- [Beach cheesin](https://news.puppy-snuggles.com/23658540/beach-cheesin)
+- [warning: dangerous](https://news.puppy-snuggles.com/23605476/warning-dangerous)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
