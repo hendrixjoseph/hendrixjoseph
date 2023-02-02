@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [kiba the elf wishes everyone a happy holiday](https://news.puppy-snuggles.com/24183212/kiba-the-elf-wishes-everyone-a-happy-holiday)
-- [Before and after Christmas cut](https://news.puppy-snuggles.com/23823377/before-and-after-christmas-cut)
-- [Macchiato&amp;#039;s first Christmas tree](https://news.puppy-snuggles.com/23498668/macchiatos-first-christmas-tree)
-- [What kind of dog breed is this?](https://news.puppy-snuggles.com/23412981/what-kind-of-dog-breed-is-this)
-- [Local dog escaped and made his way to school](https://news.puppy-snuggles.com/23132582/local-dog-escaped-and-made-his-way-to-school)
+- [Cutest picture of my puppy](https://news.puppy-snuggles.com/26037494/cutest-picture-of-my-puppy)
+- [5 month old protective instincts kicking in lol](https://news.puppy-snuggles.com/22819250/5-month-old-protective-instincts-kicking-in-lol)
+- [[OC] One month old today](https://news.puppy-snuggles.com/22785021/oc-one-month-old-today)
+- [My LuLu Passed Away Tonight!](https://news.puppy-snuggles.com/21971064/my-lulu-passed-away-tonight)
+- [If you have a bad day - remember that you are the world for someone.](https://news.puppy-snuggles.com/21638385/if-you-have-a-bad-day-remember-that-you-are-the-world-for-someone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
