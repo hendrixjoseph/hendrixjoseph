@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cutest picture of my puppy](https://news.puppy-snuggles.com/26037494/cutest-picture-of-my-puppy)
-- [5 month old protective instincts kicking in lol](https://news.puppy-snuggles.com/22819250/5-month-old-protective-instincts-kicking-in-lol)
-- [[OC] One month old today](https://news.puppy-snuggles.com/22785021/oc-one-month-old-today)
-- [My LuLu Passed Away Tonight!](https://news.puppy-snuggles.com/21971064/my-lulu-passed-away-tonight)
-- [If you have a bad day - remember that you are the world for someone.](https://news.puppy-snuggles.com/21638385/if-you-have-a-bad-day-remember-that-you-are-the-world-for-someone)
+- [Naughty Jesse very sweet momentlol](https://news.puppy-snuggles.com/22743256/naughty-jesse-very-sweet-momentlol)
+- [Dobby the Doggy](https://news.puppy-snuggles.com/19835092/dobby-the-doggy)
+- [ginny very happily getting scritches](https://news.puppy-snuggles.com/19631493/ginny-very-happily-getting-scritches)
+- [Mailon sleeping with a friend](https://news.puppy-snuggles.com/19624136/mailon-sleeping-with-a-friend)
+- [the boxer does not understand](https://news.puppy-snuggles.com/18619958/the-boxer-does-not-understand)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
