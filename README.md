@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Naughty Jesse very sweet momentlol](https://news.puppy-snuggles.com/22743256/naughty-jesse-very-sweet-momentlol)
-- [Dobby the Doggy](https://news.puppy-snuggles.com/19835092/dobby-the-doggy)
-- [ginny very happily getting scritches](https://news.puppy-snuggles.com/19631493/ginny-very-happily-getting-scritches)
-- [Mailon sleeping with a friend](https://news.puppy-snuggles.com/19624136/mailon-sleeping-with-a-friend)
-- [the boxer does not understand](https://news.puppy-snuggles.com/18619958/the-boxer-does-not-understand)
+- [I had promised my 10 year old dog that I would take him to the sea before he left us. Here are photos of him just before we discovered his illness. He left us last year.](https://news.puppy-snuggles.com/24568285/i-had-promised-my-10-year-old-dog-that-i-would-take-him-to-the-sea-before-he-left-us-here-are-photos-of-him-just-before-we-discovered-his-illness-he-left-us-last-year)
+- [When you realize that Christmas is just around the corner. Are you ready?](https://news.puppy-snuggles.com/24324644/when-you-realize-that-christmas-is-just-around-the-corner-are-you-ready)
+- [I think someone had a good day! Swipe to see all the fun :&rpar;](https://news.puppy-snuggles.com/18822257/i-think-someone-had-a-good-day-swipe-to-see-all-the-fun)
+- [Mickey, the bestest boy ever](https://news.puppy-snuggles.com/17336782/mickey-the-bestest-boy-ever)
+- [My first portrait painting. Of course, I had to make the subject my girl Scout &amp;amp;lt;3](https://news.puppy-snuggles.com/15541414/my-first-portrait-painting-of-course-i-had-to-make-the-subject-my-girl-scout-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
