@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Manually check transaction in Mint?](https://www.reddit.com/r/mintuit/comments/10uh41c/manually_check_transaction_in_mint/j7c2654/)
 - [/u/joehx on Where can I get &lpar;prefferably free&rpar; textbooks for self study?](https://www.reddit.com/r/computerscience/comments/10o4vhp/where_can_i_get_prefferably_free_textbooks_for/j6e3tih/)
 - [/u/joehx on Daily FI discussion thread - Saturday, January 28, 2023](https://www.reddit.com/r/financialindependence/comments/10nbmj2/daily_fi_discussion_thread_saturday_january_28/j69amwj/)
 - [including job level for visibility](https://www.reddit.com/r/cscareerquestions/comments/10mmjrd/including_job_level_for_visibility/)
 - [/u/joehx on Renaming Rules based on Contains or Amounts](https://www.reddit.com/r/mintuit/comments/10fnhrh/renaming_rules_based_on_contains_or_amounts/j51c67a/)
-- [/u/joehx on I kid you not, this happened during today&#39;s standup.](https://www.reddit.com/r/ProgrammerHumor/comments/10efm42/i_kid_you_not_this_happened_during_todays_standup/j4sulrx/)
 <!-- REDDIT:END -->
