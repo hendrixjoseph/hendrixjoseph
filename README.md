@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Wolf-doggo :&rpar;](https://news.puppy-snuggles.com/26254775/happy-wolf-doggo)
-- [Dog owner mauled to death by dogs after helping his pet being attacked, Texas cops say](https://news.puppy-snuggles.com/26247801/dog-owner-mauled-to-death-by-dogs-after-helping-his-pet-being-attacked-texas-cops-say)
-- [My Happy box](https://news.puppy-snuggles.com/26074922/my-happy-box)
-- [Can anyone identify this breed](https://news.puppy-snuggles.com/23348080/can-anyone-identify-this-breed)
-- [I want you all to meet my best friend Teddy Bear and today he crossed the Rainbow Bridge. He was 13, loved back scratches, barking at squirrels, and he admired cows. Most importantly he was a very good boy. And now he is at peace.](https://news.puppy-snuggles.com/23097348/i-want-you-all-to-meet-my-best-friend-teddy-bear-and-today-he-crossed-the-rainbow-bridge-he-was-13-loved-back-scratches-barking-at-squirrels-and-he-admired-cows-most-importantly-he-was-a-very-good-boy-and-now-he-is-at-peace)
+- [Hola, buenos días](https://news.puppy-snuggles.com/26310088/hola-buenos-dias)
+- [3 months old now](https://news.puppy-snuggles.com/25658010/3-months-old-now)
+- [Who&amp;#039;s there](https://news.puppy-snuggles.com/25454041/whos-there)
+- [Hello, I require attention please](https://news.puppy-snuggles.com/17931141/hello-i-require-attention-please)
+- [Miss Luna is 12! She was 7 when I adopted her. Praying we have many more years of love.](https://news.puppy-snuggles.com/17221886/miss-luna-is-12-she-was-7-when-i-adopted-her-praying-we-have-many-more-years-of-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
