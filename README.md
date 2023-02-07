@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hola, buenos días](https://news.puppy-snuggles.com/26310088/hola-buenos-dias)
-- [3 months old now](https://news.puppy-snuggles.com/25658010/3-months-old-now)
-- [Who&amp;#039;s there](https://news.puppy-snuggles.com/25454041/whos-there)
-- [Hello, I require attention please](https://news.puppy-snuggles.com/17931141/hello-i-require-attention-please)
-- [Miss Luna is 12! She was 7 when I adopted her. Praying we have many more years of love.](https://news.puppy-snuggles.com/17221886/miss-luna-is-12-she-was-7-when-i-adopted-her-praying-we-have-many-more-years-of-love)
+- [Our sweet boy Cooper crossed over the rainbow bridge last night &amp;amp;lt;3](https://news.puppy-snuggles.com/26367601/our-sweet-boy-cooper-crossed-over-the-rainbow-bridge-last-night-lt3)
+- [Today is Duncan’s 7th bday](https://news.puppy-snuggles.com/26367603/today-is-duncans-7th-bday)
+- [She died from lack of belly rubs. Very sad.](https://news.puppy-snuggles.com/26367602/she-died-from-lack-of-belly-rubs-very-sad)
+- [scout](https://news.puppy-snuggles.com/26310087/scout)
+- [“what the heck are you lookin at?!”](https://news.puppy-snuggles.com/19471518/what-the-heck-are-you-lookin-at)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
