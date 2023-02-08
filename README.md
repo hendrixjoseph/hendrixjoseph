@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our sweet boy Cooper crossed over the rainbow bridge last night &amp;amp;lt;3](https://news.puppy-snuggles.com/26367601/our-sweet-boy-cooper-crossed-over-the-rainbow-bridge-last-night-lt3)
-- [Today is Duncan’s 7th bday](https://news.puppy-snuggles.com/26367603/today-is-duncans-7th-bday)
-- [She died from lack of belly rubs. Very sad.](https://news.puppy-snuggles.com/26367602/she-died-from-lack-of-belly-rubs-very-sad)
-- [scout](https://news.puppy-snuggles.com/26310087/scout)
-- [“what the heck are you lookin at?!”](https://news.puppy-snuggles.com/19471518/what-the-heck-are-you-lookin-at)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [2500 miles of this](https://news.puppy-snuggles.com/22351707/2500-miles-of-this)
+- [This is Bailey - any thoughts on her breed?](https://news.puppy-snuggles.com/19188681/this-is-bailey-any-thoughts-on-her-breed)
+- [Max the growing German Shepherd puppy :&rpar; updated weekly!](https://news.puppy-snuggles.com/19166608/max-the-growing-german-shepherd-puppy-updated-weekly)
+- [Went out of town and my mom watched my pup. She sent this pic so I’d know she was doing fine. 💕](https://news.puppy-snuggles.com/18705477/went-out-of-town-and-my-mom-watched-my-pup-she-sent-this-pic-so-id-know-she-was-doing-fine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
