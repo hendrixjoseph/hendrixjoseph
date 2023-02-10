@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When you&amp;#039;re a teacher and your dog eats everyone&amp;#039;s homework.](https://news.puppy-snuggles.com/26519720/when-youre-a-teacher-and-your-dog-eats-everyones-homework)
-- [My grandparents new puppy. Bud!](https://news.puppy-snuggles.com/26519719/my-grandparents-new-puppy-bud)
-- [my dog is so cute](https://news.puppy-snuggles.com/22615430/my-dog-is-so-cute)
-- [This puppy surely enjoying the day!](https://news.puppy-snuggles.com/22590711/this-puppy-surely-enjoying-the-day)
-- [Tired girl](https://news.puppy-snuggles.com/21905435/tired-girl)
+- [Little angel](https://news.puppy-snuggles.com/26580120/little-angel)
+- [Best Customer Service](https://news.puppy-snuggles.com/26580122/best-customer-service)
+- [The way she&amp;#039;s going grey makes it look like she has a little black fancy mustache.](https://news.puppy-snuggles.com/26580118/the-way-shes-going-grey-makes-it-look-like-she-has-a-little-black-fancy-mustache)
+- [California beach boy🌊](https://news.puppy-snuggles.com/18583561/california-beach-boy)
+- [We need name suggestions! We took this little girl home yesterday and we haven’t been able to pick a name😂 HELP! So far we’ve been discussing Milou, Tintin, Freya, Hedvig, Juno, Eira, we’ve been all over the place😂 Atm I’m just calling her Puppy.](https://news.puppy-snuggles.com/15153618/we-need-name-suggestions-we-took-this-little-girl-home-yesterday-and-we-havent-been-able-to-pick-a-name-help-so-far-weve-been-discussing-milou-tintin-freya-hedvig-juno-eira-weve-been-all-over-the-place-atm-im-just-calling-her-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
