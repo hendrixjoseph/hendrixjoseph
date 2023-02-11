@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Little angel](https://news.puppy-snuggles.com/26580120/little-angel)
-- [Best Customer Service](https://news.puppy-snuggles.com/26580122/best-customer-service)
-- [The way she&amp;#039;s going grey makes it look like she has a little black fancy mustache.](https://news.puppy-snuggles.com/26580118/the-way-shes-going-grey-makes-it-look-like-she-has-a-little-black-fancy-mustache)
-- [California beach boy🌊](https://news.puppy-snuggles.com/18583561/california-beach-boy)
-- [We need name suggestions! We took this little girl home yesterday and we haven’t been able to pick a name😂 HELP! So far we’ve been discussing Milou, Tintin, Freya, Hedvig, Juno, Eira, we’ve been all over the place😂 Atm I’m just calling her Puppy.](https://news.puppy-snuggles.com/15153618/we-need-name-suggestions-we-took-this-little-girl-home-yesterday-and-we-havent-been-able-to-pick-a-name-help-so-far-weve-been-discussing-milou-tintin-freya-hedvig-juno-eira-weve-been-all-over-the-place-atm-im-just-calling-her-puppy)
+- [Please help me name my new foster dog.](https://news.puppy-snuggles.com/22183739/please-help-me-name-my-new-foster-dog)
+- [Barney is all tuckered out today](https://news.puppy-snuggles.com/15850177/barney-is-all-tuckered-out-today)
+- [Our newest family member. A relaxed sweet boy. He even slept through the night! #germanpointershorthair #puppy #shorthair #pointer](https://news.puppy-snuggles.com/13996227/our-newest-family-member-a-relaxed-sweet-boy-he-even-slept-through-the-night-germanpointershorthair-puppy-shorthair-pointer)
+- [The brothers talk about the future](https://news.puppy-snuggles.com/11757535/the-brothers-talk-about-the-future)
+- [Anyone got any guesses on breed?](https://news.puppy-snuggles.com/11701357/anyone-got-any-guesses-on-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
