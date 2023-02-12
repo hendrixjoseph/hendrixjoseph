@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please help me name my new foster dog.](https://news.puppy-snuggles.com/22183739/please-help-me-name-my-new-foster-dog)
-- [Barney is all tuckered out today](https://news.puppy-snuggles.com/15850177/barney-is-all-tuckered-out-today)
-- [Our newest family member. A relaxed sweet boy. He even slept through the night! #germanpointershorthair #puppy #shorthair #pointer](https://news.puppy-snuggles.com/13996227/our-newest-family-member-a-relaxed-sweet-boy-he-even-slept-through-the-night-germanpointershorthair-puppy-shorthair-pointer)
-- [The brothers talk about the future](https://news.puppy-snuggles.com/11757535/the-brothers-talk-about-the-future)
-- [Anyone got any guesses on breed?](https://news.puppy-snuggles.com/11701357/anyone-got-any-guesses-on-breed)
+- [6 Weeks Old... and Questions!](https://news.puppy-snuggles.com/24677651/6-weeks-old-and-questions)
+- [his eyes is heaven](https://news.puppy-snuggles.com/24324645/his-eyes-is-heaven)
+- [We love the dog park!!](https://news.puppy-snuggles.com/21748197/we-love-the-dog-park)
+- [Dog and da pig chillin like homies](https://news.puppy-snuggles.com/19988252/dog-and-da-pig-chillin-like-homies)
+- [Rostock’s birthday today 🥰](https://news.puppy-snuggles.com/19742920/rostocks-birthday-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
