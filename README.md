@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [6 Weeks Old... and Questions!](https://news.puppy-snuggles.com/24677651/6-weeks-old-and-questions)
-- [his eyes is heaven](https://news.puppy-snuggles.com/24324645/his-eyes-is-heaven)
-- [We love the dog park!!](https://news.puppy-snuggles.com/21748197/we-love-the-dog-park)
-- [Dog and da pig chillin like homies](https://news.puppy-snuggles.com/19988252/dog-and-da-pig-chillin-like-homies)
-- [Rostock’s birthday today 🥰](https://news.puppy-snuggles.com/19742920/rostocks-birthday-today)
+- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
+- [introducing Duchess Von Jager](https://news.puppy-snuggles.com/22086931/introducing-duchess-von-jager)
+- [just enjoying our starbucks before our beach drive](https://news.puppy-snuggles.com/21649551/just-enjoying-our-starbucks-before-our-beach-drive)
+- [Either boop or throw the stick pick one](https://news.puppy-snuggles.com/21595313/either-boop-or-throw-the-stick-pick-one)
+- [Sooo…what’s for lunch, human?](https://news.puppy-snuggles.com/20201581/sooowhats-for-lunch-human)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
