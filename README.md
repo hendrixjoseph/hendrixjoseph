@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
-- [introducing Duchess Von Jager](https://news.puppy-snuggles.com/22086931/introducing-duchess-von-jager)
-- [just enjoying our starbucks before our beach drive](https://news.puppy-snuggles.com/21649551/just-enjoying-our-starbucks-before-our-beach-drive)
-- [Either boop or throw the stick pick one](https://news.puppy-snuggles.com/21595313/either-boop-or-throw-the-stick-pick-one)
-- [Sooo…what’s for lunch, human?](https://news.puppy-snuggles.com/20201581/sooowhats-for-lunch-human)
+- [13 years difference](https://news.puppy-snuggles.com/23697387/13-years-difference)
+- [She thinks she accomplished something big 🤷‍♂️](https://news.puppy-snuggles.com/23658553/she-thinks-she-accomplished-something-big)
+- [Been over a year and not a day goes by that I don’t think about you. The goodest of boys.](https://news.puppy-snuggles.com/23566745/been-over-a-year-and-not-a-day-goes-by-that-i-dont-think-about-you-the-goodest-of-boys)
+- [Help me which her BREED](https://news.puppy-snuggles.com/23507453/help-me-which-her-breed)
+- [What breed of dog do you think she is?](https://news.puppy-snuggles.com/23470949/what-breed-of-dog-do-you-think-she-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
