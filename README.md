@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [13 years difference](https://news.puppy-snuggles.com/23697387/13-years-difference)
-- [She thinks she accomplished something big 🤷‍♂️](https://news.puppy-snuggles.com/23658553/she-thinks-she-accomplished-something-big)
-- [Been over a year and not a day goes by that I don’t think about you. The goodest of boys.](https://news.puppy-snuggles.com/23566745/been-over-a-year-and-not-a-day-goes-by-that-i-dont-think-about-you-the-goodest-of-boys)
-- [Help me which her BREED](https://news.puppy-snuggles.com/23507453/help-me-which-her-breed)
-- [What breed of dog do you think she is?](https://news.puppy-snuggles.com/23470949/what-breed-of-dog-do-you-think-she-is)
+- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
+- [Bruno has amazing eyes](https://news.puppy-snuggles.com/23658551/bruno-has-amazing-eyes)
+- [Pencil portrait of a cute puppy commission portrait for my client](https://news.puppy-snuggles.com/23386205/pencil-portrait-of-a-cute-puppy-commission-portrait-for-my-client)
+- [My dog has her own mini couch](https://news.puppy-snuggles.com/22716972/my-dog-has-her-own-mini-couch)
+- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
