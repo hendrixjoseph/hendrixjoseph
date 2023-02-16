@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ham was used to get this picture](https://news.puppy-snuggles.com/24402192/ham-was-used-to-get-this-picture)
-- [Bruno has amazing eyes](https://news.puppy-snuggles.com/23658551/bruno-has-amazing-eyes)
-- [Pencil portrait of a cute puppy commission portrait for my client](https://news.puppy-snuggles.com/23386205/pencil-portrait-of-a-cute-puppy-commission-portrait-for-my-client)
-- [My dog has her own mini couch](https://news.puppy-snuggles.com/22716972/my-dog-has-her-own-mini-couch)
-- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
+- [Lucy a Rhodesian Ridge Back-hound dog mix](https://news.puppy-snuggles.com/26994811/lucy-a-rhodesian-ridge-back-hound-dog-mix)
+- [This is Max. He loves his friend llama.](https://news.puppy-snuggles.com/24347092/this-is-max-he-loves-his-friend-llama)
+- [Killing me with her latest pose](https://news.puppy-snuggles.com/23541200/killing-me-with-her-latest-pose)
+- [pile of happiness &lpar;oc&rpar;](https://news.puppy-snuggles.com/22960372/pile-of-happiness-oc)
+- [The post hike crash!](https://news.puppy-snuggles.com/22753258/the-post-hike-crash)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
