@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lucy a Rhodesian Ridge Back-hound dog mix](https://news.puppy-snuggles.com/26994811/lucy-a-rhodesian-ridge-back-hound-dog-mix)
-- [This is Max. He loves his friend llama.](https://news.puppy-snuggles.com/24347092/this-is-max-he-loves-his-friend-llama)
-- [Killing me with her latest pose](https://news.puppy-snuggles.com/23541200/killing-me-with-her-latest-pose)
-- [pile of happiness &lpar;oc&rpar;](https://news.puppy-snuggles.com/22960372/pile-of-happiness-oc)
-- [The post hike crash!](https://news.puppy-snuggles.com/22753258/the-post-hike-crash)
+- [DNA test results are in! Can you guess which breeds are present?](https://news.puppy-snuggles.com/27061922/dna-test-results-are-in-can-you-guess-which-breeds-are-present)
+- [Charley you would have never left my side, but I hope you can leave in peace tommorow. I&amp;#039;m going to miss you so bad but it&amp;#039;s for the better to let you go.](https://news.puppy-snuggles.com/27061923/charley-you-would-have-never-left-my-side-but-i-hope-you-can-leave-in-peace-tommorow-im-going-to-miss-you-so-bad-but-its-for-the-better-to-let-you-go)
+- [good morning from this perfect angel](https://news.puppy-snuggles.com/21757668/good-morning-from-this-perfect-angel)
+- [Tesla refusing to get out of the car because we didn’t stop at McDonald’s and get her a cheeseburger 🙄😆](https://news.puppy-snuggles.com/19207139/tesla-refusing-to-get-out-of-the-car-because-we-didnt-stop-at-mcdonalds-and-get-her-a-cheeseburger)
+- [My 5 wieners](https://news.puppy-snuggles.com/16548242/my-5-wieners)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
