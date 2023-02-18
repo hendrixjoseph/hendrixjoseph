@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [DNA test results are in! Can you guess which breeds are present?](https://news.puppy-snuggles.com/27061922/dna-test-results-are-in-can-you-guess-which-breeds-are-present)
-- [Charley you would have never left my side, but I hope you can leave in peace tommorow. I&amp;#039;m going to miss you so bad but it&amp;#039;s for the better to let you go.](https://news.puppy-snuggles.com/27061923/charley-you-would-have-never-left-my-side-but-i-hope-you-can-leave-in-peace-tommorow-im-going-to-miss-you-so-bad-but-its-for-the-better-to-let-you-go)
-- [good morning from this perfect angel](https://news.puppy-snuggles.com/21757668/good-morning-from-this-perfect-angel)
-- [Tesla refusing to get out of the car because we didn’t stop at McDonald’s and get her a cheeseburger 🙄😆](https://news.puppy-snuggles.com/19207139/tesla-refusing-to-get-out-of-the-car-because-we-didnt-stop-at-mcdonalds-and-get-her-a-cheeseburger)
-- [My 5 wieners](https://news.puppy-snuggles.com/16548242/my-5-wieners)
+- [my moms great dane, mr. moose](https://news.puppy-snuggles.com/24272075/my-moms-great-dane-mr-moose)
+- [Fall colours hike with Latte. She found a ball!](https://news.puppy-snuggles.com/21441838/fall-colours-hike-with-latte-she-found-a-ball)
+- [100/10 for doing so well in class today and for qualifying to graduate high pup honors](https://news.puppy-snuggles.com/15566808/10010-for-doing-so-well-in-class-today-and-for-qualifying-to-graduate-high-pup-honors)
+- [Told my best friend goodbye today. Words cannot describe how devastated I am. Thank you for an amazing 13 years, Ace. 😭💔](https://news.puppy-snuggles.com/14997637/told-my-best-friend-goodbye-today-words-cannot-describe-how-devastated-i-am-thank-you-for-an-amazing-13-years-ace)
+- [Corgi Facts That Make Them The Best Pets.](https://news.puppy-snuggles.com/12360112/corgi-facts-that-make-them-the-best-pets)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
