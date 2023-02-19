@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my moms great dane, mr. moose](https://news.puppy-snuggles.com/24272075/my-moms-great-dane-mr-moose)
-- [Fall colours hike with Latte. She found a ball!](https://news.puppy-snuggles.com/21441838/fall-colours-hike-with-latte-she-found-a-ball)
-- [100/10 for doing so well in class today and for qualifying to graduate high pup honors](https://news.puppy-snuggles.com/15566808/10010-for-doing-so-well-in-class-today-and-for-qualifying-to-graduate-high-pup-honors)
-- [Told my best friend goodbye today. Words cannot describe how devastated I am. Thank you for an amazing 13 years, Ace. 😭💔](https://news.puppy-snuggles.com/14997637/told-my-best-friend-goodbye-today-words-cannot-describe-how-devastated-i-am-thank-you-for-an-amazing-13-years-ace)
-- [Corgi Facts That Make Them The Best Pets.](https://news.puppy-snuggles.com/12360112/corgi-facts-that-make-them-the-best-pets)
+- [Only had my boy duke for seven months. He passed away a couple hours ago](https://news.puppy-snuggles.com/25289625/only-had-my-boy-duke-for-seven-months-he-passed-away-a-couple-hours-ago)
+- [Why do dogs repeatedly wash their toys like this? Does it smell better, or is it just play?](https://news.puppy-snuggles.com/24788015/why-do-dogs-repeatedly-wash-their-toys-like-this-does-it-smell-better-or-is-it-just-play)
+- [Adopted this sweet boy on Sunday.](https://news.puppy-snuggles.com/23839552/adopted-this-sweet-boy-on-sunday)
+- [9 years old and still acts like a puppy. Except when she sits classy](https://news.puppy-snuggles.com/20319546/9-years-old-and-still-acts-like-a-puppy-except-when-she-sits-classy)
+- [This guy- hanging out in a dive in old orchard beach](https://news.puppy-snuggles.com/17745088/this-guy-hanging-out-in-a-dive-in-old-orchard-beach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
