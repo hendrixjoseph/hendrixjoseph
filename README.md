@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on A hamburger is really made from beef - not ham, &amp; a cheeseburger is mostly meat &amp; bread before cheese. What other foods are named strangely?](https://www.reddit.com/r/AskReddit/comments/115twht/a_hamburger_is_really_made_from_beef_not_ham_a/j93f9o9/)
+- [/u/joehx on Who was the best American president?](https://www.reddit.com/r/AskReddit/comments/115tg6m/who_was_the_best_american_president/j93easj/)
 - [/u/joehx on Where can I find the 1099 B form on the platform?](https://www.reddit.com/r/Webull/comments/1127e5w/where_can_i_find_the_1099_b_form_on_the_platform/j8j2duw/)
 - [/u/joehx on Where can I find the 1099 B form on the platform?](https://www.reddit.com/r/Webull/comments/1127e5w/where_can_i_find_the_1099_b_form_on_the_platform/j8irsf8/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of February 06, 2023](https://www.reddit.com/r/personalfinance/comments/10v3u7j/weekday_help_and_victory_thread_for_the_week_of/j7krqif/)
-- [/u/joehx on Manually check transaction in Mint?](https://www.reddit.com/r/mintuit/comments/10uh41c/manually_check_transaction_in_mint/j7c2654/)
-- [/u/joehx on Where can I get &lpar;prefferably free&rpar; textbooks for self study?](https://www.reddit.com/r/computerscience/comments/10o4vhp/where_can_i_get_prefferably_free_textbooks_for/j6e3tih/)
 <!-- REDDIT:END -->
