@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Only had my boy duke for seven months. He passed away a couple hours ago](https://news.puppy-snuggles.com/25289625/only-had-my-boy-duke-for-seven-months-he-passed-away-a-couple-hours-ago)
-- [Why do dogs repeatedly wash their toys like this? Does it smell better, or is it just play?](https://news.puppy-snuggles.com/24788015/why-do-dogs-repeatedly-wash-their-toys-like-this-does-it-smell-better-or-is-it-just-play)
-- [Adopted this sweet boy on Sunday.](https://news.puppy-snuggles.com/23839552/adopted-this-sweet-boy-on-sunday)
-- [9 years old and still acts like a puppy. Except when she sits classy](https://news.puppy-snuggles.com/20319546/9-years-old-and-still-acts-like-a-puppy-except-when-she-sits-classy)
-- [This guy- hanging out in a dive in old orchard beach](https://news.puppy-snuggles.com/17745088/this-guy-hanging-out-in-a-dive-in-old-orchard-beach)
+- [My Treasure](https://news.puppy-snuggles.com/27261574/my-treasure)
+- [just saying good morning neighbor.](https://news.puppy-snuggles.com/23175024/just-saying-good-morning-neighbor)
+- [Lilly. ❤️](https://news.puppy-snuggles.com/19933156/lilly)
+- [It made so many people happy last time, that I decided to make another one with today&amp;#039;s best smiles &amp;amp;lt;3](https://news.puppy-snuggles.com/19657766/it-made-so-many-people-happy-last-time-that-i-decided-to-make-another-one-with-todays-best-smiles-lt3)
+- [Sophie - Then and now.](https://news.puppy-snuggles.com/18549868/sophie-then-and-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
