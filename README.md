@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Treasure](https://news.puppy-snuggles.com/27261574/my-treasure)
-- [just saying good morning neighbor.](https://news.puppy-snuggles.com/23175024/just-saying-good-morning-neighbor)
-- [Lilly. ❤️](https://news.puppy-snuggles.com/19933156/lilly)
-- [It made so many people happy last time, that I decided to make another one with today&amp;#039;s best smiles &amp;amp;lt;3](https://news.puppy-snuggles.com/19657766/it-made-so-many-people-happy-last-time-that-i-decided-to-make-another-one-with-todays-best-smiles-lt3)
-- [Sophie - Then and now.](https://news.puppy-snuggles.com/18549868/sophie-then-and-now)
+- [My winnie boy passed away two days ago. I just wanted reddit to meet the handsome boy. Rest in peace old man](https://news.puppy-snuggles.com/19117564/my-winnie-boy-passed-away-two-days-ago-i-just-wanted-reddit-to-meet-the-handsome-boy-rest-in-peace-old-man)
+- [Dogs are nice people](https://news.puppy-snuggles.com/17533748/dogs-are-nice-people)
+- [The princess of the family, from killer to docile dog in one year.](https://news.puppy-snuggles.com/16218791/the-princess-of-the-family-from-killer-to-docile-dog-in-one-year)
+- [No cute video here, folks. My greyhound is NOT into Butterflies](https://news.puppy-snuggles.com/15541412/no-cute-video-here-folks-my-greyhound-is-not-into-butterflies)
+- [My son’s Corgi, Max, dies Sunday. He was 15yo. Wanted to share 2 photos and a portrait.](https://news.puppy-snuggles.com/15093952/my-sons-corgi-max-dies-sunday-he-was-15yo-wanted-to-share-2-photos-and-a-portrait)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
