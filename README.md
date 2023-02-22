@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My winnie boy passed away two days ago. I just wanted reddit to meet the handsome boy. Rest in peace old man](https://news.puppy-snuggles.com/19117564/my-winnie-boy-passed-away-two-days-ago-i-just-wanted-reddit-to-meet-the-handsome-boy-rest-in-peace-old-man)
-- [Dogs are nice people](https://news.puppy-snuggles.com/17533748/dogs-are-nice-people)
-- [The princess of the family, from killer to docile dog in one year.](https://news.puppy-snuggles.com/16218791/the-princess-of-the-family-from-killer-to-docile-dog-in-one-year)
-- [No cute video here, folks. My greyhound is NOT into Butterflies](https://news.puppy-snuggles.com/15541412/no-cute-video-here-folks-my-greyhound-is-not-into-butterflies)
-- [My son’s Corgi, Max, dies Sunday. He was 15yo. Wanted to share 2 photos and a portrait.](https://news.puppy-snuggles.com/15093952/my-sons-corgi-max-dies-sunday-he-was-15yo-wanted-to-share-2-photos-and-a-portrait)
+- [Steel is back again as a Puppurito. She loved it for hours.](https://news.puppy-snuggles.com/26856993/steel-is-back-again-as-a-puppurito-she-loved-it-for-hours)
+- [Smiling in stroller](https://news.puppy-snuggles.com/22264373/smiling-in-stroller)
+- [Portraits](https://news.puppy-snuggles.com/19563305/portraits)
+- [My best friend Nemo with his best friend, Dante](https://news.puppy-snuggles.com/19498521/my-best-friend-nemo-with-his-best-friend-dante)
+- [STRIKE A POSE. “Hey girl.”](https://news.puppy-snuggles.com/17247833/strike-a-pose-hey-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
