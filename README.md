@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Steel is back again as a Puppurito. She loved it for hours.](https://news.puppy-snuggles.com/26856993/steel-is-back-again-as-a-puppurito-she-loved-it-for-hours)
-- [Smiling in stroller](https://news.puppy-snuggles.com/22264373/smiling-in-stroller)
-- [Portraits](https://news.puppy-snuggles.com/19563305/portraits)
-- [My best friend Nemo with his best friend, Dante](https://news.puppy-snuggles.com/19498521/my-best-friend-nemo-with-his-best-friend-dante)
-- [STRIKE A POSE. “Hey girl.”](https://news.puppy-snuggles.com/17247833/strike-a-pose-hey-girl)
+- [Scout had his first bath/shower today](https://news.puppy-snuggles.com/24497782/scout-had-his-first-bathshower-today)
+- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
+- [Lets go for a little walk …](https://news.puppy-snuggles.com/19460936/lets-go-for-a-little-walk)
+- [Throw the ball hooman!](https://news.puppy-snuggles.com/19207137/throw-the-ball-hooman)
+- [Lost dog - Jim](https://news.puppy-snuggles.com/18593374/lost-dog-jim)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
