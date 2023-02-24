@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Scout had his first bath/shower today](https://news.puppy-snuggles.com/24497782/scout-had-his-first-bathshower-today)
-- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
-- [Lets go for a little walk …](https://news.puppy-snuggles.com/19460936/lets-go-for-a-little-walk)
-- [Throw the ball hooman!](https://news.puppy-snuggles.com/19207137/throw-the-ball-hooman)
-- [Lost dog - Jim](https://news.puppy-snuggles.com/18593374/lost-dog-jim)
+- [She’s still smiling despite the cone!](https://news.puppy-snuggles.com/24335904/shes-still-smiling-despite-the-cone)
+- [&lpar;OC&rpar; Tracy wishes everyone happy holidays!](https://news.puppy-snuggles.com/24151652/oc-tracy-wishes-everyone-happy-holidays)
+- [my birthday girl turned 9 today 🎈](https://news.puppy-snuggles.com/17617664/my-birthday-girl-turned-9-today)
+- [Help I genuinely do not know what to name her. I wanted to name her Luci but my mom said no because it sounds like the show I love Lucy, and in reality I want to name her after lucifer.](https://news.puppy-snuggles.com/16777541/help-i-genuinely-do-not-know-what-to-name-her-i-wanted-to-name-her-luci-but-my-mom-said-no-because-it-sounds-like-the-show-i-love-lucy-and-in-reality-i-want-to-name-her-after-lucifer)
+- [Had to say goodbye to our girl, Peyton, today. I wish I was able to know her longer.](https://news.puppy-snuggles.com/15514348/had-to-say-goodbye-to-our-girl-peyton-today-i-wish-i-was-able-to-know-her-longer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
