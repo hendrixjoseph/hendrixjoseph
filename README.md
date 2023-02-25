@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She’s still smiling despite the cone!](https://news.puppy-snuggles.com/24335904/shes-still-smiling-despite-the-cone)
-- [&lpar;OC&rpar; Tracy wishes everyone happy holidays!](https://news.puppy-snuggles.com/24151652/oc-tracy-wishes-everyone-happy-holidays)
-- [my birthday girl turned 9 today 🎈](https://news.puppy-snuggles.com/17617664/my-birthday-girl-turned-9-today)
-- [Help I genuinely do not know what to name her. I wanted to name her Luci but my mom said no because it sounds like the show I love Lucy, and in reality I want to name her after lucifer.](https://news.puppy-snuggles.com/16777541/help-i-genuinely-do-not-know-what-to-name-her-i-wanted-to-name-her-luci-but-my-mom-said-no-because-it-sounds-like-the-show-i-love-lucy-and-in-reality-i-want-to-name-her-after-lucifer)
-- [Had to say goodbye to our girl, Peyton, today. I wish I was able to know her longer.](https://news.puppy-snuggles.com/15514348/had-to-say-goodbye-to-our-girl-peyton-today-i-wish-i-was-able-to-know-her-longer)
+- [Is this a bad sitting position for my dog?](https://news.puppy-snuggles.com/27597922/is-this-a-bad-sitting-position-for-my-dog)
+- [Me and my boy :&rpar;](https://news.puppy-snuggles.com/27597921/me-and-my-boy)
+- [I can have an attention now? [OC]](https://news.puppy-snuggles.com/23566743/i-can-have-an-attention-now-oc)
+- [Affectionate, clever, loyal Dobermann](https://news.puppy-snuggles.com/22796706/affectionate-clever-loyal-dobermann)
+- [This is Leo. He passed last year and I&amp;#039;m just now able to talk about it. He brought us so much happiness. The world needs more of that right now, so I&amp;#039;ll be sharing a picture a day as a memorial and to spread some joy. Check the comments to learn more about him.](https://news.puppy-snuggles.com/21574973/this-is-leo-he-passed-last-year-and-im-just-now-able-to-talk-about-it-he-brought-us-so-much-happiness-the-world-needs-more-of-that-right-now-so-ill-be-sharing-a-picture-a-day-as-a-memorial-and-to-spread-some-joy-check-the-comments-to-learn-more-about-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
