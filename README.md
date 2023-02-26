@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is this a bad sitting position for my dog?](https://news.puppy-snuggles.com/27597922/is-this-a-bad-sitting-position-for-my-dog)
-- [Me and my boy :&rpar;](https://news.puppy-snuggles.com/27597921/me-and-my-boy)
-- [I can have an attention now? [OC]](https://news.puppy-snuggles.com/23566743/i-can-have-an-attention-now-oc)
-- [Affectionate, clever, loyal Dobermann](https://news.puppy-snuggles.com/22796706/affectionate-clever-loyal-dobermann)
-- [This is Leo. He passed last year and I&amp;#039;m just now able to talk about it. He brought us so much happiness. The world needs more of that right now, so I&amp;#039;ll be sharing a picture a day as a memorial and to spread some joy. Check the comments to learn more about him.](https://news.puppy-snuggles.com/21574973/this-is-leo-he-passed-last-year-and-im-just-now-able-to-talk-about-it-he-brought-us-so-much-happiness-the-world-needs-more-of-that-right-now-so-ill-be-sharing-a-picture-a-day-as-a-memorial-and-to-spread-some-joy-check-the-comments-to-learn-more-about-him)
+- [My grandparents new puppy. Bud!](https://news.puppy-snuggles.com/26519719/my-grandparents-new-puppy-bud)
+- [The Benefits of Dog Walking](https://news.puppy-snuggles.com/24787914/the-benefits-of-dog-walking)
+- [What kind of dog is my dog? I got him from a rescue group and they are not completely sure](https://news.puppy-snuggles.com/22227516/what-kind-of-dog-is-my-dog-i-got-him-from-a-rescue-group-and-they-are-not-completely-sure)
+- [When your dog wants to be outside but has FOMO](https://news.puppy-snuggles.com/17735570/when-your-dog-wants-to-be-outside-but-has-fomo)
+- [Just a kind reminder of how incredible dogs are 🐾](https://news.puppy-snuggles.com/15684577/just-a-kind-reminder-of-how-incredible-dogs-are)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
