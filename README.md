@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My grandparents new puppy. Bud!](https://news.puppy-snuggles.com/26519719/my-grandparents-new-puppy-bud)
-- [The Benefits of Dog Walking](https://news.puppy-snuggles.com/24787914/the-benefits-of-dog-walking)
-- [What kind of dog is my dog? I got him from a rescue group and they are not completely sure](https://news.puppy-snuggles.com/22227516/what-kind-of-dog-is-my-dog-i-got-him-from-a-rescue-group-and-they-are-not-completely-sure)
-- [When your dog wants to be outside but has FOMO](https://news.puppy-snuggles.com/17735570/when-your-dog-wants-to-be-outside-but-has-fomo)
-- [Just a kind reminder of how incredible dogs are 🐾](https://news.puppy-snuggles.com/15684577/just-a-kind-reminder-of-how-incredible-dogs-are)
+- [My new best friend, meet Gus!](https://news.puppy-snuggles.com/27732061/my-new-best-friend-meet-gus)
+- [Cinnamon is my best friend and soul protector. I am so honored to be his human.](https://news.puppy-snuggles.com/27732065/cinnamon-is-my-best-friend-and-soul-protector-i-am-so-honored-to-be-his-human)
+- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
+- [Before and after Christmas cut](https://news.puppy-snuggles.com/23823377/before-and-after-christmas-cut)
+- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
