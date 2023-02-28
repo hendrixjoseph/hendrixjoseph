@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new best friend, meet Gus!](https://news.puppy-snuggles.com/27732061/my-new-best-friend-meet-gus)
-- [Cinnamon is my best friend and soul protector. I am so honored to be his human.](https://news.puppy-snuggles.com/27732065/cinnamon-is-my-best-friend-and-soul-protector-i-am-so-honored-to-be-his-human)
-- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
-- [Before and after Christmas cut](https://news.puppy-snuggles.com/23823377/before-and-after-christmas-cut)
-- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
+- [Sunday Dumple](https://news.puppy-snuggles.com/27791113/sunday-dumple)
+- [I may not look perfect but I have a beautiful heart and soul .](https://news.puppy-snuggles.com/27791110/i-may-not-look-perfect-but-i-have-a-beautiful-heart-and-soul)
+- [this was the last day with him! how i miss he 😞😞😞 Any advice to overcome a loss like this?](https://news.puppy-snuggles.com/25395268/this-was-the-last-day-with-him-how-i-miss-he-any-advice-to-overcome-a-loss-like-this)
+- [Love his pearly white teeth](https://news.puppy-snuggles.com/24423705/love-his-pearly-white-teeth)
+- [Got this little pooch as a Christmas gift, Can I get some name suggestions?](https://news.puppy-snuggles.com/24335906/got-this-little-pooch-as-a-christmas-gift-can-i-get-some-name-suggestions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
