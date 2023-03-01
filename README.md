@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sunday Dumple](https://news.puppy-snuggles.com/27791113/sunday-dumple)
-- [I may not look perfect but I have a beautiful heart and soul .](https://news.puppy-snuggles.com/27791110/i-may-not-look-perfect-but-i-have-a-beautiful-heart-and-soul)
-- [this was the last day with him! how i miss he 😞😞😞 Any advice to overcome a loss like this?](https://news.puppy-snuggles.com/25395268/this-was-the-last-day-with-him-how-i-miss-he-any-advice-to-overcome-a-loss-like-this)
-- [Love his pearly white teeth](https://news.puppy-snuggles.com/24423705/love-his-pearly-white-teeth)
-- [Got this little pooch as a Christmas gift, Can I get some name suggestions?](https://news.puppy-snuggles.com/24335906/got-this-little-pooch-as-a-christmas-gift-can-i-get-some-name-suggestions)
+- [Bringing Home a New Puppy](https://news.puppy-snuggles.com/27876654/bringing-home-a-new-puppy)
+- [Can we all take and minute to appreciate this photo of my dog.](https://news.puppy-snuggles.com/18936622/can-we-all-take-and-minute-to-appreciate-this-photo-of-my-dog)
+- [This is my dog Toby, he passed away this morning. He represented something great, he came into my life the day my mom divorced my abusive stepdad who was allergic to dogs. Toby was sweet, fluffy and always full of life. Fly high buddy 🥲](https://news.puppy-snuggles.com/18225451/this-is-my-dog-toby-he-passed-away-this-morning-he-represented-something-great-he-came-into-my-life-the-day-my-mom-divorced-my-abusive-stepdad-who-was-allergic-to-dogs-toby-was-sweet-fluffy-and-always-full-of-life-fly-high-buddy)
+- [Baby&amp;#039;s Puppies They grow up Fast Up 10 weeks old!](https://news.puppy-snuggles.com/18171827/babys-puppies-they-grow-up-fast-up-10-weeks-old)
+- [I’d be completely lost without my kids… ❤️🐾](https://news.puppy-snuggles.com/17617665/id-be-completely-lost-without-my-kids)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
