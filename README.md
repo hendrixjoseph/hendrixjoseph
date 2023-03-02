@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bringing Home a New Puppy](https://news.puppy-snuggles.com/27876654/bringing-home-a-new-puppy)
-- [Can we all take and minute to appreciate this photo of my dog.](https://news.puppy-snuggles.com/18936622/can-we-all-take-and-minute-to-appreciate-this-photo-of-my-dog)
-- [This is my dog Toby, he passed away this morning. He represented something great, he came into my life the day my mom divorced my abusive stepdad who was allergic to dogs. Toby was sweet, fluffy and always full of life. Fly high buddy 🥲](https://news.puppy-snuggles.com/18225451/this-is-my-dog-toby-he-passed-away-this-morning-he-represented-something-great-he-came-into-my-life-the-day-my-mom-divorced-my-abusive-stepdad-who-was-allergic-to-dogs-toby-was-sweet-fluffy-and-always-full-of-life-fly-high-buddy)
-- [Baby&amp;#039;s Puppies They grow up Fast Up 10 weeks old!](https://news.puppy-snuggles.com/18171827/babys-puppies-they-grow-up-fast-up-10-weeks-old)
-- [I’d be completely lost without my kids… ❤️🐾](https://news.puppy-snuggles.com/17617665/id-be-completely-lost-without-my-kids)
+- [the most beautiful pic in my phone](https://news.puppy-snuggles.com/27597925/the-most-beautiful-pic-in-my-phone)
+- [14 Years Apart](https://news.puppy-snuggles.com/24737646/14-years-apart)
+- [more happy winnie!!](https://news.puppy-snuggles.com/24631608/more-happy-winnie)
+- [Said goodbye to my 15 year old baby girl tonight. Hardest thing I&amp;#039;ve had to do. Goodbye, Tchachke](https://news.puppy-snuggles.com/24478225/said-goodbye-to-my-15-year-old-baby-girl-tonight-hardest-thing-ive-had-to-do-goodbye-tchachke)
+- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
