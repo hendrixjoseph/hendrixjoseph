@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [the most beautiful pic in my phone](https://news.puppy-snuggles.com/27597925/the-most-beautiful-pic-in-my-phone)
-- [14 Years Apart](https://news.puppy-snuggles.com/24737646/14-years-apart)
-- [more happy winnie!!](https://news.puppy-snuggles.com/24631608/more-happy-winnie)
-- [Said goodbye to my 15 year old baby girl tonight. Hardest thing I&amp;#039;ve had to do. Goodbye, Tchachke](https://news.puppy-snuggles.com/24478225/said-goodbye-to-my-15-year-old-baby-girl-tonight-hardest-thing-ive-had-to-do-goodbye-tchachke)
-- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
+- [Litter of 7 all had blue eyes](https://news.puppy-snuggles.com/19498513/litter-of-7-all-had-blue-eyes)
+- [Let This Adorable Golden Retriever Family With 13 Puppies Cheer You Up](https://news.puppy-snuggles.com/19063152/let-this-adorable-golden-retriever-family-with-13-puppies-cheer-you-up)
+- [I made Igor a birthday hat and he went full derp. Many treats were needed to apologise to him](https://news.puppy-snuggles.com/18619961/i-made-igor-a-birthday-hat-and-he-went-full-derp-many-treats-were-needed-to-apologise-to-him)
+- [My boy’s happy, snow or sun](https://news.puppy-snuggles.com/17597508/my-boys-happy-snow-or-sun)
+- [Mr Rollo](https://news.puppy-snuggles.com/17364663/mr-rollo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
