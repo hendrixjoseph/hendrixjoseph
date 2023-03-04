@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Litter of 7 all had blue eyes](https://news.puppy-snuggles.com/19498513/litter-of-7-all-had-blue-eyes)
-- [Let This Adorable Golden Retriever Family With 13 Puppies Cheer You Up](https://news.puppy-snuggles.com/19063152/let-this-adorable-golden-retriever-family-with-13-puppies-cheer-you-up)
-- [I made Igor a birthday hat and he went full derp. Many treats were needed to apologise to him](https://news.puppy-snuggles.com/18619961/i-made-igor-a-birthday-hat-and-he-went-full-derp-many-treats-were-needed-to-apologise-to-him)
-- [My boy’s happy, snow or sun](https://news.puppy-snuggles.com/17597508/my-boys-happy-snow-or-sun)
-- [Mr Rollo](https://news.puppy-snuggles.com/17364663/mr-rollo)
+- [Post dog park smiles](https://news.puppy-snuggles.com/27848680/post-dog-park-smiles)
+- [Meet Paningning, The Puppy With Unusual Sleeping Habit That Is Cute Beyond Words](https://news.puppy-snuggles.com/22522778/meet-paningning-the-puppy-with-unusual-sleeping-habit-that-is-cute-beyond-words)
+- [Personal space? I haven&amp;#039;t heard...](https://news.puppy-snuggles.com/21607048/personal-space-i-havent-heard)
+- [My Hati has learned motherhood.](https://news.puppy-snuggles.com/21403312/my-hati-has-learned-motherhood)
+- [is very cute](https://news.puppy-snuggles.com/20222654/is-very-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
