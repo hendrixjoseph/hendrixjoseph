@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on These interview questions are getting out of hand.](https://www.reddit.com/r/recruitinghell/comments/11iby7b/these_interview_questions_are_getting_out_of_hand/jayfchc/)
+- [/u/joehx on Are both 401k and Roth contributions supposed to be taken after tax is deducted from your paycheck?](https://www.reddit.com/r/personalfinance/comments/11i8pz1/are_both_401k_and_roth_contributions_supposed_to/jayevcv/)
+- [/u/joehx on Are both 401k and Roth contributions supposed to be taken after tax is deducted from your paycheck?](https://www.reddit.com/r/personalfinance/comments/11i8pz1/are_both_401k_and_roth_contributions_supposed_to/jax0rrr/)
+- [/u/joehx on LPT - Request: How do I remember names of people I’ve met? I forget the names very often.](https://www.reddit.com/r/LifeProTips/comments/11hyl1a/lpt_request_how_do_i_remember_names_of_people_ive/jawur05/)
 - [/u/joehx on What is your FIRE amount? How did you calculate it? please mention your country as well!](https://www.reddit.com/r/financialindependence/comments/7xq1z0/what_is_your_fire_amount_how_did_you_calculate_it/ja8wwfe/)
-- [/u/joehx on What is your FIRE amount? How did you calculate it? please mention your country as well!](https://www.reddit.com/r/financialindependence/comments/7xq1z0/what_is_your_fire_amount_how_did_you_calculate_it/ja7zddz/)
-- [/u/joehx on What is your FIRE amount? How did you calculate it? please mention your country as well!](https://www.reddit.com/r/financialindependence/comments/7xq1z0/what_is_your_fire_amount_how_did_you_calculate_it/ja7t6zc/)
-- [/u/joehx on A hamburger is really made from beef - not ham, &amp; a cheeseburger is mostly meat &amp; bread before cheese. What other foods are named strangely?](https://www.reddit.com/r/AskReddit/comments/115twht/a_hamburger_is_really_made_from_beef_not_ham_a/j93f9o9/)
-- [/u/joehx on Who was the best American president?](https://www.reddit.com/r/AskReddit/comments/115tg6m/who_was_the_best_american_president/j93easj/)
 <!-- REDDIT:END -->
