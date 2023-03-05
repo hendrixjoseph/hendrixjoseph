@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post dog park smiles](https://news.puppy-snuggles.com/27848680/post-dog-park-smiles)
-- [Meet Paningning, The Puppy With Unusual Sleeping Habit That Is Cute Beyond Words](https://news.puppy-snuggles.com/22522778/meet-paningning-the-puppy-with-unusual-sleeping-habit-that-is-cute-beyond-words)
-- [Personal space? I haven&amp;#039;t heard...](https://news.puppy-snuggles.com/21607048/personal-space-i-havent-heard)
-- [My Hati has learned motherhood.](https://news.puppy-snuggles.com/21403312/my-hati-has-learned-motherhood)
-- [is very cute](https://news.puppy-snuggles.com/20222654/is-very-cute)
+- [This little fella came into our café today.](https://news.puppy-snuggles.com/28111746/this-little-fella-came-into-our-cafe-today)
+- [Just got this lil pupper!!! ❤️](https://news.puppy-snuggles.com/17135822/just-got-this-lil-pupper)
+- [Tired puppy does a smile](https://news.puppy-snuggles.com/15698700/tired-puppy-does-a-smile)
+- [Baby Yoda?](https://news.puppy-snuggles.com/15522528/baby-yoda)
+- [Welcome to the family Kody!](https://news.puppy-snuggles.com/14971481/welcome-to-the-family-kody)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
