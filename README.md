@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This little fella came into our café today.](https://news.puppy-snuggles.com/28111746/this-little-fella-came-into-our-cafe-today)
-- [Just got this lil pupper!!! ❤️](https://news.puppy-snuggles.com/17135822/just-got-this-lil-pupper)
-- [Tired puppy does a smile](https://news.puppy-snuggles.com/15698700/tired-puppy-does-a-smile)
-- [Baby Yoda?](https://news.puppy-snuggles.com/15522528/baby-yoda)
-- [Welcome to the family Kody!](https://news.puppy-snuggles.com/14971481/welcome-to-the-family-kody)
+- [Does she look like an American Staffordshire &lpar;amstaff&rpar; to you? She is about 5 months and has been taken from a abusive family &lpar;they failed to feed her&rpar;. Probably a mix.](https://news.puppy-snuggles.com/28229476/does-she-look-like-an-american-staffordshire-amstaff-to-you-she-is-about-5-months-and-has-been-taken-from-a-abusive-family-they-failed-to-feed-her-probably-a-mix)
+- [Naples woman, 45, charged with animal cruelty after leaving dog to die in car, CCSO says](https://news.puppy-snuggles.com/28217403/naples-woman-45-charged-with-animal-cruelty-after-leaving-dog-to-die-in-car-ccso-says)
+- [He doesn&amp;#039;t even know how beautiful he is](https://news.puppy-snuggles.com/28229475/he-doesnt-even-know-how-beautiful-he-is)
+- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
+- [Bringing Home a New Puppy](https://news.puppy-snuggles.com/27876654/bringing-home-a-new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
