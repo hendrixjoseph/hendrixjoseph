@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Well he’s gone but not forgotten. Dallas &lpar;5/5/10-3/5/23&rpar;. I love you buddy!](https://news.puppy-snuggles.com/28276746/well-hes-gone-but-not-forgotten-dallas-5510-3523-i-love-you-buddy)
-- [Wishing I had a time machine... I&amp;#039;m going to miss you forever Simba. Please give your dogs a big hug for me, you never know when it&amp;#039;ll all turn upside down](https://news.puppy-snuggles.com/28111743/wishing-i-had-a-time-machine-im-going-to-miss-you-forever-simba-please-give-your-dogs-a-big-hug-for-me-you-never-know-when-itll-all-turn-upside-down)
-- [Lucy posing for some Christmas shots](https://news.puppy-snuggles.com/23644209/lucy-posing-for-some-christmas-shots)
-- [My dog helping remove carpets!! Please upvote me, will return!](https://news.puppy-snuggles.com/23284748/my-dog-helping-remove-carpets-please-upvote-me-will-return)
-- [My tribute to dogs and their loving owners. &amp;#039;Whatever the weather&amp;#039; charcoal art by me.](https://news.puppy-snuggles.com/23223410/my-tribute-to-dogs-and-their-loving-owners-whatever-the-weather-charcoal-art-by-me)
+- [With the adoption of six orphaned puppies, rescued dog super mom feeds 17 babies](https://news.puppy-snuggles.com/23605480/with-the-adoption-of-six-orphaned-puppies-rescued-dog-super-mom-feeds-17-babies)
+- [Throwback to when I first got him! Look how happy he was to go to a Forever home!! 💕](https://news.puppy-snuggles.com/23581719/throwback-to-when-i-first-got-him-look-how-happy-he-was-to-go-to-a-forever-home)
+- [We have a 110lb bed bug. Bought a king size so we can all have room. Still gets &amp;amp;quot;snuggled&amp;amp;quot; off the bed](https://news.puppy-snuggles.com/23251503/we-have-a-110lb-bed-bug-bought-a-king-size-so-we-can-all-have-room-still-gets-quotsnuggledquot-off-the-bed)
+- [My dog mildly upset with me after his bath](https://news.puppy-snuggles.com/23085388/my-dog-mildly-upset-with-me-after-his-bath)
+- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
