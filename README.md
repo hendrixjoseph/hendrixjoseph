@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [With the adoption of six orphaned puppies, rescued dog super mom feeds 17 babies](https://news.puppy-snuggles.com/23605480/with-the-adoption-of-six-orphaned-puppies-rescued-dog-super-mom-feeds-17-babies)
-- [Throwback to when I first got him! Look how happy he was to go to a Forever home!! 💕](https://news.puppy-snuggles.com/23581719/throwback-to-when-i-first-got-him-look-how-happy-he-was-to-go-to-a-forever-home)
-- [We have a 110lb bed bug. Bought a king size so we can all have room. Still gets &amp;amp;quot;snuggled&amp;amp;quot; off the bed](https://news.puppy-snuggles.com/23251503/we-have-a-110lb-bed-bug-bought-a-king-size-so-we-can-all-have-room-still-gets-quotsnuggledquot-off-the-bed)
-- [My dog mildly upset with me after his bath](https://news.puppy-snuggles.com/23085388/my-dog-mildly-upset-with-me-after-his-bath)
-- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
+- [Hail Winnie, full of grace 🙏](https://news.puppy-snuggles.com/28453491/hail-winnie-full-of-grace)
+- [This is a picture that my mum took of our dog rex.](https://news.puppy-snuggles.com/28453493/this-is-a-picture-that-my-mum-took-of-our-dog-rex)
+- [My wife and I just adopted this girl &lpar;Lucy&rpar; yesterday. I know she&amp;#039;s mixed and part shepherd, but does anyone have a guess as to what other part she might be?](https://news.puppy-snuggles.com/28453494/my-wife-and-i-just-adopted-this-girl-lucy-yesterday-i-know-shes-mixed-and-part-shepherd-but-does-anyone-have-a-guess-as-to-what-other-part-she-might-be)
+- [My happy and blind pup, Fannie. She loves looking out her favorite window!](https://news.puppy-snuggles.com/28453492/my-happy-and-blind-pup-fannie-she-loves-looking-out-her-favorite-window)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
