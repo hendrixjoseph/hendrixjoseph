@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hail Winnie, full of grace 🙏](https://news.puppy-snuggles.com/28453491/hail-winnie-full-of-grace)
-- [This is a picture that my mum took of our dog rex.](https://news.puppy-snuggles.com/28453493/this-is-a-picture-that-my-mum-took-of-our-dog-rex)
-- [My wife and I just adopted this girl &lpar;Lucy&rpar; yesterday. I know she&amp;#039;s mixed and part shepherd, but does anyone have a guess as to what other part she might be?](https://news.puppy-snuggles.com/28453494/my-wife-and-i-just-adopted-this-girl-lucy-yesterday-i-know-shes-mixed-and-part-shepherd-but-does-anyone-have-a-guess-as-to-what-other-part-she-might-be)
-- [My happy and blind pup, Fannie. She loves looking out her favorite window!](https://news.puppy-snuggles.com/28453492/my-happy-and-blind-pup-fannie-she-loves-looking-out-her-favorite-window)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [The newest member of our family!](https://news.puppy-snuggles.com/20013866/the-newest-member-of-our-family)
+- [My baby girl toypoodel Dafne :&rpar;](https://news.puppy-snuggles.com/19723618/my-baby-girl-toypoodel-dafne)
+- [The way my dog sleeps #xlbully](https://news.puppy-snuggles.com/18491906/the-way-my-dog-sleeps-xlbully)
+- [Cute guy](https://news.puppy-snuggles.com/18110355/cute-guy)
+- [Every single time I walk in the door](https://news.puppy-snuggles.com/17309808/every-single-time-i-walk-in-the-door)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
