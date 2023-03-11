@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The newest member of our family!](https://news.puppy-snuggles.com/20013866/the-newest-member-of-our-family)
-- [My baby girl toypoodel Dafne :&rpar;](https://news.puppy-snuggles.com/19723618/my-baby-girl-toypoodel-dafne)
-- [The way my dog sleeps #xlbully](https://news.puppy-snuggles.com/18491906/the-way-my-dog-sleeps-xlbully)
-- [Cute guy](https://news.puppy-snuggles.com/18110355/cute-guy)
-- [Every single time I walk in the door](https://news.puppy-snuggles.com/17309808/every-single-time-i-walk-in-the-door)
+- [My Bestfriend died today after 18 Years of bringing happiness in my life.](https://news.puppy-snuggles.com/28590720/my-bestfriend-died-today-after-18-years-of-bringing-happiness-in-my-life)
+- [Polly the mudi puppy](https://news.puppy-snuggles.com/28590718/polly-the-mudi-puppy)
+- [My happy and blind pup, Fannie. She loves looking out her favorite window!](https://news.puppy-snuggles.com/28453492/my-happy-and-blind-pup-fannie-she-loves-looking-out-her-favorite-window)
+- [Created artwork to help get this pup adopted.](https://news.puppy-snuggles.com/24291267/created-artwork-to-help-get-this-pup-adopted)
+- [Rescue is simply this | Then &amp;amp;amp; Now](https://news.puppy-snuggles.com/24127038/rescue-is-simply-this-then-amp-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
