@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Bestfriend died today after 18 Years of bringing happiness in my life.](https://news.puppy-snuggles.com/28590720/my-bestfriend-died-today-after-18-years-of-bringing-happiness-in-my-life)
-- [Polly the mudi puppy](https://news.puppy-snuggles.com/28590718/polly-the-mudi-puppy)
-- [My happy and blind pup, Fannie. She loves looking out her favorite window!](https://news.puppy-snuggles.com/28453492/my-happy-and-blind-pup-fannie-she-loves-looking-out-her-favorite-window)
-- [Created artwork to help get this pup adopted.](https://news.puppy-snuggles.com/24291267/created-artwork-to-help-get-this-pup-adopted)
-- [Rescue is simply this | Then &amp;amp;amp; Now](https://news.puppy-snuggles.com/24127038/rescue-is-simply-this-then-amp-now)
+- [Need a break after a hard day](https://news.puppy-snuggles.com/21730977/need-a-break-after-a-hard-day)
+- [Had a thunderstorm and she was super scared. Still had a smile though](https://news.puppy-snuggles.com/19415365/had-a-thunderstorm-and-she-was-super-scared-still-had-a-smile-though)
+- [Ronnie is off on a Ferry today. He&amp;#039;s a bit nervous but he knows that treats lie on the other end of the journey!](https://news.puppy-snuggles.com/18679437/ronnie-is-off-on-a-ferry-today-hes-a-bit-nervous-but-he-knows-that-treats-lie-on-the-other-end-of-the-journey)
+- [Squirrel watching](https://news.puppy-snuggles.com/18294313/squirrel-watching)
+- [My best friend is a snog](https://news.puppy-snuggles.com/17735575/my-best-friend-is-a-snog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
