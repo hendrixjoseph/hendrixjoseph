@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on filing taxes question](https://www.reddit.com/r/personalfinance/comments/11ps1a1/filing_taxes_question/jbzimnc/)
 - [/u/joehx on YouTube Stops Playing When I Switch Tabs](https://www.reddit.com/r/brave_browser/comments/11nxlfz/youtube_stops_playing_when_i_switch_tabs/jbpkpn1/)
 - [/u/joehx on These interview questions are getting out of hand.](https://www.reddit.com/r/recruitinghell/comments/11iby7b/these_interview_questions_are_getting_out_of_hand/jayfchc/)
 - [/u/joehx on Are both 401k and Roth contributions supposed to be taken after tax is deducted from your paycheck?](https://www.reddit.com/r/personalfinance/comments/11i8pz1/are_both_401k_and_roth_contributions_supposed_to/jayevcv/)
 - [/u/joehx on Are both 401k and Roth contributions supposed to be taken after tax is deducted from your paycheck?](https://www.reddit.com/r/personalfinance/comments/11i8pz1/are_both_401k_and_roth_contributions_supposed_to/jax0rrr/)
-- [/u/joehx on LPT - Request: How do I remember names of people I’ve met? I forget the names very often.](https://www.reddit.com/r/LifeProTips/comments/11hyl1a/lpt_request_how_do_i_remember_names_of_people_ive/jawur05/)
 <!-- REDDIT:END -->
