@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Need a break after a hard day](https://news.puppy-snuggles.com/21730977/need-a-break-after-a-hard-day)
-- [Had a thunderstorm and she was super scared. Still had a smile though](https://news.puppy-snuggles.com/19415365/had-a-thunderstorm-and-she-was-super-scared-still-had-a-smile-though)
-- [Ronnie is off on a Ferry today. He&amp;#039;s a bit nervous but he knows that treats lie on the other end of the journey!](https://news.puppy-snuggles.com/18679437/ronnie-is-off-on-a-ferry-today-hes-a-bit-nervous-but-he-knows-that-treats-lie-on-the-other-end-of-the-journey)
-- [Squirrel watching](https://news.puppy-snuggles.com/18294313/squirrel-watching)
-- [My best friend is a snog](https://news.puppy-snuggles.com/17735575/my-best-friend-is-a-snog)
+- [I adopted a 10 y/o retired sled dog and it was the best decision I ever made 💙](https://news.puppy-snuggles.com/28740794/i-adopted-a-10-yo-retired-sled-dog-and-it-was-the-best-decision-i-ever-made)
+- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
+- [&amp;amp;quot;The Stray&amp;amp;quot;](https://news.puppy-snuggles.com/24619601/quotthe-strayquot)
+- [Rescue is simply this | Then &amp;amp;amp; Now](https://news.puppy-snuggles.com/24127038/rescue-is-simply-this-then-amp-now)
+- [Brough home my foster dog, Capri :&rpar;](https://news.puppy-snuggles.com/23944673/brough-home-my-foster-dog-capri)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
