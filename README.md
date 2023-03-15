@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I adopted a 10 y/o retired sled dog and it was the best decision I ever made 💙](https://news.puppy-snuggles.com/28740794/i-adopted-a-10-yo-retired-sled-dog-and-it-was-the-best-decision-i-ever-made)
-- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
-- [&amp;amp;quot;The Stray&amp;amp;quot;](https://news.puppy-snuggles.com/24619601/quotthe-strayquot)
-- [Rescue is simply this | Then &amp;amp;amp; Now](https://news.puppy-snuggles.com/24127038/rescue-is-simply-this-then-amp-now)
-- [Brough home my foster dog, Capri :&rpar;](https://news.puppy-snuggles.com/23944673/brough-home-my-foster-dog-capri)
+- [Charley you would have never left my side, but I hope you can leave in peace tommorow. I&amp;#039;m going to miss you so bad but it&amp;#039;s for the better to let you go.](https://news.puppy-snuggles.com/27061923/charley-you-would-have-never-left-my-side-but-i-hope-you-can-leave-in-peace-tommorow-im-going-to-miss-you-so-bad-but-its-for-the-better-to-let-you-go)
+- [Where in the World is the Cat?](https://news.puppy-snuggles.com/24414456/where-in-the-world-is-the-cat)
+- [yoga mat has its perfect use, yes](https://news.puppy-snuggles.com/24252178/yoga-mat-has-its-perfect-use-yes)
+- [My three puppies !!They are so playfull and so tiny](https://news.puppy-snuggles.com/23437863/my-three-puppies-they-are-so-playfull-and-so-tiny)
+- [so hard weekend](https://news.puppy-snuggles.com/23242001/so-hard-weekend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
