@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [after the walk. very tired=&rpar;](https://news.puppy-snuggles.com/28961696/after-the-walk-very-tired)
-- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
-- [Recently discovered this sub &amp;amp;amp; my life has become better since. Want to pass on the joy… here is my smiling boy](https://news.puppy-snuggles.com/26487769/recently-discovered-this-sub-amp-my-life-has-become-better-since-want-to-pass-on-the-joy-here-is-my-smiling-boy)
-- [cuty](https://news.puppy-snuggles.com/26310090/cuty)
-- [Our sweet boy Koda 🖤🤍](https://news.puppy-snuggles.com/22892647/our-sweet-boy-koda)
+- [How should I name him?](https://news.puppy-snuggles.com/29026082/how-should-i-name-him)
+- [Happy pupper](https://news.puppy-snuggles.com/29026083/happy-pupper)
+- [Chonk is very tired after a walk](https://news.puppy-snuggles.com/29026081/chonk-is-very-tired-after-a-walk)
+- [he looks at me like this everytime I scold him for doing something wrong &lpar;this time he pooped on the stairs&rpar; .](https://news.puppy-snuggles.com/29026080/he-looks-at-me-like-this-everytime-i-scold-him-for-doing-something-wrong-this-time-he-pooped-on-the-stairs)
+- [my new girl...lily](https://news.puppy-snuggles.com/28396028/my-new-girllily)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
