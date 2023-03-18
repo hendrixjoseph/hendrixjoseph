@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How should I name him?](https://news.puppy-snuggles.com/29026082/how-should-i-name-him)
-- [Happy pupper](https://news.puppy-snuggles.com/29026083/happy-pupper)
-- [Chonk is very tired after a walk](https://news.puppy-snuggles.com/29026081/chonk-is-very-tired-after-a-walk)
-- [he looks at me like this everytime I scold him for doing something wrong &lpar;this time he pooped on the stairs&rpar; .](https://news.puppy-snuggles.com/29026080/he-looks-at-me-like-this-everytime-i-scold-him-for-doing-something-wrong-this-time-he-pooped-on-the-stairs)
-- [my new girl...lily](https://news.puppy-snuggles.com/28396028/my-new-girllily)
+- [Found this little guy whilst running some errands! I am a foster for a rescue and currently have four kittens and a mama with me, so he got a new foster home. But at least now he’s guaranteed a lovely life with our rescue!!](https://news.puppy-snuggles.com/18992222/found-this-little-guy-whilst-running-some-errands-i-am-a-foster-for-a-rescue-and-currently-have-four-kittens-and-a-mama-with-me-so-he-got-a-new-foster-home-but-at-least-now-hes-guaranteed-a-lovely-life-with-our-rescue)
+- [she was dumped in my scrap iron trailer last September, she has grown four times her original size.](https://news.puppy-snuggles.com/18745058/she-was-dumped-in-my-scrap-iron-trailer-last-september-she-has-grown-four-times-her-original-size)
+- [Goals](https://news.puppy-snuggles.com/18601936/goals)
+- [I returned back to my apartment, greeted with the most &amp;amp;quot;and, where have you been?&amp;amp;quot; stance](https://news.puppy-snuggles.com/17597500/i-returned-back-to-my-apartment-greeted-with-the-most-quotand-where-have-you-beenquot-stance)
+- [It was all farmland before that darn factory came to town.](https://news.puppy-snuggles.com/17483211/it-was-all-farmland-before-that-darn-factory-came-to-town)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
