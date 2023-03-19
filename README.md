@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Found this little guy whilst running some errands! I am a foster for a rescue and currently have four kittens and a mama with me, so he got a new foster home. But at least now he’s guaranteed a lovely life with our rescue!!](https://news.puppy-snuggles.com/18992222/found-this-little-guy-whilst-running-some-errands-i-am-a-foster-for-a-rescue-and-currently-have-four-kittens-and-a-mama-with-me-so-he-got-a-new-foster-home-but-at-least-now-hes-guaranteed-a-lovely-life-with-our-rescue)
-- [she was dumped in my scrap iron trailer last September, she has grown four times her original size.](https://news.puppy-snuggles.com/18745058/she-was-dumped-in-my-scrap-iron-trailer-last-september-she-has-grown-four-times-her-original-size)
-- [Goals](https://news.puppy-snuggles.com/18601936/goals)
-- [I returned back to my apartment, greeted with the most &amp;amp;quot;and, where have you been?&amp;amp;quot; stance](https://news.puppy-snuggles.com/17597500/i-returned-back-to-my-apartment-greeted-with-the-most-quotand-where-have-you-beenquot-stance)
-- [It was all farmland before that darn factory came to town.](https://news.puppy-snuggles.com/17483211/it-was-all-farmland-before-that-darn-factory-came-to-town)
+- [Teefs](https://news.puppy-snuggles.com/29158363/teefs)
+- [The ugliest dog I have ever seen](https://news.puppy-snuggles.com/27395276/the-ugliest-dog-i-have-ever-seen)
+- [Good bye my brother. You were truly the bestest boy until the end :&amp;#039;&lpar;](https://news.puppy-snuggles.com/24243031/good-bye-my-brother-you-were-truly-the-bestest-boy-until-the-end)
+- [Happy face...serious face](https://news.puppy-snuggles.com/21895011/happy-faceserious-face)
+- [No smiles this morning... just a dramatic baby saint giving me the side eye because I have to leave for work](https://news.puppy-snuggles.com/19260268/no-smiles-this-morning-just-a-dramatic-baby-saint-giving-me-the-side-eye-because-i-have-to-leave-for-work)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
