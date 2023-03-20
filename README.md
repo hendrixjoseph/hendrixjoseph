@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Teefs](https://news.puppy-snuggles.com/29158363/teefs)
-- [The ugliest dog I have ever seen](https://news.puppy-snuggles.com/27395276/the-ugliest-dog-i-have-ever-seen)
-- [Good bye my brother. You were truly the bestest boy until the end :&amp;#039;&lpar;](https://news.puppy-snuggles.com/24243031/good-bye-my-brother-you-were-truly-the-bestest-boy-until-the-end)
-- [Happy face...serious face](https://news.puppy-snuggles.com/21895011/happy-faceserious-face)
-- [No smiles this morning... just a dramatic baby saint giving me the side eye because I have to leave for work](https://news.puppy-snuggles.com/19260268/no-smiles-this-morning-just-a-dramatic-baby-saint-giving-me-the-side-eye-because-i-have-to-leave-for-work)
+- [1st Birthday Smile by George](https://news.puppy-snuggles.com/29242823/1st-birthday-smile-by-george)
+- [This is a robbery! Hand over your sticks and no one gets hurt.](https://news.puppy-snuggles.com/29242821/this-is-a-robbery-hand-over-your-sticks-and-no-one-gets-hurt)
+- [Just took our little girl on her last walk. You were my little princess.](https://news.puppy-snuggles.com/29242819/just-took-our-little-girl-on-her-last-walk-you-were-my-little-princess)
+- [It was a little too sunny, but Hugo still smiles](https://news.puppy-snuggles.com/29242825/it-was-a-little-too-sunny-but-hugo-still-smiles)
+- [smiles from the big guys while the small man remains stoic](https://news.puppy-snuggles.com/29221296/smiles-from-the-big-guys-while-the-small-man-remains-stoic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
