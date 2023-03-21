@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [1st Birthday Smile by George](https://news.puppy-snuggles.com/29242823/1st-birthday-smile-by-george)
-- [This is a robbery! Hand over your sticks and no one gets hurt.](https://news.puppy-snuggles.com/29242821/this-is-a-robbery-hand-over-your-sticks-and-no-one-gets-hurt)
-- [Just took our little girl on her last walk. You were my little princess.](https://news.puppy-snuggles.com/29242819/just-took-our-little-girl-on-her-last-walk-you-were-my-little-princess)
-- [It was a little too sunny, but Hugo still smiles](https://news.puppy-snuggles.com/29242825/it-was-a-little-too-sunny-but-hugo-still-smiles)
-- [smiles from the big guys while the small man remains stoic](https://news.puppy-snuggles.com/29221296/smiles-from-the-big-guys-while-the-small-man-remains-stoic)
+- [How high are you? &amp;amp;quot;Yes&amp;amp;quot;](https://news.puppy-snuggles.com/29307153/how-high-are-you-quotyesquot)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/29307149/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [Just got back from a week long vacation — we’re happy to see one another.](https://news.puppy-snuggles.com/29307146/just-got-back-from-a-week-long-vacation-were-happy-to-see-one-another)
+- [Ollie was naughty so he needed to be put in timeout.](https://news.puppy-snuggles.com/29307151/ollie-was-naughty-so-he-needed-to-be-put-in-timeout)
+- [I said goodbye to Dempsey after nearly 10 years](https://news.puppy-snuggles.com/29307145/i-said-goodbye-to-dempsey-after-nearly-10-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
