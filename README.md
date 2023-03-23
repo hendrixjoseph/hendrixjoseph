@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [soft smile from my old boi](https://news.puppy-snuggles.com/29370808/soft-smile-from-my-old-boi)
-- [She&amp;#039;s having deep thoughts. My thought: I bet some people on Reddit would like to see her face.](https://news.puppy-snuggles.com/28899018/shes-having-deep-thoughts-my-thought-i-bet-some-people-on-reddit-would-like-to-see-her-face)
-- [Piled all on my mum &lpar;she asked to be taken out so I improvised&rpar;](https://news.puppy-snuggles.com/24442432/piled-all-on-my-mum-she-asked-to-be-taken-out-so-i-improvised)
-- [Awesome group picture, but someone has a dark side :&rpar;](https://news.puppy-snuggles.com/23122456/awesome-group-picture-but-someone-has-a-dark-side)
-- [Excited puppy](https://news.puppy-snuggles.com/22951094/excited-puppy)
+- [Welcome Taja, a 2 year old beauty! Took her home a nearly two weeks ago now](https://news.puppy-snuggles.com/24138758/welcome-taja-a-2-year-old-beauty-took-her-home-a-nearly-two-weeks-ago-now)
+- [happy birthday luna!! your six now! :&rpar;](https://news.puppy-snuggles.com/23386200/happy-birthday-luna-your-six-now)
+- [Does anyone know what kind of tumor this is and is it fatal??](https://news.puppy-snuggles.com/23164538/does-anyone-know-what-kind-of-tumor-this-is-and-is-it-fatal)
+- [Poor pooch! Swollen right eye!](https://news.puppy-snuggles.com/23013861/poor-pooch-swollen-right-eye)
+- [My big boy has big puppy dog eyes](https://news.puppy-snuggles.com/22951090/my-big-boy-has-big-puppy-dog-eyes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
