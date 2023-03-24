@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Welcome Taja, a 2 year old beauty! Took her home a nearly two weeks ago now](https://news.puppy-snuggles.com/24138758/welcome-taja-a-2-year-old-beauty-took-her-home-a-nearly-two-weeks-ago-now)
-- [happy birthday luna!! your six now! :&rpar;](https://news.puppy-snuggles.com/23386200/happy-birthday-luna-your-six-now)
-- [Does anyone know what kind of tumor this is and is it fatal??](https://news.puppy-snuggles.com/23164538/does-anyone-know-what-kind-of-tumor-this-is-and-is-it-fatal)
-- [Poor pooch! Swollen right eye!](https://news.puppy-snuggles.com/23013861/poor-pooch-swollen-right-eye)
-- [My big boy has big puppy dog eyes](https://news.puppy-snuggles.com/22951090/my-big-boy-has-big-puppy-dog-eyes)
+- [Finnegan has some reading to do, Finn loves babies and now he’s getting his own!!](https://news.puppy-snuggles.com/24201168/finnegan-has-some-reading-to-do-finn-loves-babies-and-now-hes-getting-his-own)
+- [My family always comments on why the dogs only follow me - it’s because I make the dogs eggs every morning. They want eggs.](https://news.puppy-snuggles.com/23214209/my-family-always-comments-on-why-the-dogs-only-follow-me-its-because-i-make-the-dogs-eggs-every-morning-they-want-eggs)
+- [Breya’s almost out of puppyhood :’&rpar;](https://news.puppy-snuggles.com/21962519/breyas-almost-out-of-puppyhood)
+- [Dang! you really feel hot?](https://news.puppy-snuggles.com/21946720/dang-you-really-feel-hot)
+- [Feeling happy might pee on your floor later idk](https://news.puppy-snuggles.com/18313076/feeling-happy-might-pee-on-your-floor-later-idk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
