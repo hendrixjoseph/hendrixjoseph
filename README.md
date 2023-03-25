@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Finnegan has some reading to do, Finn loves babies and now he’s getting his own!!](https://news.puppy-snuggles.com/24201168/finnegan-has-some-reading-to-do-finn-loves-babies-and-now-hes-getting-his-own)
-- [My family always comments on why the dogs only follow me - it’s because I make the dogs eggs every morning. They want eggs.](https://news.puppy-snuggles.com/23214209/my-family-always-comments-on-why-the-dogs-only-follow-me-its-because-i-make-the-dogs-eggs-every-morning-they-want-eggs)
-- [Breya’s almost out of puppyhood :’&rpar;](https://news.puppy-snuggles.com/21962519/breyas-almost-out-of-puppyhood)
-- [Dang! you really feel hot?](https://news.puppy-snuggles.com/21946720/dang-you-really-feel-hot)
-- [Feeling happy might pee on your floor later idk](https://news.puppy-snuggles.com/18313076/feeling-happy-might-pee-on-your-floor-later-idk)
+- [Just showing off my best friend, had to put him to sleep after 13 years together.](https://news.puppy-snuggles.com/24117303/just-showing-off-my-best-friend-had-to-put-him-to-sleep-after-13-years-together)
+- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
+- [Zelda my happy doggo gets so happy whenever we visit my in laws](https://news.puppy-snuggles.com/22264372/zelda-my-happy-doggo-gets-so-happy-whenever-we-visit-my-in-laws)
+- [I love his smile 😍](https://news.puppy-snuggles.com/19082146/i-love-his-smile)
+- [So happy to share kiki&amp;#039;s smile here.](https://news.puppy-snuggles.com/15914279/so-happy-to-share-kikis-smile-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
