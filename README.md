@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just showing off my best friend, had to put him to sleep after 13 years together.](https://news.puppy-snuggles.com/24117303/just-showing-off-my-best-friend-had-to-put-him-to-sleep-after-13-years-together)
-- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
-- [Zelda my happy doggo gets so happy whenever we visit my in laws](https://news.puppy-snuggles.com/22264372/zelda-my-happy-doggo-gets-so-happy-whenever-we-visit-my-in-laws)
-- [I love his smile 😍](https://news.puppy-snuggles.com/19082146/i-love-his-smile)
-- [So happy to share kiki&amp;#039;s smile here.](https://news.puppy-snuggles.com/15914279/so-happy-to-share-kikis-smile-here)
+- [‘Worst death you can imagine’: Dog owners urged vaccinate pet for deadly virus](https://news.puppy-snuggles.com/29666352/worst-death-you-can-imagine-dog-owners-urged-vaccinate-pet-for-deadly-virus)
+- [Do you still bring your old dogs on adventures?](https://news.puppy-snuggles.com/29668083/do-you-still-bring-your-old-dogs-on-adventures)
+- [Funny games with my cute dog](https://news.puppy-snuggles.com/29668080/funny-games-with-my-cute-dog)
+- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
+- [My boy he died March 1](https://news.puppy-snuggles.com/19072440/my-boy-he-died-march-1)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
