@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [‘Worst death you can imagine’: Dog owners urged vaccinate pet for deadly virus](https://news.puppy-snuggles.com/29666352/worst-death-you-can-imagine-dog-owners-urged-vaccinate-pet-for-deadly-virus)
-- [Do you still bring your old dogs on adventures?](https://news.puppy-snuggles.com/29668083/do-you-still-bring-your-old-dogs-on-adventures)
-- [Funny games with my cute dog](https://news.puppy-snuggles.com/29668080/funny-games-with-my-cute-dog)
-- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
-- [My boy he died March 1](https://news.puppy-snuggles.com/19072440/my-boy-he-died-march-1)
+- [viktor has caught bacon](https://news.puppy-snuggles.com/13874301/viktor-has-caught-bacon)
+- [Nymeria has always had the best smile :]](https://news.puppy-snuggles.com/13154540/nymeria-has-always-had-the-best-smile)
+- [When you are hungry, do this](https://news.puppy-snuggles.com/13138556/when-you-are-hungry-do-this)
+- [Because every life is precious](https://news.puppy-snuggles.com/13138555/because-every-life-is-precious)
+- [Happy gotcha day to Prince!](https://news.puppy-snuggles.com/13129137/happy-gotcha-day-to-prince)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
