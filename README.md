@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [viktor has caught bacon](https://news.puppy-snuggles.com/13874301/viktor-has-caught-bacon)
-- [Nymeria has always had the best smile :]](https://news.puppy-snuggles.com/13154540/nymeria-has-always-had-the-best-smile)
-- [When you are hungry, do this](https://news.puppy-snuggles.com/13138556/when-you-are-hungry-do-this)
-- [Because every life is precious](https://news.puppy-snuggles.com/13138555/because-every-life-is-precious)
-- [Happy gotcha day to Prince!](https://news.puppy-snuggles.com/13129137/happy-gotcha-day-to-prince)
+- [Been over a year and not a day goes by that I don’t think about you. The goodest of boys.](https://news.puppy-snuggles.com/23566745/been-over-a-year-and-not-a-day-goes-by-that-i-dont-think-about-you-the-goodest-of-boys)
+- [I made some amazing dog cookies! They are too cute!](https://news.puppy-snuggles.com/23470953/i-made-some-amazing-dog-cookies-they-are-too-cute)
+- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
+- [Guess what mom? The snow has melted 🙄](https://news.puppy-snuggles.com/22987145/guess-what-mom-the-snow-has-melted)
+- [Please enjoy some Kiba smiles :&rpar;](https://news.puppy-snuggles.com/22868081/please-enjoy-some-kiba-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
