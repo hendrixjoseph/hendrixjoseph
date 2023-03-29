@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Been over a year and not a day goes by that I don’t think about you. The goodest of boys.](https://news.puppy-snuggles.com/23566745/been-over-a-year-and-not-a-day-goes-by-that-i-dont-think-about-you-the-goodest-of-boys)
-- [I made some amazing dog cookies! They are too cute!](https://news.puppy-snuggles.com/23470953/i-made-some-amazing-dog-cookies-they-are-too-cute)
-- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
-- [Guess what mom? The snow has melted 🙄](https://news.puppy-snuggles.com/22987145/guess-what-mom-the-snow-has-melted)
-- [Please enjoy some Kiba smiles :&rpar;](https://news.puppy-snuggles.com/22868081/please-enjoy-some-kiba-smiles)
+- [my &amp;amp;quot;beautiful&amp;amp;quot; dog](https://news.puppy-snuggles.com/23644210/my-quotbeautifulquot-dog)
+- [I&amp;#039;m allergic to dogs &lpar;and anything with fur and feathers in general&rpar; but I&amp;#039;d rather take antihistamines and my inhaler, any day just to be with this one. My dog, my bestfriend, my son, my family. Dogs are the best!](https://news.puppy-snuggles.com/23498667/im-allergic-to-dogs-and-anything-with-fur-and-feathers-in-general-but-id-rather-take-antihistamines-and-my-inhaler-any-day-just-to-be-with-this-one-my-dog-my-bestfriend-my-son-my-family-dogs-are-the-best)
+- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
+- [We recently adopted this beautiful boy from the local shelter. His name is Fenris and he loves to collect socks and shoes.](https://news.puppy-snuggles.com/23412986/we-recently-adopted-this-beautiful-boy-from-the-local-shelter-his-name-is-fenris-and-he-loves-to-collect-socks-and-shoes)
+- [Smiling boy 🥰](https://news.puppy-snuggles.com/23251505/smiling-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
