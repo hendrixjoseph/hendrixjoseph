@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I said goodbye to Dempsey after nearly 10 years](https://news.puppy-snuggles.com/29307145/i-said-goodbye-to-dempsey-after-nearly-10-years)
-- [This is my Black Lab Golden retriever mix Miko, she is 5 months old now](https://news.puppy-snuggles.com/29048968/this-is-my-black-lab-golden-retriever-mix-miko-she-is-5-months-old-now)
-- [Pappa came home from work and he couldn’t stop smiling &lpar;post zoomies 🫢&rpar;](https://news.puppy-snuggles.com/29003836/pappa-came-home-from-work-and-he-couldnt-stop-smiling-post-zoomies)
-- [Why is my puppy so big at 4 months? Can someone help me with the breed of my dog 😂](https://news.puppy-snuggles.com/25963498/why-is-my-puppy-so-big-at-4-months-can-someone-help-me-with-the-breed-of-my-dog)
-- [Look who I met yesterday in the streets of Paris. Big, big, boy&rpar;](https://news.puppy-snuggles.com/22482792/look-who-i-met-yesterday-in-the-streets-of-paris-big-big-boy)
+- [Dogs are humans best friends](https://news.puppy-snuggles.com/30031958/dogs-are-humans-best-friends)
+- [They just keep on smiling! We love the happiness they bring this sub. A few more of our happy pups at sanctuary Sara Morocco. May they brighten your day like they do ours](https://news.puppy-snuggles.com/30031962/they-just-keep-on-smiling-we-love-the-happiness-they-bring-this-sub-a-few-more-of-our-happy-pups-at-sanctuary-sara-morocco-may-they-brighten-your-day-like-they-do-ours)
+- [He likes when I show interest in his hobbies](https://news.puppy-snuggles.com/30031960/he-likes-when-i-show-interest-in-his-hobbies)
+- [Happy Babies 🥰](https://news.puppy-snuggles.com/30031957/happy-babies)
+- [Dramatic dog faints when getting nails trimmed](https://news.puppy-snuggles.com/30031959/dramatic-dog-faints-when-getting-nails-trimmed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
