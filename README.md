@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs are humans best friends](https://news.puppy-snuggles.com/30031958/dogs-are-humans-best-friends)
-- [They just keep on smiling! We love the happiness they bring this sub. A few more of our happy pups at sanctuary Sara Morocco. May they brighten your day like they do ours](https://news.puppy-snuggles.com/30031962/they-just-keep-on-smiling-we-love-the-happiness-they-bring-this-sub-a-few-more-of-our-happy-pups-at-sanctuary-sara-morocco-may-they-brighten-your-day-like-they-do-ours)
-- [He likes when I show interest in his hobbies](https://news.puppy-snuggles.com/30031960/he-likes-when-i-show-interest-in-his-hobbies)
-- [Happy Babies 🥰](https://news.puppy-snuggles.com/30031957/happy-babies)
-- [Dramatic dog faints when getting nails trimmed](https://news.puppy-snuggles.com/30031959/dramatic-dog-faints-when-getting-nails-trimmed)
+- [happy cotton candy](https://news.puppy-snuggles.com/30098593/happy-cotton-candy)
+- [Handsome little boy smirk!](https://news.puppy-snuggles.com/29668078/handsome-little-boy-smirk)
+- [I arr happy boi](https://news.puppy-snuggles.com/26731467/i-arr-happy-boi)
+- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
+- [Baby&amp;#039;s Puppies They grow up Fast Up 10 weeks old!](https://news.puppy-snuggles.com/18171827/babys-puppies-they-grow-up-fast-up-10-weeks-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
