@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [happy cotton candy](https://news.puppy-snuggles.com/30098593/happy-cotton-candy)
-- [Handsome little boy smirk!](https://news.puppy-snuggles.com/29668078/handsome-little-boy-smirk)
-- [I arr happy boi](https://news.puppy-snuggles.com/26731467/i-arr-happy-boi)
-- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
-- [Baby&amp;#039;s Puppies They grow up Fast Up 10 weeks old!](https://news.puppy-snuggles.com/18171827/babys-puppies-they-grow-up-fast-up-10-weeks-old)
+- [lost my beautiful boy Thursday night at 13 years old. he never looked or acted like an old dog. he was so fiesty and loving. I miss him so much 💔](https://news.puppy-snuggles.com/30185530/lost-my-beautiful-boy-thursday-night-at-13-years-old-he-never-looked-or-acted-like-an-old-dog-he-was-so-fiesty-and-loving-i-miss-him-so-much)
+- [A couple nice pics of my dog](https://news.puppy-snuggles.com/30163333/a-couple-nice-pics-of-my-dog)
+- [She smiles in her Sleep 😊](https://news.puppy-snuggles.com/30163328/she-smiles-in-her-sleep)
+- [We had to say goodbye to our Atlas yesterday after nine years. He was our first dog, a rescue, and more than we could have ever asked for. Run free, buddy, and thank you for everything.](https://news.puppy-snuggles.com/30163329/we-had-to-say-goodbye-to-our-atlas-yesterday-after-nine-years-he-was-our-first-dog-a-rescue-and-more-than-we-could-have-ever-asked-for-run-free-buddy-and-thank-you-for-everything)
+- [Bundle of Joy..](https://news.puppy-snuggles.com/30163331/bundle-of-joy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
