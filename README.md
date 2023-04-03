@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [lost my beautiful boy Thursday night at 13 years old. he never looked or acted like an old dog. he was so fiesty and loving. I miss him so much 💔](https://news.puppy-snuggles.com/30185530/lost-my-beautiful-boy-thursday-night-at-13-years-old-he-never-looked-or-acted-like-an-old-dog-he-was-so-fiesty-and-loving-i-miss-him-so-much)
-- [A couple nice pics of my dog](https://news.puppy-snuggles.com/30163333/a-couple-nice-pics-of-my-dog)
-- [She smiles in her Sleep 😊](https://news.puppy-snuggles.com/30163328/she-smiles-in-her-sleep)
-- [We had to say goodbye to our Atlas yesterday after nine years. He was our first dog, a rescue, and more than we could have ever asked for. Run free, buddy, and thank you for everything.](https://news.puppy-snuggles.com/30163329/we-had-to-say-goodbye-to-our-atlas-yesterday-after-nine-years-he-was-our-first-dog-a-rescue-and-more-than-we-could-have-ever-asked-for-run-free-buddy-and-thank-you-for-everything)
-- [Bundle of Joy..](https://news.puppy-snuggles.com/30163331/bundle-of-joy)
+- [Just being all cute and blending in with our floor](https://news.puppy-snuggles.com/30249584/just-being-all-cute-and-blending-in-with-our-floor)
+- [The evolution of Cujo](https://news.puppy-snuggles.com/30249582/the-evolution-of-cujo)
+- [when I asked Jack to be more serious](https://news.puppy-snuggles.com/28396027/when-i-asked-jack-to-be-more-serious)
+- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
+- [if you saw my dog on a walk, what would you think his breed was? We get asked if he&amp;#039;s Samoyed a lot and o was curious on what others thought! &lpar;breed: Alaskan Malamute + Maremma Sheepdog&rpar;](https://news.puppy-snuggles.com/15997605/if-you-saw-my-dog-on-a-walk-what-would-you-think-his-breed-was-we-get-asked-if-hes-samoyed-a-lot-and-o-was-curious-on-what-others-thought-breed-alaskan-malamute-maremma-sheepdog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
