@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just being all cute and blending in with our floor](https://news.puppy-snuggles.com/30249584/just-being-all-cute-and-blending-in-with-our-floor)
-- [The evolution of Cujo](https://news.puppy-snuggles.com/30249582/the-evolution-of-cujo)
-- [when I asked Jack to be more serious](https://news.puppy-snuggles.com/28396027/when-i-asked-jack-to-be-more-serious)
-- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
-- [if you saw my dog on a walk, what would you think his breed was? We get asked if he&amp;#039;s Samoyed a lot and o was curious on what others thought! &lpar;breed: Alaskan Malamute + Maremma Sheepdog&rpar;](https://news.puppy-snuggles.com/15997605/if-you-saw-my-dog-on-a-walk-what-would-you-think-his-breed-was-we-get-asked-if-hes-samoyed-a-lot-and-o-was-curious-on-what-others-thought-breed-alaskan-malamute-maremma-sheepdog)
+- [Zolly. Getting old. Takes his spot in the yard and keeps an eye on things.](https://news.puppy-snuggles.com/30314234/zolly-getting-old-takes-his-spot-in-the-yard-and-keeps-an-eye-on-things)
+- [Er schlief fest. Er liebte das Bett.](https://news.puppy-snuggles.com/24313846/er-schlief-fest-er-liebte-das-bett)
+- [My Opal 🖤🤍](https://news.puppy-snuggles.com/23348079/my-opal)
+- [my doggo loves to sunbathe](https://news.puppy-snuggles.com/21564265/my-doggo-loves-to-sunbathe)
+- [Dog chillin in the pool](https://news.puppy-snuggles.com/18497938/dog-chillin-in-the-pool)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
