@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs having a blast](https://news.puppy-snuggles.com/30406617/dogs-having-a-blast)
-- [Me and my dog Ruby who has been with me throughout my cancer ❤️](https://news.puppy-snuggles.com/30406614/me-and-my-dog-ruby-who-has-been-with-me-throughout-my-cancer)
-- [beware!](https://news.puppy-snuggles.com/30406622/beware)
-- [Ever seen a bird barking at a dog?](https://news.puppy-snuggles.com/30406621/ever-seen-a-bird-barking-at-a-dog)
-- [Pour one out for my late girl Rosie](https://news.puppy-snuggles.com/19173851/pour-one-out-for-my-late-girl-rosie)
+- [My Doge in the snow](https://news.puppy-snuggles.com/30474742/my-doge-in-the-snow)
+- [Hugo, portrait with colored pencils](https://news.puppy-snuggles.com/30474736/hugo-portrait-with-colored-pencils)
+- [My aunt got a new puppy today at 68](https://news.puppy-snuggles.com/30406618/my-aunt-got-a-new-puppy-today-at-68)
+- [Yesterday I said goodbye to my Best Friend. Rest in peace Monty](https://news.puppy-snuggles.com/30406623/yesterday-i-said-goodbye-to-my-best-friend-rest-in-peace-monty)
+- [Cohen](https://news.puppy-snuggles.com/30359083/cohen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
