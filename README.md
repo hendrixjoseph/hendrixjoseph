@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Doge in the snow](https://news.puppy-snuggles.com/30474742/my-doge-in-the-snow)
-- [Hugo, portrait with colored pencils](https://news.puppy-snuggles.com/30474736/hugo-portrait-with-colored-pencils)
-- [My aunt got a new puppy today at 68](https://news.puppy-snuggles.com/30406618/my-aunt-got-a-new-puppy-today-at-68)
-- [Yesterday I said goodbye to my Best Friend. Rest in peace Monty](https://news.puppy-snuggles.com/30406623/yesterday-i-said-goodbye-to-my-best-friend-rest-in-peace-monty)
-- [Cohen](https://news.puppy-snuggles.com/30359083/cohen)
+- [A battle well fought.](https://news.puppy-snuggles.com/30474737/a-battle-well-fought)
+- [What type of doggo is this?](https://news.puppy-snuggles.com/21883004/what-type-of-doggo-is-this)
+- [13 looks good on you, Suki &lpar;swipe to see her the day I brought her home at eight weeks old&rpar;](https://news.puppy-snuggles.com/16732516/13-looks-good-on-you-suki-swipe-to-see-her-the-day-i-brought-her-home-at-eight-weeks-old)
+- [&amp;amp;quot;thе hеll is wrоng with this guy&amp;amp;quot;](https://news.puppy-snuggles.com/16178380/quotthe-hell-is-wrong-with-this-guyquot)
+- [I always wonder what he is dreaming.](https://news.puppy-snuggles.com/15640482/i-always-wonder-what-he-is-dreaming)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
