@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A battle well fought.](https://news.puppy-snuggles.com/30474737/a-battle-well-fought)
-- [What type of doggo is this?](https://news.puppy-snuggles.com/21883004/what-type-of-doggo-is-this)
-- [13 looks good on you, Suki &lpar;swipe to see her the day I brought her home at eight weeks old&rpar;](https://news.puppy-snuggles.com/16732516/13-looks-good-on-you-suki-swipe-to-see-her-the-day-i-brought-her-home-at-eight-weeks-old)
-- [&amp;amp;quot;thе hеll is wrоng with this guy&amp;amp;quot;](https://news.puppy-snuggles.com/16178380/quotthe-hell-is-wrong-with-this-guyquot)
-- [I always wonder what he is dreaming.](https://news.puppy-snuggles.com/15640482/i-always-wonder-what-he-is-dreaming)
+- [PuppySmiles, meet Pablo](https://news.puppy-snuggles.com/30618679/puppysmiles-meet-pablo)
+- [Nuco is a very derpy doggo.](https://news.puppy-snuggles.com/27732074/nuco-is-a-very-derpy-doggo)
+- [My far sighted dog wondering where his ball went](https://news.puppy-snuggles.com/24677653/my-far-sighted-dog-wondering-where-his-ball-went)
+- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
+- [Bea the heart breaker 😍](https://news.puppy-snuggles.com/24272078/bea-the-heart-breaker)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
