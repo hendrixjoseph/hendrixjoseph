@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [PuppySmiles, meet Pablo](https://news.puppy-snuggles.com/30618679/puppysmiles-meet-pablo)
-- [Nuco is a very derpy doggo.](https://news.puppy-snuggles.com/27732074/nuco-is-a-very-derpy-doggo)
-- [My far sighted dog wondering where his ball went](https://news.puppy-snuggles.com/24677653/my-far-sighted-dog-wondering-where-his-ball-went)
-- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
-- [Bea the heart breaker 😍](https://news.puppy-snuggles.com/24272078/bea-the-heart-breaker)
+- [She has waited all winter for this](https://news.puppy-snuggles.com/30685533/she-has-waited-all-winter-for-this)
+- [my pups were both hit by a box truck last night… it was a horrible sight. I’m both devastated and traumatized. They were both 6. They loved eachother very much.](https://news.puppy-snuggles.com/30685530/my-pups-were-both-hit-by-a-box-truck-last-night-it-was-a-horrible-sight-im-both-devastated-and-traumatized-they-were-both-6-they-loved-eachother-very-much)
+- [Just showing off my best friend, had to put him to sleep after 13 years together.](https://news.puppy-snuggles.com/24117303/just-showing-off-my-best-friend-had-to-put-him-to-sleep-after-13-years-together)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [The real smile and the cute smile 😊😂](https://news.puppy-snuggles.com/22456887/the-real-smile-and-the-cute-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
