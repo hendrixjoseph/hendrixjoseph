@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She has waited all winter for this](https://news.puppy-snuggles.com/30685533/she-has-waited-all-winter-for-this)
-- [my pups were both hit by a box truck last night… it was a horrible sight. I’m both devastated and traumatized. They were both 6. They loved eachother very much.](https://news.puppy-snuggles.com/30685530/my-pups-were-both-hit-by-a-box-truck-last-night-it-was-a-horrible-sight-im-both-devastated-and-traumatized-they-were-both-6-they-loved-eachother-very-much)
-- [Just showing off my best friend, had to put him to sleep after 13 years together.](https://news.puppy-snuggles.com/24117303/just-showing-off-my-best-friend-had-to-put-him-to-sleep-after-13-years-together)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [The real smile and the cute smile 😊😂](https://news.puppy-snuggles.com/22456887/the-real-smile-and-the-cute-smile)
+- [spa time](https://news.puppy-snuggles.com/30751606/spa-time)
+- [My little puppers](https://news.puppy-snuggles.com/30751609/my-little-puppers)
+- [Another precious day with him!](https://news.puppy-snuggles.com/30751602/another-precious-day-with-him)
+- [What breed is my Female dog Summer part 2](https://news.puppy-snuggles.com/30751601/what-breed-is-my-female-dog-summer-part-2)
+- [Camie Girl the 3 legged rottie](https://news.puppy-snuggles.com/30708989/camie-girl-the-3-legged-rottie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
