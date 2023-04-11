@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [spa time](https://news.puppy-snuggles.com/30751606/spa-time)
-- [My little puppers](https://news.puppy-snuggles.com/30751609/my-little-puppers)
-- [Another precious day with him!](https://news.puppy-snuggles.com/30751602/another-precious-day-with-him)
-- [What breed is my Female dog Summer part 2](https://news.puppy-snuggles.com/30751601/what-breed-is-my-female-dog-summer-part-2)
-- [Camie Girl the 3 legged rottie](https://news.puppy-snuggles.com/30708989/camie-girl-the-3-legged-rottie)
+- [Repost, because I’m dumb](https://news.puppy-snuggles.com/30822327/repost-because-im-dumb)
+- [Please include Sab in your prayers today 🙏 She was diagnosed with Anaplasma and Babesia today](https://news.puppy-snuggles.com/30822328/please-include-sab-in-your-prayers-today-she-was-diagnosed-with-anaplasma-and-babesia-today)
+- [Hi guys](https://news.puppy-snuggles.com/30822329/hi-guys)
+- [Goodbye poppy you were my everything](https://news.puppy-snuggles.com/21638382/goodbye-poppy-you-were-my-everything)
+- [I love his smile 😍](https://news.puppy-snuggles.com/19082146/i-love-his-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
