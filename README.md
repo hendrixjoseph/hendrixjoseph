@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Repost, because I’m dumb](https://news.puppy-snuggles.com/30822327/repost-because-im-dumb)
-- [Please include Sab in your prayers today 🙏 She was diagnosed with Anaplasma and Babesia today](https://news.puppy-snuggles.com/30822328/please-include-sab-in-your-prayers-today-she-was-diagnosed-with-anaplasma-and-babesia-today)
-- [Hi guys](https://news.puppy-snuggles.com/30822329/hi-guys)
-- [Goodbye poppy you were my everything](https://news.puppy-snuggles.com/21638382/goodbye-poppy-you-were-my-everything)
-- [I love his smile 😍](https://news.puppy-snuggles.com/19082146/i-love-his-smile)
+- [My little pooch!!](https://news.puppy-snuggles.com/24402201/my-little-pooch)
+- [Hi! My name is Cheese](https://news.puppy-snuggles.com/24092870/hi-my-name-is-cheese)
+- [Rest In Peace Bailey Boo](https://news.puppy-snuggles.com/23919373/rest-in-peace-bailey-boo)
+- [What ya doing guys?](https://news.puppy-snuggles.com/23185585/what-ya-doing-guys)
+- [when the person you like sleeps uncomfortably but you like him/her so much that you don&amp;#039;t even worry about it](https://news.puppy-snuggles.com/21680302/when-the-person-you-like-sleeps-uncomfortably-but-you-like-himher-so-much-that-you-dont-even-worry-about-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
