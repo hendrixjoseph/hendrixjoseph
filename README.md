@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My little pooch!!](https://news.puppy-snuggles.com/24402201/my-little-pooch)
-- [Hi! My name is Cheese](https://news.puppy-snuggles.com/24092870/hi-my-name-is-cheese)
-- [Rest In Peace Bailey Boo](https://news.puppy-snuggles.com/23919373/rest-in-peace-bailey-boo)
-- [What ya doing guys?](https://news.puppy-snuggles.com/23185585/what-ya-doing-guys)
-- [when the person you like sleeps uncomfortably but you like him/her so much that you don&amp;#039;t even worry about it](https://news.puppy-snuggles.com/21680302/when-the-person-you-like-sleeps-uncomfortably-but-you-like-himher-so-much-that-you-dont-even-worry-about-it)
+- [fun with bubbles](https://news.puppy-snuggles.com/30962023/fun-with-bubbles)
+- [Sunny days are her favorite!](https://news.puppy-snuggles.com/30962021/sunny-days-are-her-favorite)
+- [He grew up so quick](https://news.puppy-snuggles.com/30685535/he-grew-up-so-quick)
+- [His name is Toto and at 16 he still smiles every day♥️](https://news.puppy-snuggles.com/26640976/his-name-is-toto-and-at-16-he-still-smiles-every-day)
+- [Just a happy Bruno](https://news.puppy-snuggles.com/24497783/just-a-happy-bruno)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
