@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [fun with bubbles](https://news.puppy-snuggles.com/30962023/fun-with-bubbles)
-- [Sunny days are her favorite!](https://news.puppy-snuggles.com/30962021/sunny-days-are-her-favorite)
-- [He grew up so quick](https://news.puppy-snuggles.com/30685535/he-grew-up-so-quick)
-- [His name is Toto and at 16 he still smiles every day♥️](https://news.puppy-snuggles.com/26640976/his-name-is-toto-and-at-16-he-still-smiles-every-day)
-- [Just a happy Bruno](https://news.puppy-snuggles.com/24497783/just-a-happy-bruno)
+- [Nice pic](https://news.puppy-snuggles.com/29837268/nice-pic)
+- [I lost my boy, my furry son, my soul mate 44 days ago. My heart has been heavy, shattered, broken.](https://news.puppy-snuggles.com/27261576/i-lost-my-boy-my-furry-son-my-soul-mate-44-days-ago-my-heart-has-been-heavy-shattered-broken)
+- [gotta show off my puppy &lpar;tge weirdest dog to exist&rpar;](https://news.puppy-snuggles.com/24172142/gotta-show-off-my-puppy-tge-weirdest-dog-to-exist)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [my corgi is ready to go outside](https://news.puppy-snuggles.com/17309803/my-corgi-is-ready-to-go-outside)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
