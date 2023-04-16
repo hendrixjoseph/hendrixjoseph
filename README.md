@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My crazy boy!!](https://news.puppy-snuggles.com/31079350/my-crazy-boy)
-- [2 best buds last photo. Crossing the rainbow bridge Together.](https://news.puppy-snuggles.com/31079355/2-best-buds-last-photo-crossing-the-rainbow-bridge-together)
-- [Desmond, The Worlds Biggest Mama’s Boy](https://news.puppy-snuggles.com/31079352/desmond-the-worlds-biggest-mamas-boy)
-- [2 best buds last photo. Crossing the rainbow bridge Together.](https://news.puppy-snuggles.com/31079351/2-best-buds-last-photo-crossing-the-rainbow-bridge-together)
-- [Happiness](https://news.puppy-snuggles.com/30962020/happiness)
+- [Just brought this cute girl home. Ideas on mix?](https://news.puppy-snuggles.com/31172381/just-brought-this-cute-girl-home-ideas-on-mix)
+- [RIP PJ may 30, 2012 - december 7, 2022. My best friend ever, I cant wait to see you again](https://news.puppy-snuggles.com/23644213/rip-pj-may-30-2012-december-7-2022-my-best-friend-ever-i-cant-wait-to-see-you-again)
+- [When the phone thinks a nose is a face](https://news.puppy-snuggles.com/23554621/when-the-phone-thinks-a-nose-is-a-face)
+- [My Guardian Angel](https://news.puppy-snuggles.com/23284750/my-guardian-angel)
+- [My tribute to dogs and their loving owners. &amp;#039;Whatever the weather&amp;#039; charcoal art by me.](https://news.puppy-snuggles.com/23223410/my-tribute-to-dogs-and-their-loving-owners-whatever-the-weather-charcoal-art-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
