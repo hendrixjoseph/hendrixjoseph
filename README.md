@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just brought this cute girl home. Ideas on mix?](https://news.puppy-snuggles.com/31172381/just-brought-this-cute-girl-home-ideas-on-mix)
-- [RIP PJ may 30, 2012 - december 7, 2022. My best friend ever, I cant wait to see you again](https://news.puppy-snuggles.com/23644213/rip-pj-may-30-2012-december-7-2022-my-best-friend-ever-i-cant-wait-to-see-you-again)
-- [When the phone thinks a nose is a face](https://news.puppy-snuggles.com/23554621/when-the-phone-thinks-a-nose-is-a-face)
-- [My Guardian Angel](https://news.puppy-snuggles.com/23284750/my-guardian-angel)
-- [My tribute to dogs and their loving owners. &amp;#039;Whatever the weather&amp;#039; charcoal art by me.](https://news.puppy-snuggles.com/23223410/my-tribute-to-dogs-and-their-loving-owners-whatever-the-weather-charcoal-art-by-me)
+- [He might know what the camera is. &lpar;His name is Tusk&rpar;](https://news.puppy-snuggles.com/31243091/he-might-know-what-the-camera-is-his-name-is-tusk)
+- [Took some photos of my friend’s puppy today, enjoy :&rpar;](https://news.puppy-snuggles.com/31243090/took-some-photos-of-my-friends-puppy-today-enjoy)
+- [A photo of my old dog, Sasha, a Bullmastiff. She sadly died a few weeks after this was taken but I love the photo!](https://news.puppy-snuggles.com/31243087/a-photo-of-my-old-dog-sasha-a-bullmastiff-she-sadly-died-a-few-weeks-after-this-was-taken-but-i-love-the-photo)
+- [He’s sometimes annoyed of my undying love😅](https://news.puppy-snuggles.com/31243088/hes-sometimes-annoyed-of-my-undying-love)
+- [Dad has his limits](https://news.puppy-snuggles.com/31243086/dad-has-his-limits)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
