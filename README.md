@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He might know what the camera is. &lpar;His name is Tusk&rpar;](https://news.puppy-snuggles.com/31243091/he-might-know-what-the-camera-is-his-name-is-tusk)
-- [Took some photos of my friend’s puppy today, enjoy :&rpar;](https://news.puppy-snuggles.com/31243090/took-some-photos-of-my-friends-puppy-today-enjoy)
-- [A photo of my old dog, Sasha, a Bullmastiff. She sadly died a few weeks after this was taken but I love the photo!](https://news.puppy-snuggles.com/31243087/a-photo-of-my-old-dog-sasha-a-bullmastiff-she-sadly-died-a-few-weeks-after-this-was-taken-but-i-love-the-photo)
-- [He’s sometimes annoyed of my undying love😅](https://news.puppy-snuggles.com/31243088/hes-sometimes-annoyed-of-my-undying-love)
-- [Dad has his limits](https://news.puppy-snuggles.com/31243086/dad-has-his-limits)
+- [the day we got him vs now](https://news.puppy-snuggles.com/31305992/the-day-we-got-him-vs-now)
+- [Happy Babies 🥰](https://news.puppy-snuggles.com/30031957/happy-babies)
+- [Ethel, Fred, Bonnie &lpar;white puppy&rpar; and Clyde 🐶❤️](https://news.puppy-snuggles.com/25376148/ethel-fred-bonnie-white-puppy-and-clyde)
+- [This is my dog. You are welcome.](https://news.puppy-snuggles.com/23223407/this-is-my-dog-you-are-welcome)
+- [Hello, I’m here to help you over the hump](https://news.puppy-snuggles.com/23108629/hello-im-here-to-help-you-over-the-hump)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
