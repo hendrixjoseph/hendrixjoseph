@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Help me name this good boy](https://news.puppy-snuggles.com/31367337/help-me-name-this-good-boy)
+- [My dog Duncan](https://news.puppy-snuggles.com/31346944/my-dog-duncan)
+- [Dog lover](https://news.puppy-snuggles.com/31305990/dog-lover)
 - [the day we got him vs now](https://news.puppy-snuggles.com/31305992/the-day-we-got-him-vs-now)
-- [Happy Babies 🥰](https://news.puppy-snuggles.com/30031957/happy-babies)
-- [Ethel, Fred, Bonnie &lpar;white puppy&rpar; and Clyde 🐶❤️](https://news.puppy-snuggles.com/25376148/ethel-fred-bonnie-white-puppy-and-clyde)
-- [This is my dog. You are welcome.](https://news.puppy-snuggles.com/23223407/this-is-my-dog-you-are-welcome)
-- [Hello, I’m here to help you over the hump](https://news.puppy-snuggles.com/23108629/hello-im-here-to-help-you-over-the-hump)
+- [This is Sheila. That is all.](https://news.puppy-snuggles.com/31305991/this-is-sheila-that-is-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
