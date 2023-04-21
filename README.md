@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hey there, it&amp;#039;s me, the most playful and confident little guy you&amp;#039;ll ever meet! Me, my mom, and my siblings were rescued at the end of 2022, and we are residing now at Sara Morocco, but I still don&amp;#039;t have a name yet! With 900 rescues we run out of ideas.. Redditors inspire us please](https://news.puppy-snuggles.com/31468016/hey-there-its-me-the-most-playful-and-confident-little-guy-youll-ever-meet-me-my-mom-and-my-siblings-were-rescued-at-the-end-of-2022-and-we-are-residing-now-at-sara-morocco-but-i-still-dont-have-a-name-yet-with-900-rescues-we-run-out-of-ideas-redditors-inspire-us-please)
-- [Happy Boba!🐶💕](https://news.puppy-snuggles.com/31446355/happy-boba)
-- [Happy boi](https://news.puppy-snuggles.com/31446360/happy-boi)
-- [Just my niece Nala, the best dog in the world.](https://news.puppy-snuggles.com/31446359/just-my-niece-nala-the-best-dog-in-the-world)
-- [What breed is my Female dog Summer part 2](https://news.puppy-snuggles.com/30751601/what-breed-is-my-female-dog-summer-part-2)
+- [This is Daisy. She is a beautiful girl](https://news.puppy-snuggles.com/23907124/this-is-daisy-she-is-a-beautiful-girl)
+- [Samoyeds on the beach at sunrise](https://news.puppy-snuggles.com/18763905/samoyeds-on-the-beach-at-sunrise)
+- [how to cope when a pet passes and you feel like it&amp;#039;s all your fault.](https://news.puppy-snuggles.com/14938181/how-to-cope-when-a-pet-passes-and-you-feel-like-its-all-your-fault)
+- [Rate my dog out of 10](https://news.puppy-snuggles.com/14601536/rate-my-dog-out-of-10)
+- [Texas Capitol](https://news.puppy-snuggles.com/14477281/texas-capitol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
