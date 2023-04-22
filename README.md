@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Daisy. She is a beautiful girl](https://news.puppy-snuggles.com/23907124/this-is-daisy-she-is-a-beautiful-girl)
-- [Samoyeds on the beach at sunrise](https://news.puppy-snuggles.com/18763905/samoyeds-on-the-beach-at-sunrise)
-- [how to cope when a pet passes and you feel like it&amp;#039;s all your fault.](https://news.puppy-snuggles.com/14938181/how-to-cope-when-a-pet-passes-and-you-feel-like-its-all-your-fault)
-- [Rate my dog out of 10](https://news.puppy-snuggles.com/14601536/rate-my-dog-out-of-10)
-- [Texas Capitol](https://news.puppy-snuggles.com/14477281/texas-capitol)
+- [Martha and her portrait by my 10 y.o. daughter](https://news.puppy-snuggles.com/31605214/martha-and-her-portrait-by-my-10-yo-daughter)
+- [Mookie&amp;#039;s breed?](https://news.puppy-snuggles.com/31605220/mookies-breed)
+- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
+- [He can be a littleannoying…always wants to do selfies](https://news.puppy-snuggles.com/31605216/he-can-be-a-littleannoyingalways-wants-to-do-selfies)
+- [It’s my girls 2nd birthday today. They grow up so fast!!!](https://news.puppy-snuggles.com/31605219/its-my-girls-2nd-birthday-today-they-grow-up-so-fast)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
