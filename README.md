@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on How did you exercise today?](https://www.reddit.com/r/AskReddit/comments/12vhsrm/how_did_you_exercise_today/jhbgan0/)
 - [/u/joehx on Book readers of reddit do you read the acknowledgement and forwards of books? If so why?!](https://www.reddit.com/r/AskReddit/comments/12omwdz/book_readers_of_reddit_do_you_read_the/jgiv6jc/)
 - [/u/joehx on What is MS in Comp Sci like?](https://www.reddit.com/r/computerscience/comments/12ngpsy/what_is_ms_in_comp_sci_like/jgehnic/)
 - [/u/joehx on Daily FI discussion thread - Thursday, March 30, 2023](https://www.reddit.com/r/financialindependence/comments/126h7k4/daily_fi_discussion_thread_thursday_march_30_2023/je9si4x/)
 - [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2023](https://www.reddit.com/r/cscareerquestions/comments/11uh1k1/official_salary_sharing_thread_for_experienced/jcyqe8y/)
-- [/u/joehx on filing taxes question](https://www.reddit.com/r/personalfinance/comments/11ps1a1/filing_taxes_question/jbzimnc/)
 <!-- REDDIT:END -->
