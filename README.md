@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Martha and her portrait by my 10 y.o. daughter](https://news.puppy-snuggles.com/31605214/martha-and-her-portrait-by-my-10-yo-daughter)
-- [Mookie&amp;#039;s breed?](https://news.puppy-snuggles.com/31605220/mookies-breed)
-- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
-- [He can be a littleannoying…always wants to do selfies](https://news.puppy-snuggles.com/31605216/he-can-be-a-littleannoyingalways-wants-to-do-selfies)
-- [It’s my girls 2nd birthday today. They grow up so fast!!!](https://news.puppy-snuggles.com/31605219/its-my-girls-2nd-birthday-today-they-grow-up-so-fast)
+- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
+- [My dog is 19!!!](https://news.puppy-snuggles.com/31547207/my-dog-is-19)
+- [Can you see who made a mistake?lol](https://news.puppy-snuggles.com/17610885/can-you-see-who-made-a-mistakelol)
+- [Our beautiful Eva passed in her sleep two nights ago at 14; she lived a long, happy life. it was unexpected and we&amp;#039;re absolutely gutted. Give your babies extra love today.](https://news.puppy-snuggles.com/15557854/our-beautiful-eva-passed-in-her-sleep-two-nights-ago-at-14-she-lived-a-long-happy-life-it-was-unexpected-and-were-absolutely-gutted-give-your-babies-extra-love-today)
+- [We rescued Mya a year ago when a local shelter was at capacity. She’s the most loving dog I’ve ever met ♥️](https://news.puppy-snuggles.com/14717984/we-rescued-mya-a-year-ago-when-a-local-shelter-was-at-capacity-shes-the-most-loving-dog-ive-ever-met)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
