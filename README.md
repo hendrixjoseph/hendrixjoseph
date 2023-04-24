@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
+- [Goodbye to our sweetest Kira](https://news.puppy-snuggles.com/31737876/goodbye-to-our-sweetest-kira)
+- [My dog celebrating her 10th birthday with her friends... 🙃](https://news.puppy-snuggles.com/31659782/my-dog-celebrating-her-10th-birthday-with-her-friends)
 - [My dog is 19!!!](https://news.puppy-snuggles.com/31547207/my-dog-is-19)
-- [Can you see who made a mistake?lol](https://news.puppy-snuggles.com/17610885/can-you-see-who-made-a-mistakelol)
-- [Our beautiful Eva passed in her sleep two nights ago at 14; she lived a long, happy life. it was unexpected and we&amp;#039;re absolutely gutted. Give your babies extra love today.](https://news.puppy-snuggles.com/15557854/our-beautiful-eva-passed-in-her-sleep-two-nights-ago-at-14-she-lived-a-long-happy-life-it-was-unexpected-and-were-absolutely-gutted-give-your-babies-extra-love-today)
-- [We rescued Mya a year ago when a local shelter was at capacity. She’s the most loving dog I’ve ever met ♥️](https://news.puppy-snuggles.com/14717984/we-rescued-mya-a-year-ago-when-a-local-shelter-was-at-capacity-shes-the-most-loving-dog-ive-ever-met)
+- [Perhaps my boy, Emmett &lpar;14&rpar;, has taken the legalization of marijuana to heart.](https://news.puppy-snuggles.com/30685528/perhaps-my-boy-emmett-14-has-taken-the-legalization-of-marijuana-to-heart)
+- [Accidentally took the best Christmas picture of my senior girl while putting up lights](https://news.puppy-snuggles.com/23658545/accidentally-took-the-best-christmas-picture-of-my-senior-girl-while-putting-up-lights)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
