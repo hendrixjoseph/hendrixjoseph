@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye to our sweetest Kira](https://news.puppy-snuggles.com/31737876/goodbye-to-our-sweetest-kira)
-- [My dog celebrating her 10th birthday with her friends... 🙃](https://news.puppy-snuggles.com/31659782/my-dog-celebrating-her-10th-birthday-with-her-friends)
-- [My dog is 19!!!](https://news.puppy-snuggles.com/31547207/my-dog-is-19)
-- [Perhaps my boy, Emmett &lpar;14&rpar;, has taken the legalization of marijuana to heart.](https://news.puppy-snuggles.com/30685528/perhaps-my-boy-emmett-14-has-taken-the-legalization-of-marijuana-to-heart)
-- [Accidentally took the best Christmas picture of my senior girl while putting up lights](https://news.puppy-snuggles.com/23658545/accidentally-took-the-best-christmas-picture-of-my-senior-girl-while-putting-up-lights)
+- [Beat cancer! Dog version..](https://news.puppy-snuggles.com/31817141/beat-cancer-dog-version)
+- [Happy boy 🤪](https://news.puppy-snuggles.com/31817137/happy-boy)
+- [Puck](https://news.puppy-snuggles.com/31817142/puck)
+- [My best friend. We are so bonded it’s like he knows what I’m feeling before I even feel it. He really is such a good boy.](https://news.puppy-snuggles.com/31817138/my-best-friend-we-are-so-bonded-its-like-he-knows-what-im-feeling-before-i-even-feel-it-he-really-is-such-a-good-boy)
+- [Eyes on the prize](https://news.puppy-snuggles.com/31817136/eyes-on-the-prize)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
