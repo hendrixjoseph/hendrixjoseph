@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [A Penguin Cake for My Son&#39;s Birthday](https://www.joehxblog.com/a-penguin-cake-for-my-sons-birthday/)
 - [April 2023 Blog Statistics](https://www.joehxblog.com/april-2023-blog-statistics/)
 - [March 2023 Book Reading List](https://www.joehxblog.com/march-2023-book-reading-list/)
 - [Word Guessing Game - A ChatGPT Generated JavaScript Game](https://www.joehxblog.com/word-guessing-game/)
 - [Why a Roth IRA is Better - With Math](https://www.joehxblog.com/why-a-roth-ira-is-better-with-math/)
-- [Git is Like a Book](https://www.joehxblog.com/git-is-like-a-book/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
