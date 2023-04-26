@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Beat cancer! Dog version..](https://news.puppy-snuggles.com/31817141/beat-cancer-dog-version)
-- [Happy boy 🤪](https://news.puppy-snuggles.com/31817137/happy-boy)
-- [Puck](https://news.puppy-snuggles.com/31817142/puck)
-- [My best friend. We are so bonded it’s like he knows what I’m feeling before I even feel it. He really is such a good boy.](https://news.puppy-snuggles.com/31817138/my-best-friend-we-are-so-bonded-its-like-he-knows-what-im-feeling-before-i-even-feel-it-he-really-is-such-a-good-boy)
-- [Eyes on the prize](https://news.puppy-snuggles.com/31817136/eyes-on-the-prize)
+- [Ringo’s always smiling](https://news.puppy-snuggles.com/31877879/ringos-always-smiling)
+- [Wolf dog at my shelter loves smiling :D OC](https://news.puppy-snuggles.com/31877880/wolf-dog-at-my-shelter-loves-smiling-d-oc)
+- [This week Ireland mourns the loss of our President&amp;#039;s dog, Bród Higgins](https://news.puppy-snuggles.com/31756588/this-week-ireland-mourns-the-loss-of-our-presidents-dog-brod-higgins)
+- [Marcus Aurelius is a very polite mini bernedoodle](https://news.puppy-snuggles.com/18526160/marcus-aurelius-is-a-very-polite-mini-bernedoodle)
+- [Chilling with Stuffed Friend &amp;amp;lt;3](https://news.puppy-snuggles.com/17064556/chilling-with-stuffed-friend-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
