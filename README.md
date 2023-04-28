@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our newest arrivals to Sara Morocco are all smiles! We’ve yet to give them a name &lpar; with 900 puppers we can run out of inspiration&rpar; but we know you guys are the best for helping to inspire us and give these happy rescues the name they deserve](https://news.puppy-snuggles.com/31961147/our-newest-arrivals-to-sara-morocco-are-all-smiles-weve-yet-to-give-them-a-name-with-900-puppers-we-can-run-out-of-inspiration-but-we-know-you-guys-are-the-best-for-helping-to-inspire-us-and-give-these-happy-rescues-the-name-they-deserve)
-- [Puppy dance battle](https://news.puppy-snuggles.com/31961145/puppy-dance-battle)
-- [Hands down best haircut video I have ever seen.](https://news.puppy-snuggles.com/31961143/hands-down-best-haircut-video-i-have-ever-seen)
-- [Please rate my dog on the squish level. His name is Harry.](https://news.puppy-snuggles.com/31961144/please-rate-my-dog-on-the-squish-level-his-name-is-harry)
-- [Sunbathing](https://news.puppy-snuggles.com/31961146/sunbathing)
+- [Love at first sight](https://news.puppy-snuggles.com/32025790/love-at-first-sight)
+- [Adopted this sweet girl and bringing her home on Saturday! Name ideas?](https://news.puppy-snuggles.com/31856505/adopted-this-sweet-girl-and-bringing-her-home-on-saturday-name-ideas)
+- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
+- [This is Pickles, 13 years old](https://news.puppy-snuggles.com/24531940/this-is-pickles-13-years-old)
+- [cutest boi❤️](https://news.puppy-snuggles.com/19806093/cutest-boi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
