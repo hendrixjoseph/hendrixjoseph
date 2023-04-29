@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love at first sight](https://news.puppy-snuggles.com/32025790/love-at-first-sight)
-- [Adopted this sweet girl and bringing her home on Saturday! Name ideas?](https://news.puppy-snuggles.com/31856505/adopted-this-sweet-girl-and-bringing-her-home-on-saturday-name-ideas)
-- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
-- [This is Pickles, 13 years old](https://news.puppy-snuggles.com/24531940/this-is-pickles-13-years-old)
-- [cutest boi❤️](https://news.puppy-snuggles.com/19806093/cutest-boi)
+- [Taming the wild beast](https://news.puppy-snuggles.com/32090759/taming-the-wild-beast)
+- [Guys i need need help naming this boy dog!](https://news.puppy-snuggles.com/24763104/guys-i-need-need-help-naming-this-boy-dog)
+- [Happy 11th Birthday Bagheera. I love you buddy.](https://news.puppy-snuggles.com/16403342/happy-11th-birthday-bagheera-i-love-you-buddy)
+- [The INTENSITY](https://news.puppy-snuggles.com/15550212/the-intensity)
+- [Rio’s weekend mode on!](https://news.puppy-snuggles.com/14582640/rios-weekend-mode-on)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
