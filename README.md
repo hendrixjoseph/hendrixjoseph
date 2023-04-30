@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekend Help and Victory Thread for the week of April 28, 2023](https://www.reddit.com/r/personalfinance/comments/1329nc4/weekend_help_and_victory_thread_for_the_week_of/ji7jtew/)
+- [/u/joehx on Full disclosure: somehow the voyage I sent off before this one came right back. Probably my fault and it did set off with same name, and that was on one of the most phallic ships in the game. And afterwards I switched the genders and that worked fine. But I got kinda mad a second there.](https://www.reddit.com/r/StarTrekTimelines/comments/132eieg/full_disclosure_somehow_the_voyage_i_sent_off/ji7146b/)
+- [What are some of the best text-only memes?](https://www.reddit.com/r/AskReddit/comments/132sc5w/what_are_some_of_the_best_textonly_memes/)
 - [/u/joehx on How did you exercise today?](https://www.reddit.com/r/AskReddit/comments/12vhsrm/how_did_you_exercise_today/jhbgan0/)
 - [/u/joehx on Book readers of reddit do you read the acknowledgement and forwards of books? If so why?!](https://www.reddit.com/r/AskReddit/comments/12omwdz/book_readers_of_reddit_do_you_read_the/jgiv6jc/)
-- [/u/joehx on What is MS in Comp Sci like?](https://www.reddit.com/r/computerscience/comments/12ngpsy/what_is_ms_in_comp_sci_like/jgehnic/)
-- [/u/joehx on Daily FI discussion thread - Thursday, March 30, 2023](https://www.reddit.com/r/financialindependence/comments/126h7k4/daily_fi_discussion_thread_thursday_march_30_2023/je9si4x/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2023](https://www.reddit.com/r/cscareerquestions/comments/11uh1k1/official_salary_sharing_thread_for_experienced/jcyqe8y/)
 <!-- REDDIT:END -->
