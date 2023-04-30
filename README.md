@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Taming the wild beast](https://news.puppy-snuggles.com/32090759/taming-the-wild-beast)
-- [Guys i need need help naming this boy dog!](https://news.puppy-snuggles.com/24763104/guys-i-need-need-help-naming-this-boy-dog)
-- [Happy 11th Birthday Bagheera. I love you buddy.](https://news.puppy-snuggles.com/16403342/happy-11th-birthday-bagheera-i-love-you-buddy)
-- [The INTENSITY](https://news.puppy-snuggles.com/15550212/the-intensity)
-- [Rio’s weekend mode on!](https://news.puppy-snuggles.com/14582640/rios-weekend-mode-on)
+- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
+- [Hi! hope u enjoy my furiend pawtraits I did recently!](https://news.puppy-snuggles.com/32157120/hi-hope-u-enjoy-my-furiend-pawtraits-i-did-recently)
+- [Smiley old girl!](https://news.puppy-snuggles.com/20023859/smiley-old-girl)
+- [Mr Hank](https://news.puppy-snuggles.com/20006269/mr-hank)
+- [6 dogs recovered, 4 found dead at &amp;#039;unlivable&amp;#039; home in West Ashley](https://news.puppy-snuggles.com/19566254/6-dogs-recovered-4-found-dead-at-unlivable-home-in-west-ashley)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
