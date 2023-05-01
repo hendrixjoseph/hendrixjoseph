@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
-- [Hi! hope u enjoy my furiend pawtraits I did recently!](https://news.puppy-snuggles.com/32157120/hi-hope-u-enjoy-my-furiend-pawtraits-i-did-recently)
-- [Smiley old girl!](https://news.puppy-snuggles.com/20023859/smiley-old-girl)
-- [Mr Hank](https://news.puppy-snuggles.com/20006269/mr-hank)
-- [6 dogs recovered, 4 found dead at &amp;#039;unlivable&amp;#039; home in West Ashley](https://news.puppy-snuggles.com/19566254/6-dogs-recovered-4-found-dead-at-unlivable-home-in-west-ashley)
+- [Some of you may remember Samwise, the dog that followed me in the oilfield until I took him home. Here&amp;#039;s some updated photos.](https://news.puppy-snuggles.com/23864100/some-of-you-may-remember-samwise-the-dog-that-followed-me-in-the-oilfield-until-i-took-him-home-heres-some-updated-photos)
+- [Puppy and a butterfly.](https://news.puppy-snuggles.com/20097115/puppy-and-a-butterfly)
+- [Our great dane sitting on top of our driveway watching the birds](https://news.puppy-snuggles.com/19842023/our-great-dane-sitting-on-top-of-our-driveway-watching-the-birds)
+- [Happy Dogo loves his ball](https://news.puppy-snuggles.com/19821361/happy-dogo-loves-his-ball)
+- [Who is the handsom-est boy?](https://news.puppy-snuggles.com/19589475/who-is-the-handsom-est-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
