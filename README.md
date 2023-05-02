@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Some of you may remember Samwise, the dog that followed me in the oilfield until I took him home. Here&amp;#039;s some updated photos.](https://news.puppy-snuggles.com/23864100/some-of-you-may-remember-samwise-the-dog-that-followed-me-in-the-oilfield-until-i-took-him-home-heres-some-updated-photos)
-- [Puppy and a butterfly.](https://news.puppy-snuggles.com/20097115/puppy-and-a-butterfly)
-- [Our great dane sitting on top of our driveway watching the birds](https://news.puppy-snuggles.com/19842023/our-great-dane-sitting-on-top-of-our-driveway-watching-the-birds)
-- [Happy Dogo loves his ball](https://news.puppy-snuggles.com/19821361/happy-dogo-loves-his-ball)
-- [Who is the handsom-est boy?](https://news.puppy-snuggles.com/19589475/who-is-the-handsom-est-boy)
+- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
+- [just a dog and a rabbit watching a movie](https://news.puppy-snuggles.com/20277055/just-a-dog-and-a-rabbit-watching-a-movie)
+- [Majestic? Yes. Still my puppy? Definitely!](https://news.puppy-snuggles.com/19188683/majestic-yes-still-my-puppy-definitely)
+- [pupy and lucky](https://news.puppy-snuggles.com/18942570/pupy-and-lucky)
+- [I’ve been a professional dog walker for 7 years… and can you believe this is my first golden retriever?! I’m so insanely happy 😍](https://news.puppy-snuggles.com/18735666/ive-been-a-professional-dog-walker-for-7-years-and-can-you-believe-this-is-my-first-golden-retriever-im-so-insanely-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
