@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
-- [just a dog and a rabbit watching a movie](https://news.puppy-snuggles.com/20277055/just-a-dog-and-a-rabbit-watching-a-movie)
-- [Majestic? Yes. Still my puppy? Definitely!](https://news.puppy-snuggles.com/19188683/majestic-yes-still-my-puppy-definitely)
-- [pupy and lucky](https://news.puppy-snuggles.com/18942570/pupy-and-lucky)
-- [I’ve been a professional dog walker for 7 years… and can you believe this is my first golden retriever?! I’m so insanely happy 😍](https://news.puppy-snuggles.com/18735666/ive-been-a-professional-dog-walker-for-7-years-and-can-you-believe-this-is-my-first-golden-retriever-im-so-insanely-happy)
+- [Because who can’t resist this cutie?! Pan is only 14 weeks and an Australian cattle dog/Heeler](https://news.puppy-snuggles.com/32375229/because-who-cant-resist-this-cutie-pan-is-only-14-weeks-and-an-australian-cattle-dogheeler)
+- [Recently adopted this little guy. I never get tired of that smile!](https://news.puppy-snuggles.com/23451211/recently-adopted-this-little-guy-i-never-get-tired-of-that-smile)
+- [Smiling and sitting in a water bowl....not even his water bowl...](https://news.puppy-snuggles.com/14372682/smiling-and-sitting-in-a-water-bowlnot-even-his-water-bowl)
+- [Fostering the two cutest hounds I have ever seen. Smart, loving, playful, and full of attitude. Aurora and Gus leave for their forever homes the first week of March.](https://news.puppy-snuggles.com/14309354/fostering-the-two-cutest-hounds-i-have-ever-seen-smart-loving-playful-and-full-of-attitude-aurora-and-gus-leave-for-their-forever-homes-the-first-week-of-march)
+- [From Sheep Loyal&amp;#039;s Instagram Page](https://news.puppy-snuggles.com/14198108/from-sheep-loyals-instagram-page)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
