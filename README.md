@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Because who can’t resist this cutie?! Pan is only 14 weeks and an Australian cattle dog/Heeler](https://news.puppy-snuggles.com/32375229/because-who-cant-resist-this-cutie-pan-is-only-14-weeks-and-an-australian-cattle-dogheeler)
-- [Recently adopted this little guy. I never get tired of that smile!](https://news.puppy-snuggles.com/23451211/recently-adopted-this-little-guy-i-never-get-tired-of-that-smile)
-- [Smiling and sitting in a water bowl....not even his water bowl...](https://news.puppy-snuggles.com/14372682/smiling-and-sitting-in-a-water-bowlnot-even-his-water-bowl)
-- [Fostering the two cutest hounds I have ever seen. Smart, loving, playful, and full of attitude. Aurora and Gus leave for their forever homes the first week of March.](https://news.puppy-snuggles.com/14309354/fostering-the-two-cutest-hounds-i-have-ever-seen-smart-loving-playful-and-full-of-attitude-aurora-and-gus-leave-for-their-forever-homes-the-first-week-of-march)
-- [From Sheep Loyal&amp;#039;s Instagram Page](https://news.puppy-snuggles.com/14198108/from-sheep-loyals-instagram-page)
+- [Yesterday was my last day as an Amazon delivery driver, this sweetheart came to say “bye bye!”](https://news.puppy-snuggles.com/27532086/yesterday-was-my-last-day-as-an-amazon-delivery-driver-this-sweetheart-came-to-say-bye-bye)
+- [My boy and his precious little smile](https://news.puppy-snuggles.com/27498746/my-boy-and-his-precious-little-smile)
+- [Levi turned 2 today. He is so happy in his new home. More in comments](https://news.puppy-snuggles.com/27232721/levi-turned-2-today-he-is-so-happy-in-his-new-home-more-in-comments)
+- [Adopted this sweet boy from the shelter today. He was dumped at the side of the road! Some people don&amp;#039;t deserve dogs :&lpar;](https://news.puppy-snuggles.com/26892873/adopted-this-sweet-boy-from-the-shelter-today-he-was-dumped-at-the-side-of-the-road-some-people-dont-deserve-dogs)
+- [Netflix &amp;amp;amp; Chill](https://news.puppy-snuggles.com/24272076/netflix-amp-chill)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
