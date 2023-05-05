@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yesterday was my last day as an Amazon delivery driver, this sweetheart came to say “bye bye!”](https://news.puppy-snuggles.com/27532086/yesterday-was-my-last-day-as-an-amazon-delivery-driver-this-sweetheart-came-to-say-bye-bye)
-- [My boy and his precious little smile](https://news.puppy-snuggles.com/27498746/my-boy-and-his-precious-little-smile)
-- [Levi turned 2 today. He is so happy in his new home. More in comments](https://news.puppy-snuggles.com/27232721/levi-turned-2-today-he-is-so-happy-in-his-new-home-more-in-comments)
-- [Adopted this sweet boy from the shelter today. He was dumped at the side of the road! Some people don&amp;#039;t deserve dogs :&lpar;](https://news.puppy-snuggles.com/26892873/adopted-this-sweet-boy-from-the-shelter-today-he-was-dumped-at-the-side-of-the-road-some-people-dont-deserve-dogs)
-- [Netflix &amp;amp;amp; Chill](https://news.puppy-snuggles.com/24272076/netflix-amp-chill)
+- [Leo decided to enjoy a beach vacation and feel like a real Instagram star - no wave can stop him from looking beautiful and smiling for the camera!](https://news.puppy-snuggles.com/32533192/leo-decided-to-enjoy-a-beach-vacation-and-feel-like-a-real-instagram-star-no-wave-can-stop-him-from-looking-beautiful-and-smiling-for-the-camera)
+- [just wanted to show y&amp;#039;all my beautiful boy billy](https://news.puppy-snuggles.com/24138756/just-wanted-to-show-yall-my-beautiful-boy-billy)
+- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
+- [I got to meet my grandpups 🐾🐾❤️](https://news.puppy-snuggles.com/23507454/i-got-to-meet-my-grandpups)
+- [How should we name here](https://news.puppy-snuggles.com/23072307/how-should-we-name-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
