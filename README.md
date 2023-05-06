@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Leo decided to enjoy a beach vacation and feel like a real Instagram star - no wave can stop him from looking beautiful and smiling for the camera!](https://news.puppy-snuggles.com/32533192/leo-decided-to-enjoy-a-beach-vacation-and-feel-like-a-real-instagram-star-no-wave-can-stop-him-from-looking-beautiful-and-smiling-for-the-camera)
-- [just wanted to show y&amp;#039;all my beautiful boy billy](https://news.puppy-snuggles.com/24138756/just-wanted-to-show-yall-my-beautiful-boy-billy)
-- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
-- [I got to meet my grandpups 🐾🐾❤️](https://news.puppy-snuggles.com/23507454/i-got-to-meet-my-grandpups)
-- [How should we name here](https://news.puppy-snuggles.com/23072307/how-should-we-name-here)
+- [My Big Boy’s Smiles Always Brighten My Day](https://news.puppy-snuggles.com/31938242/my-big-boys-smiles-always-brighten-my-day)
+- [Laurent the swimmer!](https://news.puppy-snuggles.com/20182540/laurent-the-swimmer)
+- [Is my dog broken?](https://news.puppy-snuggles.com/19877810/is-my-dog-broken)
+- [Just a cutie looking cute.](https://news.puppy-snuggles.com/19433995/just-a-cutie-looking-cute)
+- [Best farm dog ever. Tomorrow is his last day. Thank You King Dog for the wonderful 14 years!](https://news.puppy-snuggles.com/18869064/best-farm-dog-ever-tomorrow-is-his-last-day-thank-you-king-dog-for-the-wonderful-14-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
