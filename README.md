@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Big Boy’s Smiles Always Brighten My Day](https://news.puppy-snuggles.com/31938242/my-big-boys-smiles-always-brighten-my-day)
-- [Laurent the swimmer!](https://news.puppy-snuggles.com/20182540/laurent-the-swimmer)
-- [Is my dog broken?](https://news.puppy-snuggles.com/19877810/is-my-dog-broken)
-- [Just a cutie looking cute.](https://news.puppy-snuggles.com/19433995/just-a-cutie-looking-cute)
-- [Best farm dog ever. Tomorrow is his last day. Thank You King Dog for the wonderful 14 years!](https://news.puppy-snuggles.com/18869064/best-farm-dog-ever-tomorrow-is-his-last-day-thank-you-king-dog-for-the-wonderful-14-years)
+- [Is he not just the cutest boy❤️ what does everyone think his breed is :&rpar;](https://news.puppy-snuggles.com/23631322/is-he-not-just-the-cutest-boy-what-does-everyone-think-his-breed-is)
+- [This is Stella, a rescue from Mexico who went unadopted for 3 months before falling into my lap](https://news.puppy-snuggles.com/23618732/this-is-stella-a-rescue-from-mexico-who-went-unadopted-for-3-months-before-falling-into-my-lap)
+- [His smiles are infectious](https://news.puppy-snuggles.com/23541196/his-smiles-are-infectious)
+- [Kimber this morning &lpar;photos taken by partner not me I just love how she looks&rpar;](https://news.puppy-snuggles.com/23541195/kimber-this-morning-photos-taken-by-partner-not-me-i-just-love-how-she-looks)
+- [Someone wants all the pets](https://news.puppy-snuggles.com/23451209/someone-wants-all-the-pets)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
