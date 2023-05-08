@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is he not just the cutest boy❤️ what does everyone think his breed is :&rpar;](https://news.puppy-snuggles.com/23631322/is-he-not-just-the-cutest-boy-what-does-everyone-think-his-breed-is)
-- [This is Stella, a rescue from Mexico who went unadopted for 3 months before falling into my lap](https://news.puppy-snuggles.com/23618732/this-is-stella-a-rescue-from-mexico-who-went-unadopted-for-3-months-before-falling-into-my-lap)
-- [His smiles are infectious](https://news.puppy-snuggles.com/23541196/his-smiles-are-infectious)
-- [Kimber this morning &lpar;photos taken by partner not me I just love how she looks&rpar;](https://news.puppy-snuggles.com/23541195/kimber-this-morning-photos-taken-by-partner-not-me-i-just-love-how-she-looks)
-- [Someone wants all the pets](https://news.puppy-snuggles.com/23451209/someone-wants-all-the-pets)
+- [Just a couple nice shots of my boys](https://news.puppy-snuggles.com/32729682/just-a-couple-nice-shots-of-my-boys)
+- [Happy Sunday Morning💕](https://news.puppy-snuggles.com/32729681/happy-sunday-morning)
+- [My Big Boy’s Smiles Always Brighten My Day](https://news.puppy-snuggles.com/31938242/my-big-boys-smiles-always-brighten-my-day)
+- [Funny games with my cute dog](https://news.puppy-snuggles.com/29668080/funny-games-with-my-cute-dog)
+- [All smiles](https://news.puppy-snuggles.com/27732073/all-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
