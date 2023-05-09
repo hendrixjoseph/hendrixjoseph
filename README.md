@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a couple nice shots of my boys](https://news.puppy-snuggles.com/32729682/just-a-couple-nice-shots-of-my-boys)
-- [Happy Sunday Morning💕](https://news.puppy-snuggles.com/32729681/happy-sunday-morning)
-- [My Big Boy’s Smiles Always Brighten My Day](https://news.puppy-snuggles.com/31938242/my-big-boys-smiles-always-brighten-my-day)
-- [Funny games with my cute dog](https://news.puppy-snuggles.com/29668080/funny-games-with-my-cute-dog)
-- [All smiles](https://news.puppy-snuggles.com/27732073/all-smiles)
+- [It doesn&amp;#039;t even require words.](https://news.puppy-snuggles.com/32622427/it-doesnt-even-require-words)
+- [Dog Paws](https://news.puppy-snuggles.com/17894244/dog-paws)
+- [impossible to not smile while watching this](https://news.puppy-snuggles.com/17405671/impossible-to-not-smile-while-watching-this)
+- [Moments before her walk.](https://news.puppy-snuggles.com/16486971/moments-before-her-walk)
+- [Tuukka has decided he knows I’m in pain with a migraine so he’s going to cure it with cuddles. Hasn’t left my side.](https://news.puppy-snuggles.com/14668970/tuukka-has-decided-he-knows-im-in-pain-with-a-migraine-so-hes-going-to-cure-it-with-cuddles-hasnt-left-my-side)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
