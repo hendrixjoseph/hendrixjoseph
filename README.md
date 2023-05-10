@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It doesn&amp;#039;t even require words.](https://news.puppy-snuggles.com/32622427/it-doesnt-even-require-words)
-- [Dog Paws](https://news.puppy-snuggles.com/17894244/dog-paws)
-- [impossible to not smile while watching this](https://news.puppy-snuggles.com/17405671/impossible-to-not-smile-while-watching-this)
-- [Moments before her walk.](https://news.puppy-snuggles.com/16486971/moments-before-her-walk)
-- [Tuukka has decided he knows I’m in pain with a migraine so he’s going to cure it with cuddles. Hasn’t left my side.](https://news.puppy-snuggles.com/14668970/tuukka-has-decided-he-knows-im-in-pain-with-a-migraine-so-hes-going-to-cure-it-with-cuddles-hasnt-left-my-side)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [It&amp;#039;s been one day and the house is so quiet. She had a long life &lpar;2006 - 2022&rpar;. I love you and will always miss you.](https://news.puppy-snuggles.com/22819247/its-been-one-day-and-the-house-is-so-quiet-she-had-a-long-life-2006-2022-i-love-you-and-will-always-miss-you)
+- [Derpy McDerpface &lpar;actually it&amp;#039;s Brady&rpar; being a good boi as usual](https://news.puppy-snuggles.com/22405818/derpy-mcderpface-actually-its-brady-being-a-good-boi-as-usual)
+- [I like his curly ears](https://news.puppy-snuggles.com/22055480/i-like-his-curly-ears)
+- [So happy to be out with his doggy Brother 💕](https://news.puppy-snuggles.com/21815834/so-happy-to-be-out-with-his-doggy-brother)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
