@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [It&amp;#039;s been one day and the house is so quiet. She had a long life &lpar;2006 - 2022&rpar;. I love you and will always miss you.](https://news.puppy-snuggles.com/22819247/its-been-one-day-and-the-house-is-so-quiet-she-had-a-long-life-2006-2022-i-love-you-and-will-always-miss-you)
-- [Derpy McDerpface &lpar;actually it&amp;#039;s Brady&rpar; being a good boi as usual](https://news.puppy-snuggles.com/22405818/derpy-mcderpface-actually-its-brady-being-a-good-boi-as-usual)
-- [I like his curly ears](https://news.puppy-snuggles.com/22055480/i-like-his-curly-ears)
-- [So happy to be out with his doggy Brother 💕](https://news.puppy-snuggles.com/21815834/so-happy-to-be-out-with-his-doggy-brother)
+- [Daisy smiles are contagious](https://news.puppy-snuggles.com/32954639/daisy-smiles-are-contagious)
+- [3 months - - &amp;amp;gt; 1 year old](https://news.puppy-snuggles.com/24402195/3-months-gt-1-year-old)
+- [My dog looks like he just told a joke and is waiting for everyone to laugh 😆](https://news.puppy-snuggles.com/19821364/my-dog-looks-like-he-just-told-a-joke-and-is-waiting-for-everyone-to-laugh)
+- [Coco says hello 🦊☺️](https://news.puppy-snuggles.com/18028941/coco-says-hello)
+- [I love you very much. You are a good child.](https://news.puppy-snuggles.com/17239353/i-love-you-very-much-you-are-a-good-child)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
