@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekday Help and Victory Thread for the week of May 08, 2023](https://www.reddit.com/r/personalfinance/comments/13bllij/weekday_help_and_victory_thread_for_the_week_of/jjqo8o3/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of May 08, 2023](https://www.reddit.com/r/personalfinance/comments/13bllij/weekday_help_and_victory_thread_for_the_week_of/jjqnwgb/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, May 10, 2023](https://www.reddit.com/r/financialindependence/comments/13dkwki/daily_fi_discussion_thread_wednesday_may_10_2023/jjmikn9/)
 - [/u/joehx on Is it ok to slightly lie in behavioral questions?](https://www.reddit.com/r/cscareerquestions/comments/13cj4d4/is_it_ok_to_slightly_lie_in_behavioral_questions/jjgscav/)
 - [/u/joehx on What &quot;obsolete&quot; companies are you surprised are still holding on in the modern world?](https://www.reddit.com/r/AskReddit/comments/1385is5/what_obsolete_companies_are_you_surprised_are/jiycqms/)
-- [/u/joehx on Exclude tag in filter](https://www.reddit.com/r/mintuit/comments/1360g0w/exclude_tag_in_filter/jimh8os/)
-- [/u/joehx on Weekend Help and Victory Thread for the week of April 28, 2023](https://www.reddit.com/r/personalfinance/comments/1329nc4/weekend_help_and_victory_thread_for_the_week_of/ji7jtew/)
 <!-- REDDIT:END -->
