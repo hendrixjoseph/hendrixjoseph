@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daisy smiles are contagious](https://news.puppy-snuggles.com/32954639/daisy-smiles-are-contagious)
-- [3 months - - &amp;amp;gt; 1 year old](https://news.puppy-snuggles.com/24402195/3-months-gt-1-year-old)
-- [My dog looks like he just told a joke and is waiting for everyone to laugh 😆](https://news.puppy-snuggles.com/19821364/my-dog-looks-like-he-just-told-a-joke-and-is-waiting-for-everyone-to-laugh)
-- [Coco says hello 🦊☺️](https://news.puppy-snuggles.com/18028941/coco-says-hello)
-- [I love you very much. You are a good child.](https://news.puppy-snuggles.com/17239353/i-love-you-very-much-you-are-a-good-child)
+- [Hands down best haircut video I have ever seen.](https://news.puppy-snuggles.com/31961143/hands-down-best-haircut-video-i-have-ever-seen)
+- [smile for the treats](https://news.puppy-snuggles.com/23864102/smile-for-the-treats)
+- [foxy eyes😁🥹🩷](https://news.puppy-snuggles.com/23719556/foxy-eyes)
+- [Today you picked us to be your new family… Hello Sif 👋](https://news.puppy-snuggles.com/18705481/today-you-picked-us-to-be-your-new-family-hello-sif)
+- [Guys I found a pile of mashed potatoes](https://news.puppy-snuggles.com/14803417/guys-i-found-a-pile-of-mashed-potatoes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
