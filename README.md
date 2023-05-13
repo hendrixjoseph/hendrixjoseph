@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What actually stops the creation of a fuel-type similar to gasoline that has minimal to no pollution?](https://www.reddit.com/r/AskReddit/comments/13g26xc/what_actually_stops_the_creation_of_a_fueltype/jjxya9n/)
+- [/u/joehx on Who might be the least known Superhero?](https://www.reddit.com/r/AskReddit/comments/13g1bey/who_might_be_the_least_known_superhero/jjxv8lo/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of May 08, 2023](https://www.reddit.com/r/personalfinance/comments/13bllij/weekday_help_and_victory_thread_for_the_week_of/jjqo8o3/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of May 08, 2023](https://www.reddit.com/r/personalfinance/comments/13bllij/weekday_help_and_victory_thread_for_the_week_of/jjqnwgb/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, May 10, 2023](https://www.reddit.com/r/financialindependence/comments/13dkwki/daily_fi_discussion_thread_wednesday_may_10_2023/jjmikn9/)
-- [/u/joehx on Is it ok to slightly lie in behavioral questions?](https://www.reddit.com/r/cscareerquestions/comments/13cj4d4/is_it_ok_to_slightly_lie_in_behavioral_questions/jjgscav/)
-- [/u/joehx on What &quot;obsolete&quot; companies are you surprised are still holding on in the modern world?](https://www.reddit.com/r/AskReddit/comments/1385is5/what_obsolete_companies_are_you_surprised_are/jiycqms/)
 <!-- REDDIT:END -->
