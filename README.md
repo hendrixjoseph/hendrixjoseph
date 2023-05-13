@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hands down best haircut video I have ever seen.](https://news.puppy-snuggles.com/31961143/hands-down-best-haircut-video-i-have-ever-seen)
-- [smile for the treats](https://news.puppy-snuggles.com/23864102/smile-for-the-treats)
-- [foxy eyes😁🥹🩷](https://news.puppy-snuggles.com/23719556/foxy-eyes)
-- [Today you picked us to be your new family… Hello Sif 👋](https://news.puppy-snuggles.com/18705481/today-you-picked-us-to-be-your-new-family-hello-sif)
-- [Guys I found a pile of mashed potatoes](https://news.puppy-snuggles.com/14803417/guys-i-found-a-pile-of-mashed-potatoes)
+- [Let drive him to the trampolines](https://news.puppy-snuggles.com/33116968/let-drive-him-to-the-trampolines)
+- [A good boy morning](https://news.puppy-snuggles.com/32157121/a-good-boy-morning)
+- [taking rest](https://news.puppy-snuggles.com/30474741/taking-rest)
+- [Long day 🤣🐾](https://news.puppy-snuggles.com/23988315/long-day)
+- [This is Moo. He does not know personal space.](https://news.puppy-snuggles.com/22716973/this-is-moo-he-does-not-know-personal-space)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
