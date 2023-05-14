@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let drive him to the trampolines](https://news.puppy-snuggles.com/33116968/let-drive-him-to-the-trampolines)
-- [A good boy morning](https://news.puppy-snuggles.com/32157121/a-good-boy-morning)
-- [taking rest](https://news.puppy-snuggles.com/30474741/taking-rest)
-- [Long day 🤣🐾](https://news.puppy-snuggles.com/23988315/long-day)
-- [This is Moo. He does not know personal space.](https://news.puppy-snuggles.com/22716973/this-is-moo-he-does-not-know-personal-space)
+- [I made a leather keychain with a painting/sculpture technique, this dog belongs to a friend and I got a comment about pet memorials, would that be a good thing to receive?](https://news.puppy-snuggles.com/33175285/i-made-a-leather-keychain-with-a-paintingsculpture-technique-this-dog-belongs-to-a-friend-and-i-got-a-comment-about-pet-memorials-would-that-be-a-good-thing-to-receive)
+- [Rate my the doggo](https://news.puppy-snuggles.com/33175278/rate-my-the-doggo)
+- [Best week I could offer](https://news.puppy-snuggles.com/33175282/best-week-i-could-offer)
+- [What should I name her?](https://news.puppy-snuggles.com/33175284/what-should-i-name-her)
+- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
