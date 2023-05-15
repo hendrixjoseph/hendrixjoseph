@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I made a leather keychain with a painting/sculpture technique, this dog belongs to a friend and I got a comment about pet memorials, would that be a good thing to receive?](https://news.puppy-snuggles.com/33175285/i-made-a-leather-keychain-with-a-paintingsculpture-technique-this-dog-belongs-to-a-friend-and-i-got-a-comment-about-pet-memorials-would-that-be-a-good-thing-to-receive)
-- [Rate my the doggo](https://news.puppy-snuggles.com/33175278/rate-my-the-doggo)
-- [Best week I could offer](https://news.puppy-snuggles.com/33175282/best-week-i-could-offer)
-- [What should I name her?](https://news.puppy-snuggles.com/33175284/what-should-i-name-her)
-- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
+- [This is Growlithe, our Husky/Lab mix. Found him after a hurricane as a puppy.](https://news.puppy-snuggles.com/22652478/this-is-growlithe-our-huskylab-mix-found-him-after-a-hurricane-as-a-puppy)
+- [She is there for comfort when needed](https://news.puppy-snuggles.com/22170108/she-is-there-for-comfort-when-needed)
+- [My one eyed good girl “Ella”](https://news.puppy-snuggles.com/21390967/my-one-eyed-good-girl-ella)
+- [2-Months Old VS 10-Months Old](https://news.puppy-snuggles.com/20053868/2-months-old-vs-10-months-old)
+- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
