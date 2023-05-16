@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Growlithe, our Husky/Lab mix. Found him after a hurricane as a puppy.](https://news.puppy-snuggles.com/22652478/this-is-growlithe-our-huskylab-mix-found-him-after-a-hurricane-as-a-puppy)
-- [She is there for comfort when needed](https://news.puppy-snuggles.com/22170108/she-is-there-for-comfort-when-needed)
-- [My one eyed good girl “Ella”](https://news.puppy-snuggles.com/21390967/my-one-eyed-good-girl-ella)
-- [2-Months Old VS 10-Months Old](https://news.puppy-snuggles.com/20053868/2-months-old-vs-10-months-old)
-- [My mum&amp;#039;s dog passed away this morning. This was the last pic I took him last week before the sudden news. Rest in Doggo Paradise Rex, we love you ❤️](https://news.puppy-snuggles.com/19525825/my-mums-dog-passed-away-this-morning-this-was-the-last-pic-i-took-him-last-week-before-the-sudden-news-rest-in-doggo-paradise-rex-we-love-you)
+- [Hi friends come enjoy with me!](https://news.puppy-snuggles.com/33335474/hi-friends-come-enjoy-with-me)
+- [Happy 2nd gotcha day!](https://news.puppy-snuggles.com/33314741/happy-2nd-gotcha-day)
+- [Caleb &lpar;Alaskan Malamute&rpar; and Pharaoh &lpar;cat&rpar; are aspiring thieves](https://news.puppy-snuggles.com/23498671/caleb-alaskan-malamute-and-pharaoh-cat-are-aspiring-thieves)
+- [Woke up to this before school today. She’s Such a good puppy](https://news.puppy-snuggles.com/23360379/woke-up-to-this-before-school-today-shes-such-a-good-puppy)
+- [Our sweet Momo has crossed the rainbow road](https://news.puppy-snuggles.com/23037452/our-sweet-momo-has-crossed-the-rainbow-road)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
