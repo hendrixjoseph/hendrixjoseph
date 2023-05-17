@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi friends come enjoy with me!](https://news.puppy-snuggles.com/33335474/hi-friends-come-enjoy-with-me)
-- [Happy 2nd gotcha day!](https://news.puppy-snuggles.com/33314741/happy-2nd-gotcha-day)
-- [Caleb &lpar;Alaskan Malamute&rpar; and Pharaoh &lpar;cat&rpar; are aspiring thieves](https://news.puppy-snuggles.com/23498671/caleb-alaskan-malamute-and-pharaoh-cat-are-aspiring-thieves)
-- [Woke up to this before school today. She’s Such a good puppy](https://news.puppy-snuggles.com/23360379/woke-up-to-this-before-school-today-shes-such-a-good-puppy)
-- [Our sweet Momo has crossed the rainbow road](https://news.puppy-snuggles.com/23037452/our-sweet-momo-has-crossed-the-rainbow-road)
+- [Hello my name is Smily I wish you a very nice day with a smile!](https://news.puppy-snuggles.com/31367338/hello-my-name-is-smily-i-wish-you-a-very-nice-day-with-a-smile)
+- [Goodbye, Sugar. We only had two years together but this 13 y/o rescue really was the sweetest dog.](https://news.puppy-snuggles.com/24138754/goodbye-sugar-we-only-had-two-years-together-but-this-13-yo-rescue-really-was-the-sweetest-dog)
+- [Someone loves wedging himself in the couch](https://news.puppy-snuggles.com/23931069/someone-loves-wedging-himself-in-the-couch)
+- [dog have emotion](https://news.puppy-snuggles.com/23498672/dog-have-emotion)
+- [Hat &lpar;OC&rpar;](https://news.puppy-snuggles.com/21792186/hat-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
