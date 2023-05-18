@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello my name is Smily I wish you a very nice day with a smile!](https://news.puppy-snuggles.com/31367338/hello-my-name-is-smily-i-wish-you-a-very-nice-day-with-a-smile)
-- [Goodbye, Sugar. We only had two years together but this 13 y/o rescue really was the sweetest dog.](https://news.puppy-snuggles.com/24138754/goodbye-sugar-we-only-had-two-years-together-but-this-13-yo-rescue-really-was-the-sweetest-dog)
-- [Someone loves wedging himself in the couch](https://news.puppy-snuggles.com/23931069/someone-loves-wedging-himself-in-the-couch)
-- [dog have emotion](https://news.puppy-snuggles.com/23498672/dog-have-emotion)
-- [Hat &lpar;OC&rpar;](https://news.puppy-snuggles.com/21792186/hat-oc)
+- [little demon](https://news.puppy-snuggles.com/33495927/little-demon)
+- [Cutest fella you&amp;#039;ll see today for sure!](https://news.puppy-snuggles.com/33495926/cutest-fella-youll-see-today-for-sure)
+- [Handsome boy](https://news.puppy-snuggles.com/33475563/handsome-boy)
+- [Emaciated female dog found along Berks road and dead puppies later found in a bag under investigation](https://news.puppy-snuggles.com/32941882/emaciated-female-dog-found-along-berks-road-and-dead-puppies-later-found-in-a-bag-under-investigation)
+- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
