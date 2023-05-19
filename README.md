@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [little demon](https://news.puppy-snuggles.com/33495927/little-demon)
-- [Cutest fella you&amp;#039;ll see today for sure!](https://news.puppy-snuggles.com/33495926/cutest-fella-youll-see-today-for-sure)
-- [Handsome boy](https://news.puppy-snuggles.com/33475563/handsome-boy)
-- [Emaciated female dog found along Berks road and dead puppies later found in a bag under investigation](https://news.puppy-snuggles.com/32941882/emaciated-female-dog-found-along-berks-road-and-dead-puppies-later-found-in-a-bag-under-investigation)
-- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
+- [Just found this little girl on a busy road, was very dirty and covered in these little burrs. Gave her a bath and got most of the burrs out. My elder dog, Mr. Gibbs has a new best friend. Unfortunately, the owners did not get the dog chipped, nor had a tag on the collar. :&lpar;](https://news.puppy-snuggles.com/32834574/just-found-this-little-girl-on-a-busy-road-was-very-dirty-and-covered-in-these-little-burrs-gave-her-a-bath-and-got-most-of-the-burrs-out-my-elder-dog-mr-gibbs-has-a-new-best-friend-unfortunately-the-owners-did-not-get-the-dog-chipped-nor-had-a-tag-on-the-collar)
+- [Preparing a Pet Dog for a Movie](https://news.puppy-snuggles.com/32114860/preparing-a-pet-dog-for-a-movie)
+- [RIP PJ may 30, 2012 - december 7, 2022. My best friend ever, I cant wait to see you again](https://news.puppy-snuggles.com/23644213/rip-pj-may-30-2012-december-7-2022-my-best-friend-ever-i-cant-wait-to-see-you-again)
+- [Pierre the Husky &amp;amp;amp; Queen Elizabeth the Saarlooswolfdog](https://news.puppy-snuggles.com/22674536/pierre-the-husky-amp-queen-elizabeth-the-saarlooswolfdog)
+- [Thanks for 13 years, Ozzie. We will always be best friends.](https://news.puppy-snuggles.com/21985689/thanks-for-13-years-ozzie-we-will-always-be-best-friends)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
