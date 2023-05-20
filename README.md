@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just found this little girl on a busy road, was very dirty and covered in these little burrs. Gave her a bath and got most of the burrs out. My elder dog, Mr. Gibbs has a new best friend. Unfortunately, the owners did not get the dog chipped, nor had a tag on the collar. :&lpar;](https://news.puppy-snuggles.com/32834574/just-found-this-little-girl-on-a-busy-road-was-very-dirty-and-covered-in-these-little-burrs-gave-her-a-bath-and-got-most-of-the-burrs-out-my-elder-dog-mr-gibbs-has-a-new-best-friend-unfortunately-the-owners-did-not-get-the-dog-chipped-nor-had-a-tag-on-the-collar)
-- [Preparing a Pet Dog for a Movie](https://news.puppy-snuggles.com/32114860/preparing-a-pet-dog-for-a-movie)
-- [RIP PJ may 30, 2012 - december 7, 2022. My best friend ever, I cant wait to see you again](https://news.puppy-snuggles.com/23644213/rip-pj-may-30-2012-december-7-2022-my-best-friend-ever-i-cant-wait-to-see-you-again)
-- [Pierre the Husky &amp;amp;amp; Queen Elizabeth the Saarlooswolfdog](https://news.puppy-snuggles.com/22674536/pierre-the-husky-amp-queen-elizabeth-the-saarlooswolfdog)
-- [Thanks for 13 years, Ozzie. We will always be best friends.](https://news.puppy-snuggles.com/21985689/thanks-for-13-years-ozzie-we-will-always-be-best-friends)
+- [DNA test results are in! Can you guess which breeds are present?](https://news.puppy-snuggles.com/27061922/dna-test-results-are-in-can-you-guess-which-breeds-are-present)
+- [Percy&amp;#039;s first bath. He did as well as can be expected!](https://news.puppy-snuggles.com/25509744/percys-first-bath-he-did-as-well-as-can-be-expected)
+- [The perfect stick, the perfect moment.](https://news.puppy-snuggles.com/23518279/the-perfect-stick-the-perfect-moment)
+- [belly rubs please?](https://news.puppy-snuggles.com/22501279/belly-rubs-please)
+- [Baxer has hair growing out of his eye](https://news.puppy-snuggles.com/22351703/baxer-has-hair-growing-out-of-his-eye)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
