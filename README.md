@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [DNA test results are in! Can you guess which breeds are present?](https://news.puppy-snuggles.com/27061922/dna-test-results-are-in-can-you-guess-which-breeds-are-present)
-- [Percy&amp;#039;s first bath. He did as well as can be expected!](https://news.puppy-snuggles.com/25509744/percys-first-bath-he-did-as-well-as-can-be-expected)
-- [The perfect stick, the perfect moment.](https://news.puppy-snuggles.com/23518279/the-perfect-stick-the-perfect-moment)
-- [belly rubs please?](https://news.puppy-snuggles.com/22501279/belly-rubs-please)
-- [Baxer has hair growing out of his eye](https://news.puppy-snuggles.com/22351703/baxer-has-hair-growing-out-of-his-eye)
+- [RIP Buddy you are gone but not forgotten](https://news.puppy-snuggles.com/33690615/rip-buddy-you-are-gone-but-not-forgotten)
+- [New best smiley friends Gus &lpar;left, 2 y/o Bernedoodle&rpar; and Hozer &lpar;right, ~1.5 y/o Bernese&rpar;](https://news.puppy-snuggles.com/33175287/new-best-smiley-friends-gus-left-2-yo-bernedoodle-and-hozer-right-15-yo-bernese)
+- [there is too much energy in this little miracle](https://news.puppy-snuggles.com/32665599/there-is-too-much-energy-in-this-little-miracle)
+- [I lost my boy, my furry son, my soul mate 44 days ago. My heart has been heavy, shattered, broken.](https://news.puppy-snuggles.com/27261576/i-lost-my-boy-my-furry-son-my-soul-mate-44-days-ago-my-heart-has-been-heavy-shattered-broken)
+- [My mom&amp;#039;s dog has been collecting trash for years.](https://news.puppy-snuggles.com/20284256/my-moms-dog-has-been-collecting-trash-for-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
