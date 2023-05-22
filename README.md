@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Buddy you are gone but not forgotten](https://news.puppy-snuggles.com/33690615/rip-buddy-you-are-gone-but-not-forgotten)
-- [New best smiley friends Gus &lpar;left, 2 y/o Bernedoodle&rpar; and Hozer &lpar;right, ~1.5 y/o Bernese&rpar;](https://news.puppy-snuggles.com/33175287/new-best-smiley-friends-gus-left-2-yo-bernedoodle-and-hozer-right-15-yo-bernese)
-- [there is too much energy in this little miracle](https://news.puppy-snuggles.com/32665599/there-is-too-much-energy-in-this-little-miracle)
-- [I lost my boy, my furry son, my soul mate 44 days ago. My heart has been heavy, shattered, broken.](https://news.puppy-snuggles.com/27261576/i-lost-my-boy-my-furry-son-my-soul-mate-44-days-ago-my-heart-has-been-heavy-shattered-broken)
-- [My mom&amp;#039;s dog has been collecting trash for years.](https://news.puppy-snuggles.com/20284256/my-moms-dog-has-been-collecting-trash-for-years)
+- [My Pretty Boy](https://news.puppy-snuggles.com/19835093/my-pretty-boy)
+- [This is Daisy, she spends 80% of the time sleeping and 20% biting me](https://news.puppy-snuggles.com/19098749/this-is-daisy-she-spends-80-of-the-time-sleeping-and-20-biting-me)
+- [Meet my 8mo old Golden Retreiver, Theo!](https://news.puppy-snuggles.com/16377104/meet-my-8mo-old-golden-retreiver-theo)
+- [Figured she deserves some internet attention as well, my best friend Bailey Bees](https://news.puppy-snuggles.com/14997639/figured-she-deserves-some-internet-attention-as-well-my-best-friend-bailey-bees)
+- [Prowling](https://news.puppy-snuggles.com/14938180/prowling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
