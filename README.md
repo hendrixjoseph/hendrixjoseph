@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Pretty Boy](https://news.puppy-snuggles.com/19835093/my-pretty-boy)
-- [This is Daisy, she spends 80% of the time sleeping and 20% biting me](https://news.puppy-snuggles.com/19098749/this-is-daisy-she-spends-80-of-the-time-sleeping-and-20-biting-me)
-- [Meet my 8mo old Golden Retreiver, Theo!](https://news.puppy-snuggles.com/16377104/meet-my-8mo-old-golden-retreiver-theo)
-- [Figured she deserves some internet attention as well, my best friend Bailey Bees](https://news.puppy-snuggles.com/14997639/figured-she-deserves-some-internet-attention-as-well-my-best-friend-bailey-bees)
-- [Prowling](https://news.puppy-snuggles.com/14938180/prowling)
+- [Rate my dog](https://news.puppy-snuggles.com/33858539/rate-my-dog)
+- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
+- [Happy Birthday](https://news.puppy-snuggles.com/33838815/happy-birthday)
+- [Waiting for best friend.](https://news.puppy-snuggles.com/22987146/waiting-for-best-friend)
+- [My Number one fan :&rpar;](https://news.puppy-snuggles.com/22372655/my-number-one-fan)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
