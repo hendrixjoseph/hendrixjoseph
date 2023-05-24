@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rate my dog](https://news.puppy-snuggles.com/33858539/rate-my-dog)
-- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
-- [Happy Birthday](https://news.puppy-snuggles.com/33838815/happy-birthday)
-- [Waiting for best friend.](https://news.puppy-snuggles.com/22987146/waiting-for-best-friend)
-- [My Number one fan :&rpar;](https://news.puppy-snuggles.com/22372655/my-number-one-fan)
+- [Just a few of my smiley BFFS🤍✂️🐶](https://news.puppy-snuggles.com/33015301/just-a-few-of-my-smiley-bffs)
+- [Dramatic dog faints when getting nails trimmed](https://news.puppy-snuggles.com/30031959/dramatic-dog-faints-when-getting-nails-trimmed)
+- [Don&amp;#039;t pass without a boop please.](https://news.puppy-snuggles.com/22856255/dont-pass-without-a-boop-please)
+- [[OC] Doggo enjoying the last warm days of the year.](https://news.puppy-snuggles.com/22590715/oc-doggo-enjoying-the-last-warm-days-of-the-year)
+- [She is just so dang cute](https://news.puppy-snuggles.com/22022863/she-is-just-so-dang-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
