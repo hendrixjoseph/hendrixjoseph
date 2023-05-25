@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a few of my smiley BFFS🤍✂️🐶](https://news.puppy-snuggles.com/33015301/just-a-few-of-my-smiley-bffs)
-- [Dramatic dog faints when getting nails trimmed](https://news.puppy-snuggles.com/30031959/dramatic-dog-faints-when-getting-nails-trimmed)
-- [Don&amp;#039;t pass without a boop please.](https://news.puppy-snuggles.com/22856255/dont-pass-without-a-boop-please)
-- [[OC] Doggo enjoying the last warm days of the year.](https://news.puppy-snuggles.com/22590715/oc-doggo-enjoying-the-last-warm-days-of-the-year)
-- [She is just so dang cute](https://news.puppy-snuggles.com/22022863/she-is-just-so-dang-cute)
+- [Some friends of mine rescued this lil puppy from a bad home and want me to take her in after I graduate in a few months. Any idea what breed&lpar;s&rpar; she might be?](https://news.puppy-snuggles.com/28551667/some-friends-of-mine-rescued-this-lil-puppy-from-a-bad-home-and-want-me-to-take-her-in-after-i-graduate-in-a-few-months-any-idea-what-breeds-she-might-be)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [This was our dog Monty, he was a English Setter and we loved him so much. He sadly passed away and me and my whole family are heartbroken. He died at the age 14 and lived a great life. He was such an important part of my life and he will always be remembered.](https://news.puppy-snuggles.com/17833731/this-was-our-dog-monty-he-was-a-english-setter-and-we-loved-him-so-much-he-sadly-passed-away-and-me-and-my-whole-family-are-heartbroken-he-died-at-the-age-14-and-lived-a-great-life-he-was-such-an-important-part-of-my-life-and-he-will-always-be-remembered)
+- [[OC] Elmo.thedood enjoying the sun on a walk, looking so pretty between the flowers :&rpar;](https://news.puppy-snuggles.com/16207397/oc-elmothedood-enjoying-the-sun-on-a-walk-looking-so-pretty-between-the-flowers)
+- [Rescued this guy a month ago. I was in a pretty dark place at the time I adopted him. He’s done more for me that he could ever know.](https://news.puppy-snuggles.com/16077235/rescued-this-guy-a-month-ago-i-was-in-a-pretty-dark-place-at-the-time-i-adopted-him-hes-done-more-for-me-that-he-could-ever-know)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
