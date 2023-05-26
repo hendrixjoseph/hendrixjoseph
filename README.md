@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Some friends of mine rescued this lil puppy from a bad home and want me to take her in after I graduate in a few months. Any idea what breed&lpar;s&rpar; she might be?](https://news.puppy-snuggles.com/28551667/some-friends-of-mine-rescued-this-lil-puppy-from-a-bad-home-and-want-me-to-take-her-in-after-i-graduate-in-a-few-months-any-idea-what-breeds-she-might-be)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [This was our dog Monty, he was a English Setter and we loved him so much. He sadly passed away and me and my whole family are heartbroken. He died at the age 14 and lived a great life. He was such an important part of my life and he will always be remembered.](https://news.puppy-snuggles.com/17833731/this-was-our-dog-monty-he-was-a-english-setter-and-we-loved-him-so-much-he-sadly-passed-away-and-me-and-my-whole-family-are-heartbroken-he-died-at-the-age-14-and-lived-a-great-life-he-was-such-an-important-part-of-my-life-and-he-will-always-be-remembered)
-- [[OC] Elmo.thedood enjoying the sun on a walk, looking so pretty between the flowers :&rpar;](https://news.puppy-snuggles.com/16207397/oc-elmothedood-enjoying-the-sun-on-a-walk-looking-so-pretty-between-the-flowers)
-- [Rescued this guy a month ago. I was in a pretty dark place at the time I adopted him. He’s done more for me that he could ever know.](https://news.puppy-snuggles.com/16077235/rescued-this-guy-a-month-ago-i-was-in-a-pretty-dark-place-at-the-time-i-adopted-him-hes-done-more-for-me-that-he-could-ever-know)
+- [Rest in peace to my sweet boy Nero.](https://news.puppy-snuggles.com/34066354/rest-in-peace-to-my-sweet-boy-nero)
+- [We are so blessed here at Sara Morocco to be surrounded by so much love and happiness that these amazing street rescues deserve. They bring us so much joy. And we love sharing them with you](https://news.puppy-snuggles.com/34066352/we-are-so-blessed-here-at-sara-morocco-to-be-surrounded-by-so-much-love-and-happiness-that-these-amazing-street-rescues-deserve-they-bring-us-so-much-joy-and-we-love-sharing-them-with-you)
+- [R.I.P. my sweet Zelda girl, 5/25/2008-4/21/2023](https://news.puppy-snuggles.com/34066351/rip-my-sweet-zelda-girl-5252008-4212023)
+- [This little fella left us after 15 years of aventures, farewell Simon.](https://news.puppy-snuggles.com/34066350/this-little-fella-left-us-after-15-years-of-aventures-farewell-simon)
+- [This massive unit doesn&amp;#039;t seem to have been shared here yet... astounding.](https://news.puppy-snuggles.com/34066353/this-massive-unit-doesnt-seem-to-have-been-shared-here-yet-astounding)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
