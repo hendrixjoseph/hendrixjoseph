@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on What’s the worst career advice you ever got?](https://www.reddit.com/r/cscareerquestions/comments/13qnhj3/whats_the_worst_career_advice_you_ever_got/jlh479n/)
-- [/u/joehx on What is one profession that you have absolutely zero respect for?](https://www.reddit.com/r/NoStupidQuestions/comments/13qknap/what_is_one_profession_that_you_have_absolutely/jlgxgzj/)
-- [/u/joehx on startup scene](https://www.reddit.com/r/dayton/comments/13ppyyf/startup_scene/jlbckbr/)
-- [/u/joehx on startup scene](https://www.reddit.com/r/dayton/comments/13ppyyf/startup_scene/jlbb38n/)
-- [/u/joehx on startup scene](https://www.reddit.com/r/dayton/comments/13ppyyf/startup_scene/jlb3qhr/)
+- [/u/joehx on Daily Simple Questions Thread - May 25, 2023](https://www.reddit.com/r/Fitness/comments/13rcgk1/daily_simple_questions_thread_may_25_2023/jlmkzif/)
+- [/u/joehx on Even after legalization, Maryland cops wanted to search people based on the odor of pot. Legislators said no.](https://www.reddit.com/r/Libertarian/comments/13rhf19/even_after_legalization_maryland_cops_wanted_to/jlmjnop/)
+- [/u/joehx on my low-risk, low-return-but-higher-than-a-savings-account, boring, mediocre options strategy](https://www.reddit.com/r/options/comments/13rj0s7/my_lowrisk_lowreturnbuthigherthanasavingsaccount/jll8a83/)
+- [/u/joehx on my low-risk, low-return-but-higher-than-a-savings-account, boring, mediocre options strategy](https://www.reddit.com/r/options/comments/13rj0s7/my_lowrisk_lowreturnbuthigherthanasavingsaccount/jll8236/)
+- [/u/joehx on my low-risk, low-return-but-higher-than-a-savings-account, boring, mediocre options strategy](https://www.reddit.com/r/options/comments/13rj0s7/my_lowrisk_lowreturnbuthigherthanasavingsaccount/jll7pbt/)
 <!-- REDDIT:END -->
