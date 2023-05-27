@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rest in peace to my sweet boy Nero.](https://news.puppy-snuggles.com/34066354/rest-in-peace-to-my-sweet-boy-nero)
-- [We are so blessed here at Sara Morocco to be surrounded by so much love and happiness that these amazing street rescues deserve. They bring us so much joy. And we love sharing them with you](https://news.puppy-snuggles.com/34066352/we-are-so-blessed-here-at-sara-morocco-to-be-surrounded-by-so-much-love-and-happiness-that-these-amazing-street-rescues-deserve-they-bring-us-so-much-joy-and-we-love-sharing-them-with-you)
-- [R.I.P. my sweet Zelda girl, 5/25/2008-4/21/2023](https://news.puppy-snuggles.com/34066351/rip-my-sweet-zelda-girl-5252008-4212023)
-- [This little fella left us after 15 years of aventures, farewell Simon.](https://news.puppy-snuggles.com/34066350/this-little-fella-left-us-after-15-years-of-aventures-farewell-simon)
-- [This massive unit doesn&amp;#039;t seem to have been shared here yet... astounding.](https://news.puppy-snuggles.com/34066353/this-massive-unit-doesnt-seem-to-have-been-shared-here-yet-astounding)
+- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
+- [I worked late and dinner was late so....my quilts and pillow were taken outside](https://news.puppy-snuggles.com/22892649/i-worked-late-and-dinner-was-late-somy-quilts-and-pillow-were-taken-outside)
+- [just adopted a 10 year old male. blind in one eye. has tooth decay so he only has 2 teeth left. so his toujge stays out](https://news.puppy-snuggles.com/22465985/just-adopted-a-10-year-old-male-blind-in-one-eye-has-tooth-decay-so-he-only-has-2-teeth-left-so-his-toujge-stays-out)
+- [My first profile was deleted and I made a new one just to share some more pics of this precious little pupper](https://news.puppy-snuggles.com/18726424/my-first-profile-was-deleted-and-i-made-a-new-one-just-to-share-some-more-pics-of-this-precious-little-pupper)
+- [My best friend went to the rainbow bridge today. I just want everyone to know what a good boy he was and how much I’ll miss him. Thanks for everything Hank.](https://news.puppy-snuggles.com/17894245/my-best-friend-went-to-the-rainbow-bridge-today-i-just-want-everyone-to-know-what-a-good-boy-he-was-and-how-much-ill-miss-him-thanks-for-everything-hank)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
