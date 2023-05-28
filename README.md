@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
-- [I worked late and dinner was late so....my quilts and pillow were taken outside](https://news.puppy-snuggles.com/22892649/i-worked-late-and-dinner-was-late-somy-quilts-and-pillow-were-taken-outside)
-- [just adopted a 10 year old male. blind in one eye. has tooth decay so he only has 2 teeth left. so his toujge stays out](https://news.puppy-snuggles.com/22465985/just-adopted-a-10-year-old-male-blind-in-one-eye-has-tooth-decay-so-he-only-has-2-teeth-left-so-his-toujge-stays-out)
-- [My first profile was deleted and I made a new one just to share some more pics of this precious little pupper](https://news.puppy-snuggles.com/18726424/my-first-profile-was-deleted-and-i-made-a-new-one-just-to-share-some-more-pics-of-this-precious-little-pupper)
-- [My best friend went to the rainbow bridge today. I just want everyone to know what a good boy he was and how much I’ll miss him. Thanks for everything Hank.](https://news.puppy-snuggles.com/17894245/my-best-friend-went-to-the-rainbow-bridge-today-i-just-want-everyone-to-know-what-a-good-boy-he-was-and-how-much-ill-miss-him-thanks-for-everything-hank)
+- [Happy Birthday](https://news.puppy-snuggles.com/33838815/happy-birthday)
+- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/31525753/oc)
+- [Naming Your Dog](https://news.puppy-snuggles.com/32114861/naming-your-dog)
+- [This little stinker just ate my shoe :&rpar;](https://news.puppy-snuggles.com/16785600/this-little-stinker-just-ate-my-shoe)
+- [My dog was looking particularly wolf like this morning](https://news.puppy-snuggles.com/16722696/my-dog-was-looking-particularly-wolf-like-this-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
