@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Birthday](https://news.puppy-snuggles.com/33838815/happy-birthday)
-- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/31525753/oc)
-- [Naming Your Dog](https://news.puppy-snuggles.com/32114861/naming-your-dog)
-- [This little stinker just ate my shoe :&rpar;](https://news.puppy-snuggles.com/16785600/this-little-stinker-just-ate-my-shoe)
-- [My dog was looking particularly wolf like this morning](https://news.puppy-snuggles.com/16722696/my-dog-was-looking-particularly-wolf-like-this-morning)
+- [All Smiles All the Time](https://news.puppy-snuggles.com/25833580/all-smiles-all-the-time)
+- [Iris the winminer-pit mix!](https://news.puppy-snuggles.com/22785018/iris-the-winminer-pit-mix)
+- [Floofy smiles](https://news.puppy-snuggles.com/20033328/floofy-smiles)
+- [Photos from work](https://news.puppy-snuggles.com/19923922/photos-from-work)
+- [Dogging all day is hard work](https://news.puppy-snuggles.com/19705945/dogging-all-day-is-hard-work)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
