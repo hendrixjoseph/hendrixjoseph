@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All Smiles All the Time](https://news.puppy-snuggles.com/25833580/all-smiles-all-the-time)
-- [Iris the winminer-pit mix!](https://news.puppy-snuggles.com/22785018/iris-the-winminer-pit-mix)
-- [Floofy smiles](https://news.puppy-snuggles.com/20033328/floofy-smiles)
-- [Photos from work](https://news.puppy-snuggles.com/19923922/photos-from-work)
-- [Dogging all day is hard work](https://news.puppy-snuggles.com/19705945/dogging-all-day-is-hard-work)
+- [Same](https://news.puppy-snuggles.com/34011623/same)
+- [I…I killed him](https://news.puppy-snuggles.com/26580115/ii-killed-him)
+- [Casper](https://news.puppy-snuggles.com/24252180/casper)
+- [Mommy! Were just having fun, pleaaath don&amp;#039;t get mad](https://news.puppy-snuggles.com/20033333/mommy-were-just-having-fun-pleaaath-dont-get-mad)
+- [This is Lucy during her first professional photo shoot. 🤎](https://news.puppy-snuggles.com/18339404/this-is-lucy-during-her-first-professional-photo-shoot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
