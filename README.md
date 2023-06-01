@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&amp;amp;quot;Can I have more sausages please?&amp;amp;quot;](https://news.puppy-snuggles.com/34269787/quotcan-i-have-more-sausages-pleasequot)
-- [He&amp;#039;s grown since his first Christmas...](https://news.puppy-snuggles.com/30708990/hes-grown-since-his-first-christmas)
-- [hope it doesn’t upset everyone. I just wanted to follow up from my post last week. I said goodbye to my beautiful, wonderful, happy girl moxie yesterday. had to make that hard choice with the vet due to her health. She went in my arms at peace, I never let her go or left her side. She was my rock ❤️](https://news.puppy-snuggles.com/22372653/hope-it-doesnt-upset-everyone-i-just-wanted-to-follow-up-from-my-post-last-week-i-said-goodbye-to-my-beautiful-wonderful-happy-girl-moxie-yesterday-had-to-make-that-hard-choice-with-the-vet-due-to-her-health-she-went-in-my-arms-at-peace-i-never-let-her-go-or-left-her-side-she-was-my-rock)
-- [I got my first dog at 18, Kiara became my best friend for almost 11 years. She was treated like royalty in our house. She’s at peace now, I’m happy she was in my life.](https://news.puppy-snuggles.com/19563307/i-got-my-first-dog-at-18-kiara-became-my-best-friend-for-almost-11-years-she-was-treated-like-royalty-in-our-house-shes-at-peace-now-im-happy-she-was-in-my-life)
-- [One more for Boo&amp;#039;s 5th birthday today!](https://news.puppy-snuggles.com/19424761/one-more-for-boos-5th-birthday-today)
+- [Someone tell Ruby that Halloween is over 😂🦇](https://news.puppy-snuggles.com/12413220/someone-tell-ruby-that-halloween-is-over)
+- [Does your dog do this?!](https://news.puppy-snuggles.com/12403778/does-your-dog-do-this)
+- [Cheesin because I’m about to eats](https://news.puppy-snuggles.com/12394891/cheesin-because-im-about-to-eats)
+- [Ollie loves his new squeaky plush camper!](https://news.puppy-snuggles.com/12394890/ollie-loves-his-new-squeaky-plush-camper)
+- [Just some pictures of my dog so I can brag about her](https://news.puppy-snuggles.com/12387152/just-some-pictures-of-my-dog-so-i-can-brag-about-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
