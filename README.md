@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Someone tell Ruby that Halloween is over 😂🦇](https://news.puppy-snuggles.com/12413220/someone-tell-ruby-that-halloween-is-over)
-- [Does your dog do this?!](https://news.puppy-snuggles.com/12403778/does-your-dog-do-this)
-- [Cheesin because I’m about to eats](https://news.puppy-snuggles.com/12394891/cheesin-because-im-about-to-eats)
-- [Ollie loves his new squeaky plush camper!](https://news.puppy-snuggles.com/12394890/ollie-loves-his-new-squeaky-plush-camper)
-- [Just some pictures of my dog so I can brag about her](https://news.puppy-snuggles.com/12387152/just-some-pictures-of-my-dog-so-i-can-brag-about-her)
+- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
+- [Adopted this good boy a couple weeks ago, what breed is he?](https://news.puppy-snuggles.com/23185582/adopted-this-good-boy-a-couple-weeks-ago-what-breed-is-he)
+- [A dogs love is the best.](https://news.puppy-snuggles.com/22892650/a-dogs-love-is-the-best)
+- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
+- [Hello need help this is my dog called George we had him for 8 years but we are not sure what breed he is any help will be appreciate.](https://news.puppy-snuggles.com/20284258/hello-need-help-this-is-my-dog-called-george-we-had-him-for-8-years-but-we-are-not-sure-what-breed-he-is-any-help-will-be-appreciate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
