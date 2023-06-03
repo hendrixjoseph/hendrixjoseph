@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
-- [Adopted this good boy a couple weeks ago, what breed is he?](https://news.puppy-snuggles.com/23185582/adopted-this-good-boy-a-couple-weeks-ago-what-breed-is-he)
-- [A dogs love is the best.](https://news.puppy-snuggles.com/22892650/a-dogs-love-is-the-best)
-- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
-- [Hello need help this is my dog called George we had him for 8 years but we are not sure what breed he is any help will be appreciate.](https://news.puppy-snuggles.com/20284258/hello-need-help-this-is-my-dog-called-george-we-had-him-for-8-years-but-we-are-not-sure-what-breed-he-is-any-help-will-be-appreciate)
+- [Love at first sight](https://news.puppy-snuggles.com/32025790/love-at-first-sight)
+- [I had to say goodbye my best friend of 17 years today. I took him in from an abusive family when he was a pup &amp;amp;amp; gave him all the love, treats, &amp;amp;amp; pets he could ever ask for. He was the best boy!](https://news.puppy-snuggles.com/26037499/i-had-to-say-goodbye-my-best-friend-of-17-years-today-i-took-him-in-from-an-abusive-family-when-he-was-a-pup-amp-gave-him-all-the-love-treats-amp-pets-he-could-ever-ask-for-he-was-the-best-boy)
+- [Alpha ends all play sessions with some hardcore relaxing.](https://news.puppy-snuggles.com/23108633/alpha-ends-all-play-sessions-with-some-hardcore-relaxing)
+- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
+- [Her name is Jasmine but I call her beans](https://news.puppy-snuggles.com/22351698/her-name-is-jasmine-but-i-call-her-beans)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
