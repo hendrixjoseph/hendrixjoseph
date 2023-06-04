@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love at first sight](https://news.puppy-snuggles.com/32025790/love-at-first-sight)
-- [I had to say goodbye my best friend of 17 years today. I took him in from an abusive family when he was a pup &amp;amp;amp; gave him all the love, treats, &amp;amp;amp; pets he could ever ask for. He was the best boy!](https://news.puppy-snuggles.com/26037499/i-had-to-say-goodbye-my-best-friend-of-17-years-today-i-took-him-in-from-an-abusive-family-when-he-was-a-pup-amp-gave-him-all-the-love-treats-amp-pets-he-could-ever-ask-for-he-was-the-best-boy)
-- [Alpha ends all play sessions with some hardcore relaxing.](https://news.puppy-snuggles.com/23108633/alpha-ends-all-play-sessions-with-some-hardcore-relaxing)
-- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
-- [Her name is Jasmine but I call her beans](https://news.puppy-snuggles.com/22351698/her-name-is-jasmine-but-i-call-her-beans)
+- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
+- [my new adopted puppy enjoys hide and seek and surprise attacking his new bigger best friend.](https://news.puppy-snuggles.com/19742917/my-new-adopted-puppy-enjoys-hide-and-seek-and-surprise-attacking-his-new-bigger-best-friend)
+- [Who is the happy boy](https://news.puppy-snuggles.com/17455775/who-is-the-happy-boy)
+- [Little 8 week old munchkin](https://news.puppy-snuggles.com/14853115/little-8-week-old-munchkin)
+- [Sleepy pups.](https://news.puppy-snuggles.com/14342563/sleepy-pups)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
