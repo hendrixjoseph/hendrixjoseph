@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
-- [my new adopted puppy enjoys hide and seek and surprise attacking his new bigger best friend.](https://news.puppy-snuggles.com/19742917/my-new-adopted-puppy-enjoys-hide-and-seek-and-surprise-attacking-his-new-bigger-best-friend)
-- [Who is the happy boy](https://news.puppy-snuggles.com/17455775/who-is-the-happy-boy)
-- [Little 8 week old munchkin](https://news.puppy-snuggles.com/14853115/little-8-week-old-munchkin)
-- [Sleepy pups.](https://news.puppy-snuggles.com/14342563/sleepy-pups)
+- [My dog is pretty much the same color as this kiwi](https://news.puppy-snuggles.com/22626226/my-dog-is-pretty-much-the-same-color-as-this-kiwi)
+- [The right way to walk your dog.](https://news.puppy-snuggles.com/11961784/the-right-way-to-walk-your-dog)
+- [I love her so much! Love it when her lip gets stuck.](https://news.puppy-snuggles.com/10406192/i-love-her-so-much-love-it-when-her-lip-gets-stuck)
+- [Make sure your local dispensary has an expert on site!](https://news.puppy-snuggles.com/10337230/make-sure-your-local-dispensary-has-an-expert-on-site)
+- [Here&amp;#039;s a pastel commission I recently completed of two Alaskan malamutes - hope you like it, happy Thursday! :&rpar;](https://news.puppy-snuggles.com/9980179/heres-a-pastel-commission-i-recently-completed-of-two-alaskan-malamutes-hope-you-like-it-happy-thursday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
