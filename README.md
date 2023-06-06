@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Monday, June 05, 2023](https://www.reddit.com/r/financialindependence/comments/14183nv/daily_fi_discussion_thread_monday_june_05_2023/jn039fu/)
 - [/u/joehx on Tall people of reddit, what are the benefits of being tall?](https://www.reddit.com/r/AskReddit/comments/13yvmb7/tall_people_of_reddit_what_are_the_benefits_of/jmoyzwb/)
 - [/u/joehx on Out of all the policies or side of a social issues you disagree with, which one do you think presents the best argument?](https://www.reddit.com/r/AskReddit/comments/13yvsvw/out_of_all_the_policies_or_side_of_a_social/jmoyti4/)
 - [/u/joehx on my low-risk, low-return-but-higher-than-a-savings-account, boring, mediocre options strategy](https://www.reddit.com/r/options/comments/13rj0s7/my_lowrisk_lowreturnbuthigherthanasavingsaccount/jlrdy54/)
 - [/u/joehx on Daily Simple Questions Thread - May 25, 2023](https://www.reddit.com/r/Fitness/comments/13rcgk1/daily_simple_questions_thread_may_25_2023/jlmkzif/)
-- [/u/joehx on Even after legalization, Maryland cops wanted to search people based on the odor of pot. Legislators said no.](https://www.reddit.com/r/Libertarian/comments/13rhf19/even_after_legalization_maryland_cops_wanted_to/jlmjnop/)
 <!-- REDDIT:END -->
