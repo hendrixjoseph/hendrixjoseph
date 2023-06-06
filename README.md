@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is pretty much the same color as this kiwi](https://news.puppy-snuggles.com/22626226/my-dog-is-pretty-much-the-same-color-as-this-kiwi)
-- [The right way to walk your dog.](https://news.puppy-snuggles.com/11961784/the-right-way-to-walk-your-dog)
-- [I love her so much! Love it when her lip gets stuck.](https://news.puppy-snuggles.com/10406192/i-love-her-so-much-love-it-when-her-lip-gets-stuck)
-- [Make sure your local dispensary has an expert on site!](https://news.puppy-snuggles.com/10337230/make-sure-your-local-dispensary-has-an-expert-on-site)
-- [Here&amp;#039;s a pastel commission I recently completed of two Alaskan malamutes - hope you like it, happy Thursday! :&rpar;](https://news.puppy-snuggles.com/9980179/heres-a-pastel-commission-i-recently-completed-of-two-alaskan-malamutes-hope-you-like-it-happy-thursday)
+- [Hello from Bailey!](https://news.puppy-snuggles.com/34843638/hello-from-bailey)
+- [Does your dog also sleep like this 🤣🤣](https://news.puppy-snuggles.com/34843637/does-your-dog-also-sleep-like-this)
+- [Some dogs enjoy hard work, Bront](https://news.puppy-snuggles.com/34843636/some-dogs-enjoy-hard-work-bront)
+- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
+- [I wanted to share my mixed husky: Winnie :&rpar;](https://news.puppy-snuggles.com/23461601/i-wanted-to-share-my-mixed-husky-winnie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
