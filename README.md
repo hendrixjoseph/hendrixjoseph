@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello from Bailey!](https://news.puppy-snuggles.com/34843638/hello-from-bailey)
-- [Does your dog also sleep like this 🤣🤣](https://news.puppy-snuggles.com/34843637/does-your-dog-also-sleep-like-this)
-- [Some dogs enjoy hard work, Bront](https://news.puppy-snuggles.com/34843636/some-dogs-enjoy-hard-work-bront)
-- [Wood Walking](https://news.puppy-snuggles.com/24046788/wood-walking)
-- [I wanted to share my mixed husky: Winnie :&rpar;](https://news.puppy-snuggles.com/23461601/i-wanted-to-share-my-mixed-husky-winnie)
+- [Let&amp;#039;s go!!!!](https://news.puppy-snuggles.com/34269780/lets-go)
+- [Food dance](https://news.puppy-snuggles.com/34178689/food-dance)
+- [Does my rubber ducky rain jacket make you smile too? 🐥☔️](https://news.puppy-snuggles.com/30939705/does-my-rubber-ducky-rain-jacket-make-you-smile-too)
+- [my new girl...lily](https://news.puppy-snuggles.com/28396028/my-new-girllily)
+- [My girl, Maya: 2019 v Today. Found her in bad shape while traveling in Guatemala. Coordinated her rescue + recovery and a flight to her forever home in the states. Thriving ever since 🐾❤️](https://news.puppy-snuggles.com/24172147/my-girl-maya-2019-v-today-found-her-in-bad-shape-while-traveling-in-guatemala-coordinated-her-rescue-recovery-and-a-flight-to-her-forever-home-in-the-states-thriving-ever-since)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
