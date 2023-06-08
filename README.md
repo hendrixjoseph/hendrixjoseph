@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let&amp;#039;s go!!!!](https://news.puppy-snuggles.com/34269780/lets-go)
-- [Food dance](https://news.puppy-snuggles.com/34178689/food-dance)
-- [Does my rubber ducky rain jacket make you smile too? 🐥☔️](https://news.puppy-snuggles.com/30939705/does-my-rubber-ducky-rain-jacket-make-you-smile-too)
-- [my new girl...lily](https://news.puppy-snuggles.com/28396028/my-new-girllily)
-- [My girl, Maya: 2019 v Today. Found her in bad shape while traveling in Guatemala. Coordinated her rescue + recovery and a flight to her forever home in the states. Thriving ever since 🐾❤️](https://news.puppy-snuggles.com/24172147/my-girl-maya-2019-v-today-found-her-in-bad-shape-while-traveling-in-guatemala-coordinated-her-rescue-recovery-and-a-flight-to-her-forever-home-in-the-states-thriving-ever-since)
+- [What type of breed is our new family member?](https://news.puppy-snuggles.com/24677654/what-type-of-breed-is-our-new-family-member)
+- [Old Boy is all tuckered out](https://news.puppy-snuggles.com/22785016/old-boy-is-all-tuckered-out)
+- [Always look both ways before crossing the road](https://news.puppy-snuggles.com/22193309/always-look-both-ways-before-crossing-the-road)
+- [My dog, Snorge, is a little odd.](https://news.puppy-snuggles.com/16693118/my-dog-snorge-is-a-little-odd)
+- [Barney is all tuckered out today](https://news.puppy-snuggles.com/15850177/barney-is-all-tuckered-out-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
