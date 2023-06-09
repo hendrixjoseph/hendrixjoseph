@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What type of breed is our new family member?](https://news.puppy-snuggles.com/24677654/what-type-of-breed-is-our-new-family-member)
-- [Old Boy is all tuckered out](https://news.puppy-snuggles.com/22785016/old-boy-is-all-tuckered-out)
-- [Always look both ways before crossing the road](https://news.puppy-snuggles.com/22193309/always-look-both-ways-before-crossing-the-road)
-- [My dog, Snorge, is a little odd.](https://news.puppy-snuggles.com/16693118/my-dog-snorge-is-a-little-odd)
-- [Barney is all tuckered out today](https://news.puppy-snuggles.com/15850177/barney-is-all-tuckered-out-today)
+- [LET MR. BUBZ TAKE OVER YOUR DAY](https://news.puppy-snuggles.com/35030177/let-mr-bubz-take-over-your-day)
+- [Ms. Chai just got home from surgery!](https://news.puppy-snuggles.com/35030185/ms-chai-just-got-home-from-surgery)
+- [The first face I see when I get home at night. 🥰](https://news.puppy-snuggles.com/31386444/the-first-face-i-see-when-i-get-home-at-night)
+- [Happy New Year All!](https://news.puppy-snuggles.com/24459821/happy-new-year-all)
+- [My cute doggy](https://news.puppy-snuggles.com/24381595/my-cute-doggy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
