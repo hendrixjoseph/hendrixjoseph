@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [LET MR. BUBZ TAKE OVER YOUR DAY](https://news.puppy-snuggles.com/35030177/let-mr-bubz-take-over-your-day)
-- [Ms. Chai just got home from surgery!](https://news.puppy-snuggles.com/35030185/ms-chai-just-got-home-from-surgery)
-- [The first face I see when I get home at night. 🥰](https://news.puppy-snuggles.com/31386444/the-first-face-i-see-when-i-get-home-at-night)
-- [Happy New Year All!](https://news.puppy-snuggles.com/24459821/happy-new-year-all)
-- [My cute doggy](https://news.puppy-snuggles.com/24381595/my-cute-doggy)
+- [Puppy v Purple flowers](https://news.puppy-snuggles.com/31305987/puppy-v-purple-flowers)
+- [Starting the day...](https://news.puppy-snuggles.com/24357841/starting-the-day)
+- [Rey is happy](https://news.puppy-snuggles.com/24357838/rey-is-happy)
+- [This beautiful ding dong ate an entire bag of dog treats and most of another bag. Do I still feed her dinner?](https://news.puppy-snuggles.com/23412982/this-beautiful-ding-dong-ate-an-entire-bag-of-dog-treats-and-most-of-another-bag-do-i-still-feed-her-dinner)
+- [My best friend, Maggie :&rpar;](https://news.puppy-snuggles.com/22429054/my-best-friend-maggie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
