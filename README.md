@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy v Purple flowers](https://news.puppy-snuggles.com/31305987/puppy-v-purple-flowers)
-- [Starting the day...](https://news.puppy-snuggles.com/24357841/starting-the-day)
-- [Rey is happy](https://news.puppy-snuggles.com/24357838/rey-is-happy)
-- [This beautiful ding dong ate an entire bag of dog treats and most of another bag. Do I still feed her dinner?](https://news.puppy-snuggles.com/23412982/this-beautiful-ding-dong-ate-an-entire-bag-of-dog-treats-and-most-of-another-bag-do-i-still-feed-her-dinner)
-- [My best friend, Maggie :&rpar;](https://news.puppy-snuggles.com/22429054/my-best-friend-maggie)
+- [Time to say goodbye](https://news.puppy-snuggles.com/35181463/time-to-say-goodbye)
+- [Enjoying some time outdoors](https://news.puppy-snuggles.com/35181462/enjoying-some-time-outdoors)
+- [Border Collies, often cited as the most intelligent of all domestic dogs.](https://news.puppy-snuggles.com/35181461/border-collies-often-cited-as-the-most-intelligent-of-all-domestic-dogs)
+- [Old but gold 🥇](https://news.puppy-snuggles.com/35181459/old-but-gold)
+- [We are planning to adopt a second dog. We found him on Facebook - What breed/mix could he be?](https://news.puppy-snuggles.com/35181458/we-are-planning-to-adopt-a-second-dog-we-found-him-on-facebook-what-breedmix-could-he-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
