@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Time to say goodbye](https://news.puppy-snuggles.com/35181463/time-to-say-goodbye)
-- [Enjoying some time outdoors](https://news.puppy-snuggles.com/35181462/enjoying-some-time-outdoors)
-- [Border Collies, often cited as the most intelligent of all domestic dogs.](https://news.puppy-snuggles.com/35181461/border-collies-often-cited-as-the-most-intelligent-of-all-domestic-dogs)
-- [Old but gold 🥇](https://news.puppy-snuggles.com/35181459/old-but-gold)
-- [We are planning to adopt a second dog. We found him on Facebook - What breed/mix could he be?](https://news.puppy-snuggles.com/35181458/we-are-planning-to-adopt-a-second-dog-we-found-him-on-facebook-what-breedmix-could-he-be)
+- [Moose being her adorable ahh self](https://news.puppy-snuggles.com/35128067/moose-being-her-adorable-ahh-self)
+- [Smugly waiting for all the pets](https://news.puppy-snuggles.com/31172382/smugly-waiting-for-all-the-pets)
+- [Just being all cute and blending in with our floor](https://news.puppy-snuggles.com/30249584/just-being-all-cute-and-blending-in-with-our-floor)
+- [Ollie was naughty so he needed to be put in timeout.](https://news.puppy-snuggles.com/29307151/ollie-was-naughty-so-he-needed-to-be-put-in-timeout)
+- [Picture of the day ❤ ❤ On a scale from 1 - 10 how beautiful is this photo?](https://news.puppy-snuggles.com/24324641/picture-of-the-day-on-a-scale-from-1-10-how-beautiful-is-this-photo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
