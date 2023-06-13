@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Moose being her adorable ahh self](https://news.puppy-snuggles.com/35128067/moose-being-her-adorable-ahh-self)
-- [Smugly waiting for all the pets](https://news.puppy-snuggles.com/31172382/smugly-waiting-for-all-the-pets)
-- [Just being all cute and blending in with our floor](https://news.puppy-snuggles.com/30249584/just-being-all-cute-and-blending-in-with-our-floor)
-- [Ollie was naughty so he needed to be put in timeout.](https://news.puppy-snuggles.com/29307151/ollie-was-naughty-so-he-needed-to-be-put-in-timeout)
-- [Picture of the day ❤ ❤ On a scale from 1 - 10 how beautiful is this photo?](https://news.puppy-snuggles.com/24324641/picture-of-the-day-on-a-scale-from-1-10-how-beautiful-is-this-photo)
+- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
+- [My Pup Cut One](https://news.puppy-snuggles.com/23658543/my-pup-cut-one)
+- [Said goodbye today](https://news.puppy-snuggles.com/23451204/said-goodbye-today)
+- [Keeping it formal this holiday season](https://news.puppy-snuggles.com/23284744/keeping-it-formal-this-holiday-season)
+- [Merry Christmas from Bella](https://news.puppy-snuggles.com/23122451/merry-christmas-from-bella)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
