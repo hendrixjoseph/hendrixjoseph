@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He say hi to every one](https://news.puppy-snuggles.com/23891916/he-say-hi-to-every-one)
-- [My Pup Cut One](https://news.puppy-snuggles.com/23658543/my-pup-cut-one)
-- [Said goodbye today](https://news.puppy-snuggles.com/23451204/said-goodbye-today)
-- [Keeping it formal this holiday season](https://news.puppy-snuggles.com/23284744/keeping-it-formal-this-holiday-season)
-- [Merry Christmas from Bella](https://news.puppy-snuggles.com/23122451/merry-christmas-from-bella)
+- [Daisy is all smiles. She missed her friends.](https://news.puppy-snuggles.com/31877878/daisy-is-all-smiles-she-missed-her-friends)
+- [a comparison of my puppy&amp;#039;s growth within 4 months.](https://news.puppy-snuggles.com/30474735/a-comparison-of-my-puppys-growth-within-4-months)
+- [today is the dog&amp;#039;s first day here at home and he is all sad, any tips?](https://news.puppy-snuggles.com/27165844/today-is-the-dogs-first-day-here-at-home-and-he-is-all-sad-any-tips)
+- [Heaven gained the goodest boy](https://news.puppy-snuggles.com/23823379/heaven-gained-the-goodest-boy)
+- [Can anyone identify this breed](https://news.puppy-snuggles.com/23348080/can-anyone-identify-this-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
