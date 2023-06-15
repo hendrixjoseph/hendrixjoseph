@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daisy is all smiles. She missed her friends.](https://news.puppy-snuggles.com/31877878/daisy-is-all-smiles-she-missed-her-friends)
-- [a comparison of my puppy&amp;#039;s growth within 4 months.](https://news.puppy-snuggles.com/30474735/a-comparison-of-my-puppys-growth-within-4-months)
-- [today is the dog&amp;#039;s first day here at home and he is all sad, any tips?](https://news.puppy-snuggles.com/27165844/today-is-the-dogs-first-day-here-at-home-and-he-is-all-sad-any-tips)
-- [Heaven gained the goodest boy](https://news.puppy-snuggles.com/23823379/heaven-gained-the-goodest-boy)
-- [Can anyone identify this breed](https://news.puppy-snuggles.com/23348080/can-anyone-identify-this-breed)
+- [Blondie always take care of mommy. I&amp;#039;m in bed.](https://news.puppy-snuggles.com/35430504/blondie-always-take-care-of-mommy-im-in-bed)
+- [What kind of Dog is this?](https://news.puppy-snuggles.com/35430503/what-kind-of-dog-is-this)
+- [Coco puff!](https://news.puppy-snuggles.com/35313660/coco-puff)
+- [When you forget your friend in the car](https://news.puppy-snuggles.com/35313659/when-you-forget-your-friend-in-the-car)
+- [Not the prettiest smile, but one of a kind](https://news.puppy-snuggles.com/35313662/not-the-prettiest-smile-but-one-of-a-kind)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
