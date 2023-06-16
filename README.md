@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Blondie always take care of mommy. I&amp;#039;m in bed.](https://news.puppy-snuggles.com/35430504/blondie-always-take-care-of-mommy-im-in-bed)
-- [What kind of Dog is this?](https://news.puppy-snuggles.com/35430503/what-kind-of-dog-is-this)
-- [Coco puff!](https://news.puppy-snuggles.com/35313660/coco-puff)
-- [When you forget your friend in the car](https://news.puppy-snuggles.com/35313659/when-you-forget-your-friend-in-the-car)
-- [Not the prettiest smile, but one of a kind](https://news.puppy-snuggles.com/35313662/not-the-prettiest-smile-but-one-of-a-kind)
+- [I know she is mixed with Pitbull, but what other breed is she mixed with? Help](https://news.puppy-snuggles.com/17428546/i-know-she-is-mixed-with-pitbull-but-what-other-breed-is-she-mixed-with-help)
+- [Rose is 13 today!](https://news.puppy-snuggles.com/15609377/rose-is-13-today)
+- [Sunny- loves: peanut butter, her duck toy, treats; hates: doorstops](https://news.puppy-snuggles.com/14443625/sunny-loves-peanut-butter-her-duck-toy-treats-hates-doorstops)
+- [My boy is finally healing up!! After a deep cut to his pad, multiple trips to the vet, a staple, pain meds, antibiotics, and 3-4 weeks with limp..........He is finally back to his old self.](https://news.puppy-snuggles.com/14141761/my-boy-is-finally-healing-up-after-a-deep-cut-to-his-pad-multiple-trips-to-the-vet-a-staple-pain-meds-antibiotics-and-3-4-weeks-with-limphe-is-finally-back-to-his-old-self)
+- [Does everyone have 20 nicknames for their dogs? Lol.](https://news.puppy-snuggles.com/13989289/does-everyone-have-20-nicknames-for-their-dogs-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
