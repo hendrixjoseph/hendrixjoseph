@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I know she is mixed with Pitbull, but what other breed is she mixed with? Help](https://news.puppy-snuggles.com/17428546/i-know-she-is-mixed-with-pitbull-but-what-other-breed-is-she-mixed-with-help)
-- [Rose is 13 today!](https://news.puppy-snuggles.com/15609377/rose-is-13-today)
-- [Sunny- loves: peanut butter, her duck toy, treats; hates: doorstops](https://news.puppy-snuggles.com/14443625/sunny-loves-peanut-butter-her-duck-toy-treats-hates-doorstops)
-- [My boy is finally healing up!! After a deep cut to his pad, multiple trips to the vet, a staple, pain meds, antibiotics, and 3-4 weeks with limp..........He is finally back to his old self.](https://news.puppy-snuggles.com/14141761/my-boy-is-finally-healing-up-after-a-deep-cut-to-his-pad-multiple-trips-to-the-vet-a-staple-pain-meds-antibiotics-and-3-4-weeks-with-limphe-is-finally-back-to-his-old-self)
-- [Does everyone have 20 nicknames for their dogs? Lol.](https://news.puppy-snuggles.com/13989289/does-everyone-have-20-nicknames-for-their-dogs-lol)
+- [lost my floofer this week and im missing her so here&amp;#039;s my favorite picture of us](https://news.puppy-snuggles.com/35559339/lost-my-floofer-this-week-and-im-missing-her-so-heres-my-favorite-picture-of-us)
+- [Unveiling the Enchanting Duck Toy for Dogs](https://news.puppy-snuggles.com/35559412/unveiling-the-enchanting-duck-toy-for-dogs)
+- [The Benefits of Dog Walking](https://news.puppy-snuggles.com/24787914/the-benefits-of-dog-walking)
+- [Oliver! Can anyone help me identify what he might be? We adopted him from the shelter two years ago as a puppy and they didn’t know](https://news.puppy-snuggles.com/22868079/oliver-can-anyone-help-me-identify-what-he-might-be-we-adopted-him-from-the-shelter-two-years-ago-as-a-puppy-and-they-didnt-know)
+- [They are in big trouble for sure!](https://news.puppy-snuggles.com/22544574/they-are-in-big-trouble-for-sure)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
