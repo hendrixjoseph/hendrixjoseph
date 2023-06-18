@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [lost my floofer this week and im missing her so here&amp;#039;s my favorite picture of us](https://news.puppy-snuggles.com/35559339/lost-my-floofer-this-week-and-im-missing-her-so-heres-my-favorite-picture-of-us)
-- [Unveiling the Enchanting Duck Toy for Dogs](https://news.puppy-snuggles.com/35559412/unveiling-the-enchanting-duck-toy-for-dogs)
-- [The Benefits of Dog Walking](https://news.puppy-snuggles.com/24787914/the-benefits-of-dog-walking)
-- [Oliver! Can anyone help me identify what he might be? We adopted him from the shelter two years ago as a puppy and they didn’t know](https://news.puppy-snuggles.com/22868079/oliver-can-anyone-help-me-identify-what-he-might-be-we-adopted-him-from-the-shelter-two-years-ago-as-a-puppy-and-they-didnt-know)
-- [They are in big trouble for sure!](https://news.puppy-snuggles.com/22544574/they-are-in-big-trouble-for-sure)
+- [Hey guys](https://news.puppy-snuggles.com/35537321/hey-guys)
+- [Why is a dog always full of energy after taking a walk?](https://news.puppy-snuggles.com/35537319/why-is-a-dog-always-full-of-energy-after-taking-a-walk)
+- [This little fella left us after 15 years of aventures, farewell Simon.](https://news.puppy-snuggles.com/34066350/this-little-fella-left-us-after-15-years-of-aventures-farewell-simon)
+- [Rate my dog from 1 to 10 pls](https://news.puppy-snuggles.com/30249583/rate-my-dog-from-1-to-10-pls)
+- [This smiling happy puppy! Any ideas which breed is him 10 weeks old 4kg](https://news.puppy-snuggles.com/23175022/this-smiling-happy-puppy-any-ideas-which-breed-is-him-10-weeks-old-4kg)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
