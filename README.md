@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hey guys](https://news.puppy-snuggles.com/35537321/hey-guys)
-- [Why is a dog always full of energy after taking a walk?](https://news.puppy-snuggles.com/35537319/why-is-a-dog-always-full-of-energy-after-taking-a-walk)
-- [This little fella left us after 15 years of aventures, farewell Simon.](https://news.puppy-snuggles.com/34066350/this-little-fella-left-us-after-15-years-of-aventures-farewell-simon)
-- [Rate my dog from 1 to 10 pls](https://news.puppy-snuggles.com/30249583/rate-my-dog-from-1-to-10-pls)
-- [This smiling happy puppy! Any ideas which breed is him 10 weeks old 4kg](https://news.puppy-snuggles.com/23175022/this-smiling-happy-puppy-any-ideas-which-breed-is-him-10-weeks-old-4kg)
+- [We are surrounded daily by these smiley pups at our animal refuge Sara Morocco. With 900 rescues, we are greeted daily by wagging tails and big grins. Life is good](https://news.puppy-snuggles.com/24402198/we-are-surrounded-daily-by-these-smiley-pups-at-our-animal-refuge-sara-morocco-with-900-rescues-we-are-greeted-daily-by-wagging-tails-and-big-grins-life-is-good)
+- [Lap dog](https://news.puppy-snuggles.com/23214208/lap-dog)
+- [Baby Kyro smiling through recovery!](https://news.puppy-snuggles.com/21452319/baby-kyro-smiling-through-recovery)
+- [Nothing brings either of us more joy than Scout on his wicker couch.](https://news.puppy-snuggles.com/19471522/nothing-brings-either-of-us-more-joy-than-scout-on-his-wicker-couch)
+- [I wake up everyday to my legs being pinned down. Sometimes it will incorporate into my dreams.](https://news.puppy-snuggles.com/18232422/i-wake-up-everyday-to-my-legs-being-pinned-down-sometimes-it-will-incorporate-into-my-dreams)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
