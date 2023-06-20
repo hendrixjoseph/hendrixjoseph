@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We are surrounded daily by these smiley pups at our animal refuge Sara Morocco. With 900 rescues, we are greeted daily by wagging tails and big grins. Life is good](https://news.puppy-snuggles.com/24402198/we-are-surrounded-daily-by-these-smiley-pups-at-our-animal-refuge-sara-morocco-with-900-rescues-we-are-greeted-daily-by-wagging-tails-and-big-grins-life-is-good)
-- [Lap dog](https://news.puppy-snuggles.com/23214208/lap-dog)
-- [Baby Kyro smiling through recovery!](https://news.puppy-snuggles.com/21452319/baby-kyro-smiling-through-recovery)
-- [Nothing brings either of us more joy than Scout on his wicker couch.](https://news.puppy-snuggles.com/19471522/nothing-brings-either-of-us-more-joy-than-scout-on-his-wicker-couch)
-- [I wake up everyday to my legs being pinned down. Sometimes it will incorporate into my dreams.](https://news.puppy-snuggles.com/18232422/i-wake-up-everyday-to-my-legs-being-pinned-down-sometimes-it-will-incorporate-into-my-dreams)
+- [Baby girl going for a swim](https://news.puppy-snuggles.com/35746199/baby-girl-going-for-a-swim)
+- [Huge dog get refresh](https://news.puppy-snuggles.com/35746201/huge-dog-get-refresh)
+- [When she hears the word fetch](https://news.puppy-snuggles.com/35746202/when-she-hears-the-word-fetch)
+- [I wanna be this cute..](https://news.puppy-snuggles.com/35746200/i-wanna-be-this-cute)
+- [My best friend Charlie is *Drum roll* officially one year old!! 🎂](https://news.puppy-snuggles.com/35746204/my-best-friend-charlie-is-drum-roll-officially-one-year-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
