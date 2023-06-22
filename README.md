@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my pups were both hit by a box truck last night… it was a horrible sight. I’m both devastated and traumatized. They were both 6. They loved eachother very much.](https://news.puppy-snuggles.com/30685530/my-pups-were-both-hit-by-a-box-truck-last-night-it-was-a-horrible-sight-im-both-devastated-and-traumatized-they-were-both-6-they-loved-eachother-very-much)
-- [I think Dio is dreaming of chop heaven](https://news.puppy-snuggles.com/28336005/i-think-dio-is-dreaming-of-chop-heaven)
-- [he thinks he&amp;#039;s protecting me from someone walking down the sidewalk. I feel so safe🥰](https://news.puppy-snuggles.com/24046793/he-thinks-hes-protecting-me-from-someone-walking-down-the-sidewalk-i-feel-so-safe)
-- [My father found this weak stray pup tonight. Cried when he arrived and keeps on grunting in his dreams. I don&amp;#039;t know how to comfort him.](https://news.puppy-snuggles.com/23931078/my-father-found-this-weak-stray-pup-tonight-cried-when-he-arrived-and-keeps-on-grunting-in-his-dreams-i-dont-know-how-to-comfort-him)
-- [Hi lm Sammy . Today&amp;#039;s my birthday. I&amp;#039;m 3 and a very good boy.](https://news.puppy-snuggles.com/17894242/hi-lm-sammy-todays-my-birthday-im-3-and-a-very-good-boy)
+- [I wanna be this cute..](https://news.puppy-snuggles.com/35746200/i-wanna-be-this-cute)
+- [My dog Nyx. An Eurasier](https://news.puppy-snuggles.com/35746207/my-dog-nyx-an-eurasier)
+- [Desmond, The Worlds Biggest Mama’s Boy](https://news.puppy-snuggles.com/31079352/desmond-the-worlds-biggest-mamas-boy)
+- [let me in guys](https://news.puppy-snuggles.com/24642660/let-me-in-guys)
+- [Will they become friends one day?](https://news.puppy-snuggles.com/23251509/will-they-become-friends-one-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
