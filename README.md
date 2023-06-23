@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I wanna be this cute..](https://news.puppy-snuggles.com/35746200/i-wanna-be-this-cute)
-- [My dog Nyx. An Eurasier](https://news.puppy-snuggles.com/35746207/my-dog-nyx-an-eurasier)
-- [Desmond, The Worlds Biggest Mama’s Boy](https://news.puppy-snuggles.com/31079352/desmond-the-worlds-biggest-mamas-boy)
-- [let me in guys](https://news.puppy-snuggles.com/24642660/let-me-in-guys)
-- [Will they become friends one day?](https://news.puppy-snuggles.com/23251509/will-they-become-friends-one-day)
+- [Y’all like the smile of this good boy](https://news.puppy-snuggles.com/31877881/yall-like-the-smile-of-this-good-boy)
+- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
+- [Some pictures of my dog when she was little. &lpar;Happy&rpar;](https://news.puppy-snuggles.com/24034938/some-pictures-of-my-dog-when-she-was-little-happy)
+- [They are so in love with their new bed!](https://news.puppy-snuggles.com/23730062/they-are-so-in-love-with-their-new-bed)
+- [Juneau says hi to you all.](https://news.puppy-snuggles.com/23566741/juneau-says-hi-to-you-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
