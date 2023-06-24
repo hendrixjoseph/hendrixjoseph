@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Y’all like the smile of this good boy](https://news.puppy-snuggles.com/31877881/yall-like-the-smile-of-this-good-boy)
-- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
-- [Some pictures of my dog when she was little. &lpar;Happy&rpar;](https://news.puppy-snuggles.com/24034938/some-pictures-of-my-dog-when-she-was-little-happy)
-- [They are so in love with their new bed!](https://news.puppy-snuggles.com/23730062/they-are-so-in-love-with-their-new-bed)
-- [Juneau says hi to you all.](https://news.puppy-snuggles.com/23566741/juneau-says-hi-to-you-all)
+- [Just Passed](https://news.puppy-snuggles.com/21607042/just-passed)
+- [I got some comments over at the sim racing sub reading that this belongs here](https://news.puppy-snuggles.com/19091199/i-got-some-comments-over-at-the-sim-racing-sub-reading-that-this-belongs-here)
+- [She wants nothing but my hand!](https://news.puppy-snuggles.com/10992499/she-wants-nothing-but-my-hand)
+- [Melody went absolutely everywhere with me for many, many years](https://news.puppy-snuggles.com/9935782/melody-went-absolutely-everywhere-with-me-for-many-many-years)
+- [Decided to brush my lab for the first time...](https://news.puppy-snuggles.com/9806856/decided-to-brush-my-lab-for-the-first-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
