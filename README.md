@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just Passed](https://news.puppy-snuggles.com/21607042/just-passed)
-- [I got some comments over at the sim racing sub reading that this belongs here](https://news.puppy-snuggles.com/19091199/i-got-some-comments-over-at-the-sim-racing-sub-reading-that-this-belongs-here)
-- [She wants nothing but my hand!](https://news.puppy-snuggles.com/10992499/she-wants-nothing-but-my-hand)
-- [Melody went absolutely everywhere with me for many, many years](https://news.puppy-snuggles.com/9935782/melody-went-absolutely-everywhere-with-me-for-many-many-years)
-- [Decided to brush my lab for the first time...](https://news.puppy-snuggles.com/9806856/decided-to-brush-my-lab-for-the-first-time)
+- [Hi My name is tom](https://news.puppy-snuggles.com/23839544/hi-my-name-is-tom)
+- [I get so overwhelmed with love anytime I look at her 🥹](https://news.puppy-snuggles.com/23684699/i-get-so-overwhelmed-with-love-anytime-i-look-at-her)
+- [Every time I sit down at the couch, this happens. Not complaining though. :&rpar;](https://news.puppy-snuggles.com/18146029/every-time-i-sit-down-at-the-couch-this-happens-not-complaining-though)
+- [Dermot loves dangling a leg whenever he can](https://news.puppy-snuggles.com/17585195/dermot-loves-dangling-a-leg-whenever-he-can)
+- [These two have the time there life.](https://news.puppy-snuggles.com/17428545/these-two-have-the-time-there-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
