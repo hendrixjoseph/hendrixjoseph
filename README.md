@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi My name is tom](https://news.puppy-snuggles.com/23839544/hi-my-name-is-tom)
-- [I get so overwhelmed with love anytime I look at her 🥹](https://news.puppy-snuggles.com/23684699/i-get-so-overwhelmed-with-love-anytime-i-look-at-her)
-- [Every time I sit down at the couch, this happens. Not complaining though. :&rpar;](https://news.puppy-snuggles.com/18146029/every-time-i-sit-down-at-the-couch-this-happens-not-complaining-though)
-- [Dermot loves dangling a leg whenever he can](https://news.puppy-snuggles.com/17585195/dermot-loves-dangling-a-leg-whenever-he-can)
-- [These two have the time there life.](https://news.puppy-snuggles.com/17428545/these-two-have-the-time-there-life)
+- [TSA dog handler removed after video shows him pulling, dragging K-9](https://news.puppy-snuggles.com/32873866/tsa-dog-handler-removed-after-video-shows-him-pulling-dragging-k-9)
+- [I really wish I spoke fluent dog....](https://news.puppy-snuggles.com/28512793/i-really-wish-i-spoke-fluent-dog)
+- [When ball is life](https://news.puppy-snuggles.com/26580116/when-ball-is-life)
+- [Da dog is sad because she lost the ball.](https://news.puppy-snuggles.com/22716971/da-dog-is-sad-because-she-lost-the-ball)
+- [Dead dog found inside Youngstown home, two dogs rescued in separate case](https://news.puppy-snuggles.com/19133721/dead-dog-found-inside-youngstown-home-two-dogs-rescued-in-separate-case)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
