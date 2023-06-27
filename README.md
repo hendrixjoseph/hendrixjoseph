@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [TSA dog handler removed after video shows him pulling, dragging K-9](https://news.puppy-snuggles.com/32873866/tsa-dog-handler-removed-after-video-shows-him-pulling-dragging-k-9)
-- [I really wish I spoke fluent dog....](https://news.puppy-snuggles.com/28512793/i-really-wish-i-spoke-fluent-dog)
-- [When ball is life](https://news.puppy-snuggles.com/26580116/when-ball-is-life)
-- [Da dog is sad because she lost the ball.](https://news.puppy-snuggles.com/22716971/da-dog-is-sad-because-she-lost-the-ball)
-- [Dead dog found inside Youngstown home, two dogs rescued in separate case](https://news.puppy-snuggles.com/19133721/dead-dog-found-inside-youngstown-home-two-dogs-rescued-in-separate-case)
+- [Emaciated female dog found along Berks road and dead puppies later found in a bag under investigation](https://news.puppy-snuggles.com/32941882/emaciated-female-dog-found-along-berks-road-and-dead-puppies-later-found-in-a-bag-under-investigation)
+- [Moe is loving his new PJs!](https://news.puppy-snuggles.com/17099329/moe-is-loving-his-new-pjs)
+- [Dogs are humans. Add a member to your home today](https://news.puppy-snuggles.com/14367323/dogs-are-humans-add-a-member-to-your-home-today)
+- [Is it still snowing?](https://news.puppy-snuggles.com/14188937/is-it-still-snowing)
+- [He can smell u](https://news.puppy-snuggles.com/14103993/he-can-smell-u)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
