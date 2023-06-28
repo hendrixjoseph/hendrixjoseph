@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Emaciated female dog found along Berks road and dead puppies later found in a bag under investigation](https://news.puppy-snuggles.com/32941882/emaciated-female-dog-found-along-berks-road-and-dead-puppies-later-found-in-a-bag-under-investigation)
-- [Moe is loving his new PJs!](https://news.puppy-snuggles.com/17099329/moe-is-loving-his-new-pjs)
-- [Dogs are humans. Add a member to your home today](https://news.puppy-snuggles.com/14367323/dogs-are-humans-add-a-member-to-your-home-today)
-- [Is it still snowing?](https://news.puppy-snuggles.com/14188937/is-it-still-snowing)
-- [He can smell u](https://news.puppy-snuggles.com/14103993/he-can-smell-u)
+- [Moment right before being tackled](https://news.puppy-snuggles.com/23185581/moment-right-before-being-tackled)
+- [Majestic? Yes. Still my puppy? Definitely!](https://news.puppy-snuggles.com/19188683/majestic-yes-still-my-puppy-definitely)
+- [All my girls together!](https://news.puppy-snuggles.com/18692996/all-my-girls-together)
+- [Dog waits for ice cream truck and receives free ice cream cone!!!!](https://news.puppy-snuggles.com/18460019/dog-waits-for-ice-cream-truck-and-receives-free-ice-cream-cone)
+- [Tye&amp;#039;s not feeling so good last few days but the sun always cheers him up](https://news.puppy-snuggles.com/18092878/tyes-not-feeling-so-good-last-few-days-but-the-sun-always-cheers-him-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
