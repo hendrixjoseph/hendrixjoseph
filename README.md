@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Moment right before being tackled](https://news.puppy-snuggles.com/23185581/moment-right-before-being-tackled)
-- [Majestic? Yes. Still my puppy? Definitely!](https://news.puppy-snuggles.com/19188683/majestic-yes-still-my-puppy-definitely)
-- [All my girls together!](https://news.puppy-snuggles.com/18692996/all-my-girls-together)
-- [Dog waits for ice cream truck and receives free ice cream cone!!!!](https://news.puppy-snuggles.com/18460019/dog-waits-for-ice-cream-truck-and-receives-free-ice-cream-cone)
-- [Tye&amp;#039;s not feeling so good last few days but the sun always cheers him up](https://news.puppy-snuggles.com/18092878/tyes-not-feeling-so-good-last-few-days-but-the-sun-always-cheers-him-up)
+- [Both balls are mine](https://news.puppy-snuggles.com/35537325/both-balls-are-mine)
+- [A very good girl.](https://news.puppy-snuggles.com/35537322/a-very-good-girl)
+- [Doggo see&amp;#039;s boinging door stopper for first time](https://news.puppy-snuggles.com/24727016/doggo-sees-boinging-door-stopper-for-first-time)
+- [Don&amp;#039;t pass without a boop please.](https://news.puppy-snuggles.com/22856255/dont-pass-without-a-boop-please)
+- [Custom Pet Portraits - rates in comments :&rpar;](https://news.puppy-snuggles.com/21574979/custom-pet-portraits-rates-in-comments)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
