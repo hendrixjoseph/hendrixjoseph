@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Both balls are mine](https://news.puppy-snuggles.com/35537325/both-balls-are-mine)
-- [A very good girl.](https://news.puppy-snuggles.com/35537322/a-very-good-girl)
-- [Doggo see&amp;#039;s boinging door stopper for first time](https://news.puppy-snuggles.com/24727016/doggo-sees-boinging-door-stopper-for-first-time)
-- [Don&amp;#039;t pass without a boop please.](https://news.puppy-snuggles.com/22856255/dont-pass-without-a-boop-please)
-- [Custom Pet Portraits - rates in comments :&rpar;](https://news.puppy-snuggles.com/21574979/custom-pet-portraits-rates-in-comments)
+- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
+- [Astrid, from 3 months old to her recent &lpar;9 months old now&rpar;.](https://news.puppy-snuggles.com/36178601/astrid-from-3-months-old-to-her-recent-9-months-old-now)
+- [Sunny days, sweeping the clouds away](https://news.puppy-snuggles.com/36111956/sunny-days-sweeping-the-clouds-away)
+- [rescued this sweet girl at the beginning of june and took her for her first pup cup today!](https://news.puppy-snuggles.com/36089863/rescued-this-sweet-girl-at-the-beginning-of-june-and-took-her-for-her-first-pup-cup-today)
+- [Let This Adorable Golden Retriever Family With 13 Puppies Cheer You Up](https://news.puppy-snuggles.com/19063152/let-this-adorable-golden-retriever-family-with-13-puppies-cheer-you-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
