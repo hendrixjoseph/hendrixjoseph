@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
-- [Astrid, from 3 months old to her recent &lpar;9 months old now&rpar;.](https://news.puppy-snuggles.com/36178601/astrid-from-3-months-old-to-her-recent-9-months-old-now)
-- [Sunny days, sweeping the clouds away](https://news.puppy-snuggles.com/36111956/sunny-days-sweeping-the-clouds-away)
-- [rescued this sweet girl at the beginning of june and took her for her first pup cup today!](https://news.puppy-snuggles.com/36089863/rescued-this-sweet-girl-at-the-beginning-of-june-and-took-her-for-her-first-pup-cup-today)
-- [Let This Adorable Golden Retriever Family With 13 Puppies Cheer You Up](https://news.puppy-snuggles.com/19063152/let-this-adorable-golden-retriever-family-with-13-puppies-cheer-you-up)
+- [Pit stop in the middle of the walk](https://news.puppy-snuggles.com/36320241/pit-stop-in-the-middle-of-the-walk)
+- [Best BUD!](https://news.puppy-snuggles.com/33838817/best-bud)
+- [What’s Better Than One Day Smiling? Two!](https://news.puppy-snuggles.com/30799682/whats-better-than-one-day-smiling-two)
+- [Lost this wonderful boy last night to a sudden stroke. He was a member of our family for 10+ years. Walking in the front door will never be the same](https://news.puppy-snuggles.com/23108632/lost-this-wonderful-boy-last-night-to-a-sudden-stroke-he-was-a-member-of-our-family-for-10-years-walking-in-the-front-door-will-never-be-the-same)
+- [My sweet pup is happy it&amp;#039;s snuggle weather again :&rpar;](https://news.puppy-snuggles.com/23097346/my-sweet-pup-is-happy-its-snuggle-weather-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
