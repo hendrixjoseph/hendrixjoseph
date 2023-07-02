@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pit stop in the middle of the walk](https://news.puppy-snuggles.com/36320241/pit-stop-in-the-middle-of-the-walk)
-- [Best BUD!](https://news.puppy-snuggles.com/33838817/best-bud)
-- [What’s Better Than One Day Smiling? Two!](https://news.puppy-snuggles.com/30799682/whats-better-than-one-day-smiling-two)
-- [Lost this wonderful boy last night to a sudden stroke. He was a member of our family for 10+ years. Walking in the front door will never be the same](https://news.puppy-snuggles.com/23108632/lost-this-wonderful-boy-last-night-to-a-sudden-stroke-he-was-a-member-of-our-family-for-10-years-walking-in-the-front-door-will-never-be-the-same)
-- [My sweet pup is happy it&amp;#039;s snuggle weather again :&rpar;](https://news.puppy-snuggles.com/23097346/my-sweet-pup-is-happy-its-snuggle-weather-again)
+- [my doggo is 12 and still loves you all](https://news.puppy-snuggles.com/22034333/my-doggo-is-12-and-still-loves-you-all)
+- [I Derp](https://news.puppy-snuggles.com/21954426/i-derp)
+- [My golden baby turned 8 today!](https://news.puppy-snuggles.com/21715613/my-golden-baby-turned-8-today)
+- [My puppy Reinhardt :&rpar; Open to guesses as to what he might be mixed with!](https://news.puppy-snuggles.com/21564261/my-puppy-reinhardt-open-to-guesses-as-to-what-he-might-be-mixed-with)
+- [Enjoying the sunshine!](https://news.puppy-snuggles.com/19854550/enjoying-the-sunshine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
