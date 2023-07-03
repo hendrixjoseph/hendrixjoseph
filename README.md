@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my doggo is 12 and still loves you all](https://news.puppy-snuggles.com/22034333/my-doggo-is-12-and-still-loves-you-all)
-- [I Derp](https://news.puppy-snuggles.com/21954426/i-derp)
-- [My golden baby turned 8 today!](https://news.puppy-snuggles.com/21715613/my-golden-baby-turned-8-today)
-- [My puppy Reinhardt :&rpar; Open to guesses as to what he might be mixed with!](https://news.puppy-snuggles.com/21564261/my-puppy-reinhardt-open-to-guesses-as-to-what-he-might-be-mixed-with)
-- [Enjoying the sunshine!](https://news.puppy-snuggles.com/19854550/enjoying-the-sunshine)
+- [My big boy has big puppy dog eyes](https://news.puppy-snuggles.com/22951090/my-big-boy-has-big-puppy-dog-eyes)
+- [This is Moo. He does not know personal space.](https://news.puppy-snuggles.com/22716973/this-is-moo-he-does-not-know-personal-space)
+- [Homer is a simple dog who enjoys the simple things like extension cords.](https://news.puppy-snuggles.com/21377528/homer-is-a-simple-dog-who-enjoys-the-simple-things-like-extension-cords)
+- [Baby Niko! He’s a 3 month old long-haired German Shepherd 🐻](https://news.puppy-snuggles.com/20211807/baby-niko-hes-a-3-month-old-long-haired-german-shepherd)
+- [Mommy! Were just having fun, pleaaath don&amp;#039;t get mad](https://news.puppy-snuggles.com/20033333/mommy-were-just-having-fun-pleaaath-dont-get-mad)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
