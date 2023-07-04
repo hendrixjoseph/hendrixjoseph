@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My big boy has big puppy dog eyes](https://news.puppy-snuggles.com/22951090/my-big-boy-has-big-puppy-dog-eyes)
-- [This is Moo. He does not know personal space.](https://news.puppy-snuggles.com/22716973/this-is-moo-he-does-not-know-personal-space)
-- [Homer is a simple dog who enjoys the simple things like extension cords.](https://news.puppy-snuggles.com/21377528/homer-is-a-simple-dog-who-enjoys-the-simple-things-like-extension-cords)
-- [Baby Niko! He’s a 3 month old long-haired German Shepherd 🐻](https://news.puppy-snuggles.com/20211807/baby-niko-hes-a-3-month-old-long-haired-german-shepherd)
-- [Mommy! Were just having fun, pleaaath don&amp;#039;t get mad](https://news.puppy-snuggles.com/20033333/mommy-were-just-having-fun-pleaaath-dont-get-mad)
+- [Alice has the tired puppy smiles.](https://news.puppy-snuggles.com/22716968/alice-has-the-tired-puppy-smiles)
+- [New puppy. What breed is she?](https://news.puppy-snuggles.com/20116383/new-puppy-what-breed-is-she)
+- [Needle felted labrador sculpture made by me](https://news.puppy-snuggles.com/19233584/needle-felted-labrador-sculpture-made-by-me)
+- [Not even shots at the vet can take away Willa’s smile 💕](https://news.puppy-snuggles.com/18453462/not-even-shots-at-the-vet-can-take-away-willas-smile)
+- [Dog is declared king of his neighborhood](https://news.puppy-snuggles.com/17653302/dog-is-declared-king-of-his-neighborhood)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
