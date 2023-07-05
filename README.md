@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Alice has the tired puppy smiles.](https://news.puppy-snuggles.com/22716968/alice-has-the-tired-puppy-smiles)
-- [New puppy. What breed is she?](https://news.puppy-snuggles.com/20116383/new-puppy-what-breed-is-she)
-- [Needle felted labrador sculpture made by me](https://news.puppy-snuggles.com/19233584/needle-felted-labrador-sculpture-made-by-me)
-- [Not even shots at the vet can take away Willa’s smile 💕](https://news.puppy-snuggles.com/18453462/not-even-shots-at-the-vet-can-take-away-willas-smile)
-- [Dog is declared king of his neighborhood](https://news.puppy-snuggles.com/17653302/dog-is-declared-king-of-his-neighborhood)
+- [Rate my dog](https://news.puppy-snuggles.com/33858539/rate-my-dog)
+- [Always loves to pose for photos😍🥰model!](https://news.puppy-snuggles.com/24104279/always-loves-to-pose-for-photosmodel)
+- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
+- [having a wild dream](https://news.puppy-snuggles.com/22687718/having-a-wild-dream)
+- [Sweet Pea, belly full of roast chicken, takes a nap happy](https://news.puppy-snuggles.com/22687717/sweet-pea-belly-full-of-roast-chicken-takes-a-nap-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
