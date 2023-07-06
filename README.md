@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rate my dog](https://news.puppy-snuggles.com/33858539/rate-my-dog)
-- [Always loves to pose for photos😍🥰model!](https://news.puppy-snuggles.com/24104279/always-loves-to-pose-for-photosmodel)
-- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
-- [having a wild dream](https://news.puppy-snuggles.com/22687718/having-a-wild-dream)
-- [Sweet Pea, belly full of roast chicken, takes a nap happy](https://news.puppy-snuggles.com/22687717/sweet-pea-belly-full-of-roast-chicken-takes-a-nap-happy)
+- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
+- [This little gal is my everything, she&amp;#039;s the reason I keep going. Just wanted to share her cuteness with everyone :&rpar;](https://news.puppy-snuggles.com/21769082/this-little-gal-is-my-everything-shes-the-reason-i-keep-going-just-wanted-to-share-her-cuteness-with-everyone)
+- [Secretly supervising](https://news.puppy-snuggles.com/20061479/secretly-supervising)
+- [LOVE DOGS! DO YOU AGREE?](https://news.puppy-snuggles.com/20023858/love-dogs-do-you-agree)
+- [My puppy has helped show me how to enjoy life, even with the ups and downs that come with each day. Although though they struggle with severe allergies they&amp;#039;ve taught me that it&amp;#039;s okay to be happy &amp;amp;amp; have fun, even when I&amp;#039;m not feeling my best. ily Bee 💛🌻](https://news.puppy-snuggles.com/19869000/my-puppy-has-helped-show-me-how-to-enjoy-life-even-with-the-ups-and-downs-that-come-with-each-day-although-though-they-struggle-with-severe-allergies-theyve-taught-me-that-its-okay-to-be-happy-amp-have-fun-even-when-im-not-feeling-my-best-ily-bee)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
