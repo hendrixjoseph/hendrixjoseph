@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
-- [This little gal is my everything, she&amp;#039;s the reason I keep going. Just wanted to share her cuteness with everyone :&rpar;](https://news.puppy-snuggles.com/21769082/this-little-gal-is-my-everything-shes-the-reason-i-keep-going-just-wanted-to-share-her-cuteness-with-everyone)
-- [Secretly supervising](https://news.puppy-snuggles.com/20061479/secretly-supervising)
-- [LOVE DOGS! DO YOU AGREE?](https://news.puppy-snuggles.com/20023858/love-dogs-do-you-agree)
-- [My puppy has helped show me how to enjoy life, even with the ups and downs that come with each day. Although though they struggle with severe allergies they&amp;#039;ve taught me that it&amp;#039;s okay to be happy &amp;amp;amp; have fun, even when I&amp;#039;m not feeling my best. ily Bee 💛🌻](https://news.puppy-snuggles.com/19869000/my-puppy-has-helped-show-me-how-to-enjoy-life-even-with-the-ups-and-downs-that-come-with-each-day-although-though-they-struggle-with-severe-allergies-theyve-taught-me-that-its-okay-to-be-happy-amp-have-fun-even-when-im-not-feeling-my-best-ily-bee)
+- [More sun smiles](https://news.puppy-snuggles.com/36392099/more-sun-smiles)
+- [Just a handsome old man. Early usually hates getting his picture taken but I think it’s a pretty good one.](https://news.puppy-snuggles.com/23581721/just-a-handsome-old-man-early-usually-hates-getting-his-picture-taken-but-i-think-its-a-pretty-good-one)
+- [Which breed is the big dog](https://news.puppy-snuggles.com/23242009/which-breed-is-the-big-dog)
+- [Cuddle bug](https://news.puppy-snuggles.com/22774021/cuddle-bug)
+- [Just look at him](https://news.puppy-snuggles.com/22306579/just-look-at-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
