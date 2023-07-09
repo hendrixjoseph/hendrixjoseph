@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ozzy’s size differences &lpar;he’s even bigger now&rpar;](https://news.puppy-snuggles.com/32025789/ozzys-size-differences-hes-even-bigger-now)
-- [Zolly. Getting old. Takes his spot in the yard and keeps an eye on things.](https://news.puppy-snuggles.com/30314234/zolly-getting-old-takes-his-spot-in-the-yard-and-keeps-an-eye-on-things)
-- [Lost my first dog today and just looking back at how photogenic he was. Rest easy, my boy.](https://news.puppy-snuggles.com/26892870/lost-my-first-dog-today-and-just-looking-back-at-how-photogenic-he-was-rest-easy-my-boy)
-- [Luna, the happy little Pineranian](https://news.puppy-snuggles.com/23489829/luna-the-happy-little-pineranian)
-- [My foster dog has never been in the house](https://news.puppy-snuggles.com/23205504/my-foster-dog-has-never-been-in-the-house)
+- [sweet baby](https://news.puppy-snuggles.com/36440730/sweet-baby)
+- [The sweetest](https://news.puppy-snuggles.com/24667754/the-sweetest)
+- [Why’d you leave the couch?!](https://news.puppy-snuggles.com/24082121/whyd-you-leave-the-couch)
+- [Lil boi sleeps](https://news.puppy-snuggles.com/22142099/lil-boi-sleeps)
+- [My darlings](https://news.puppy-snuggles.com/17195417/my-darlings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
