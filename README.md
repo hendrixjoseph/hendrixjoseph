@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [sweet baby](https://news.puppy-snuggles.com/36440730/sweet-baby)
-- [The sweetest](https://news.puppy-snuggles.com/24667754/the-sweetest)
-- [Why’d you leave the couch?!](https://news.puppy-snuggles.com/24082121/whyd-you-leave-the-couch)
-- [Lil boi sleeps](https://news.puppy-snuggles.com/22142099/lil-boi-sleeps)
-- [My darlings](https://news.puppy-snuggles.com/17195417/my-darlings)
+- [Just a birthday pup enjoying his steak](https://news.puppy-snuggles.com/22590714/just-a-birthday-pup-enjoying-his-steak)
+- [One very happy doggo after leaving the vet. 😄](https://news.puppy-snuggles.com/17257604/one-very-happy-doggo-after-leaving-the-vet)
+- [Chilling with a view](https://news.puppy-snuggles.com/16530384/chilling-with-a-view)
+- [I feel so peaceful](https://news.puppy-snuggles.com/16464361/i-feel-so-peaceful)
+- [Why do I feel like my dog is judging me all the time?](https://news.puppy-snuggles.com/15907332/why-do-i-feel-like-my-dog-is-judging-me-all-the-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
