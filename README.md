@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a birthday pup enjoying his steak](https://news.puppy-snuggles.com/22590714/just-a-birthday-pup-enjoying-his-steak)
-- [One very happy doggo after leaving the vet. 😄](https://news.puppy-snuggles.com/17257604/one-very-happy-doggo-after-leaving-the-vet)
-- [Chilling with a view](https://news.puppy-snuggles.com/16530384/chilling-with-a-view)
-- [I feel so peaceful](https://news.puppy-snuggles.com/16464361/i-feel-so-peaceful)
-- [Why do I feel like my dog is judging me all the time?](https://news.puppy-snuggles.com/15907332/why-do-i-feel-like-my-dog-is-judging-me-all-the-time)
+- [I miss the puppy stage.](https://news.puppy-snuggles.com/36440735/i-miss-the-puppy-stage)
+- [Thought you should all see Pickles’ smile, such a sweet boy](https://news.puppy-snuggles.com/27430554/thought-you-should-all-see-pickles-smile-such-a-sweet-boy)
+- [The Labrador centipede](https://news.puppy-snuggles.com/26640975/the-labrador-centipede)
+- [Want a kiss? woof 🐶](https://news.puppy-snuggles.com/24749821/want-a-kiss-woof)
+- [Hello! I may need your help/opinion on this one. I&amp;#039;ve been wanting a dog for a long time and I found this sweet boy that took my interest, however I live in a house that&amp;#039;s small but w/ a decent backyard and big open front yard, fenceless though. I want him but I have the basic worries of a new owner](https://news.puppy-snuggles.com/24459819/hello-i-may-need-your-helpopinion-on-this-one-ive-been-wanting-a-dog-for-a-long-time-and-i-found-this-sweet-boy-that-took-my-interest-however-i-live-in-a-house-thats-small-but-w-a-decent-backyard-and-big-open-front-yard-fenceless-though-i-want-him-but-i-have-the-basic-worries-of-a-new-owner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
