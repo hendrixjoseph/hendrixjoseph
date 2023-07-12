@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I miss the puppy stage.](https://news.puppy-snuggles.com/36440735/i-miss-the-puppy-stage)
-- [Thought you should all see Pickles’ smile, such a sweet boy](https://news.puppy-snuggles.com/27430554/thought-you-should-all-see-pickles-smile-such-a-sweet-boy)
-- [The Labrador centipede](https://news.puppy-snuggles.com/26640975/the-labrador-centipede)
-- [Want a kiss? woof 🐶](https://news.puppy-snuggles.com/24749821/want-a-kiss-woof)
-- [Hello! I may need your help/opinion on this one. I&amp;#039;ve been wanting a dog for a long time and I found this sweet boy that took my interest, however I live in a house that&amp;#039;s small but w/ a decent backyard and big open front yard, fenceless though. I want him but I have the basic worries of a new owner](https://news.puppy-snuggles.com/24459819/hello-i-may-need-your-helpopinion-on-this-one-ive-been-wanting-a-dog-for-a-long-time-and-i-found-this-sweet-boy-that-took-my-interest-however-i-live-in-a-house-thats-small-but-w-a-decent-backyard-and-big-open-front-yard-fenceless-though-i-want-him-but-i-have-the-basic-worries-of-a-new-owner)
+- [He is so photogenic](https://news.puppy-snuggles.com/6437167/he-is-so-photogenic)
+- [Both ACLs torn, both meniscus torn. Surgeon couldn&amp;#039;t believe he walked without a limp. These Australian Cattle Dogs are champions.](https://news.puppy-snuggles.com/6425883/both-acls-torn-both-meniscus-torn-surgeon-couldnt-believe-he-walked-without-a-limp-these-australian-cattle-dogs-are-champions)
+- [The First Rainbow](https://news.puppy-snuggles.com/6419170/the-first-rainbow)
+- [Our rescue dog we recently adopted! Loki living his best life now!](https://news.puppy-snuggles.com/6411916/our-rescue-dog-we-recently-adopted-loki-living-his-best-life-now)
+- [Kissed by the Sun 🌞](https://news.puppy-snuggles.com/6411913/kissed-by-the-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
