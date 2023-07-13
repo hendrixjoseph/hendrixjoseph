@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He is so photogenic](https://news.puppy-snuggles.com/6437167/he-is-so-photogenic)
-- [Both ACLs torn, both meniscus torn. Surgeon couldn&amp;#039;t believe he walked without a limp. These Australian Cattle Dogs are champions.](https://news.puppy-snuggles.com/6425883/both-acls-torn-both-meniscus-torn-surgeon-couldnt-believe-he-walked-without-a-limp-these-australian-cattle-dogs-are-champions)
-- [The First Rainbow](https://news.puppy-snuggles.com/6419170/the-first-rainbow)
-- [Our rescue dog we recently adopted! Loki living his best life now!](https://news.puppy-snuggles.com/6411916/our-rescue-dog-we-recently-adopted-loki-living-his-best-life-now)
-- [Kissed by the Sun 🌞](https://news.puppy-snuggles.com/6411913/kissed-by-the-sun)
+- [I need prayers to any and all gods](https://news.puppy-snuggles.com/37229506/i-need-prayers-to-any-and-all-gods)
+- [Me and Ladybug taking a break in the middle of our 4.7 mile hike :&rpar;](https://news.puppy-snuggles.com/37229508/me-and-ladybug-taking-a-break-in-the-middle-of-our-47-mile-hike)
+- [My dog is a lab mix. What do you think he is mixed with?](https://news.puppy-snuggles.com/37229505/my-dog-is-a-lab-mix-what-do-you-think-he-is-mixed-with)
+- [Smiley boy 🥰](https://news.puppy-snuggles.com/37229510/smiley-boy)
+- [Are we there yet?](https://news.puppy-snuggles.com/37229509/are-we-there-yet)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
