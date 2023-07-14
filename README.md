@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I need prayers to any and all gods](https://news.puppy-snuggles.com/37229506/i-need-prayers-to-any-and-all-gods)
-- [Me and Ladybug taking a break in the middle of our 4.7 mile hike :&rpar;](https://news.puppy-snuggles.com/37229508/me-and-ladybug-taking-a-break-in-the-middle-of-our-47-mile-hike)
-- [My dog is a lab mix. What do you think he is mixed with?](https://news.puppy-snuggles.com/37229505/my-dog-is-a-lab-mix-what-do-you-think-he-is-mixed-with)
-- [Smiley boy 🥰](https://news.puppy-snuggles.com/37229510/smiley-boy)
-- [Are we there yet?](https://news.puppy-snuggles.com/37229509/are-we-there-yet)
+- [I sing to her in the morning before I leave to work. She has a favorite spot where she lays to listen right next to me.](https://news.puppy-snuggles.com/37287632/i-sing-to-her-in-the-morning-before-i-leave-to-work-she-has-a-favorite-spot-where-she-lays-to-listen-right-next-to-me)
+- [Calvin turned 1 yesterday!](https://news.puppy-snuggles.com/37287630/calvin-turned-1-yesterday)
+- [My Dog](https://news.puppy-snuggles.com/37269821/my-dog)
+- [Is there even a thought in that noggin?](https://news.puppy-snuggles.com/24172149/is-there-even-a-thought-in-that-noggin)
+- [The great debate](https://news.puppy-snuggles.com/22978562/the-great-debate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
