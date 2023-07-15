@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I sing to her in the morning before I leave to work. She has a favorite spot where she lays to listen right next to me.](https://news.puppy-snuggles.com/37287632/i-sing-to-her-in-the-morning-before-i-leave-to-work-she-has-a-favorite-spot-where-she-lays-to-listen-right-next-to-me)
-- [Calvin turned 1 yesterday!](https://news.puppy-snuggles.com/37287630/calvin-turned-1-yesterday)
-- [My Dog](https://news.puppy-snuggles.com/37269821/my-dog)
-- [Is there even a thought in that noggin?](https://news.puppy-snuggles.com/24172149/is-there-even-a-thought-in-that-noggin)
-- [The great debate](https://news.puppy-snuggles.com/22978562/the-great-debate)
+- [Just chilling..](https://news.puppy-snuggles.com/37344659/just-chilling)
+- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
+- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
+- [What would you name my pooch?](https://news.puppy-snuggles.com/23631317/what-would-you-name-my-pooch)
+- [Seal or dog?](https://news.puppy-snuggles.com/23037456/seal-or-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
