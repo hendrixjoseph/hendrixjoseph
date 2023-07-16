@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just chilling..](https://news.puppy-snuggles.com/37344659/just-chilling)
-- [Ollie didn’t make it back from the vet this morning, rest in peace baby.](https://news.puppy-snuggles.com/32177803/ollie-didnt-make-it-back-from-the-vet-this-morning-rest-in-peace-baby)
-- [meet my new golden pup, Ellie 🥰](https://news.puppy-snuggles.com/24459814/meet-my-new-golden-pup-ellie)
-- [What would you name my pooch?](https://news.puppy-snuggles.com/23631317/what-would-you-name-my-pooch)
-- [Seal or dog?](https://news.puppy-snuggles.com/23037456/seal-or-dog)
+- [My dog looks like Falcor from Never Ending Story](https://news.puppy-snuggles.com/3788587/my-dog-looks-like-falcor-from-never-ending-story)
+- [Pro tips](https://news.puppy-snuggles.com/3788586/pro-tips)
+- [Such a happy watermelon boy &amp;amp;lt;3](https://news.puppy-snuggles.com/3782773/such-a-happy-watermelon-boy-lt3)
+- [a very sleepy smile, the kind you take home to mama](https://news.puppy-snuggles.com/3782771/a-very-sleepy-smile-the-kind-you-take-home-to-mama)
+- [Kingsley loves his pillows](https://news.puppy-snuggles.com/3776602/kingsley-loves-his-pillows)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
