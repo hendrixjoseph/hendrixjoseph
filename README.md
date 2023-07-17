@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog looks like Falcor from Never Ending Story](https://news.puppy-snuggles.com/3788587/my-dog-looks-like-falcor-from-never-ending-story)
-- [Pro tips](https://news.puppy-snuggles.com/3788586/pro-tips)
-- [Such a happy watermelon boy &amp;amp;lt;3](https://news.puppy-snuggles.com/3782773/such-a-happy-watermelon-boy-lt3)
-- [a very sleepy smile, the kind you take home to mama](https://news.puppy-snuggles.com/3782771/a-very-sleepy-smile-the-kind-you-take-home-to-mama)
-- [Kingsley loves his pillows](https://news.puppy-snuggles.com/3776602/kingsley-loves-his-pillows)
+- [On your mark, set, go!](https://news.puppy-snuggles.com/37474608/on-your-mark-set-go)
+- [Authorities Investigating Dog Shot, Found Dead in Milk Crate](https://news.puppy-snuggles.com/37367718/authorities-investigating-dog-shot-found-dead-in-milk-crate)
+- [I need prayers to any and all gods](https://news.puppy-snuggles.com/37229506/i-need-prayers-to-any-and-all-gods)
+- [Moment Dog Realizes Foster Puppy Is Chewing His Tail Delights Internet](https://news.puppy-snuggles.com/37146363/moment-dog-realizes-foster-puppy-is-chewing-his-tail-delights-internet)
+- [Just adobted her :&rpar; her name is ginger got her from our local shelter, 8 months old and was found as a stray, shelter says her breed is unknown, what are some people opinions on her breed, what does she look like?:&rpar;](https://news.puppy-snuggles.com/37153925/just-adobted-her-her-name-is-ginger-got-her-from-our-local-shelter-8-months-old-and-was-found-as-a-stray-shelter-says-her-breed-is-unknown-what-are-some-people-opinions-on-her-breed-what-does-she-look-like)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
