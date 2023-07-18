@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [On your mark, set, go!](https://news.puppy-snuggles.com/37474608/on-your-mark-set-go)
-- [Authorities Investigating Dog Shot, Found Dead in Milk Crate](https://news.puppy-snuggles.com/37367718/authorities-investigating-dog-shot-found-dead-in-milk-crate)
-- [I need prayers to any and all gods](https://news.puppy-snuggles.com/37229506/i-need-prayers-to-any-and-all-gods)
-- [Moment Dog Realizes Foster Puppy Is Chewing His Tail Delights Internet](https://news.puppy-snuggles.com/37146363/moment-dog-realizes-foster-puppy-is-chewing-his-tail-delights-internet)
-- [Just adobted her :&rpar; her name is ginger got her from our local shelter, 8 months old and was found as a stray, shelter says her breed is unknown, what are some people opinions on her breed, what does she look like?:&rpar;](https://news.puppy-snuggles.com/37153925/just-adobted-her-her-name-is-ginger-got-her-from-our-local-shelter-8-months-old-and-was-found-as-a-stray-shelter-says-her-breed-is-unknown-what-are-some-people-opinions-on-her-breed-what-does-she-look-like)
+- [The Ultimate Comfort for Your Furry Friend - Western Home Calming Dog &amp;amp;amp; Cat Bed](https://news.puppy-snuggles.com/37545821/the-ultimate-comfort-for-your-furry-friend-western-home-calming-dog-amp-cat-bed)
+- [Dog asking for pets from a stranger](https://news.puppy-snuggles.com/37511702/dog-asking-for-pets-from-a-stranger)
+- [Brighten up your day with a smile from August!](https://news.puppy-snuggles.com/37308079/brighten-up-your-day-with-a-smile-from-august)
+- [This is Lola ❤️](https://news.puppy-snuggles.com/24687875/this-is-lola)
+- [Update- Almost a month since we rescued Max](https://news.puppy-snuggles.com/24592697/update-almost-a-month-since-we-rescued-max)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
