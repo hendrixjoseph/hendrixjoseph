@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The Ultimate Comfort for Your Furry Friend - Western Home Calming Dog &amp;amp;amp; Cat Bed](https://news.puppy-snuggles.com/37545821/the-ultimate-comfort-for-your-furry-friend-western-home-calming-dog-amp-cat-bed)
-- [Dog asking for pets from a stranger](https://news.puppy-snuggles.com/37511702/dog-asking-for-pets-from-a-stranger)
-- [Brighten up your day with a smile from August!](https://news.puppy-snuggles.com/37308079/brighten-up-your-day-with-a-smile-from-august)
-- [This is Lola ❤️](https://news.puppy-snuggles.com/24687875/this-is-lola)
-- [Update- Almost a month since we rescued Max](https://news.puppy-snuggles.com/24592697/update-almost-a-month-since-we-rescued-max)
+- [Our sweet boy Leo passed away tonight. Our sadness and pain is overwhelming. Just wanted to share his sweet face.](https://news.puppy-snuggles.com/24619600/our-sweet-boy-leo-passed-away-tonight-our-sadness-and-pain-is-overwhelming-just-wanted-to-share-his-sweet-face)
+- [Had to say goodbye to the goodest of boys today. He beat cancer a couple years ago, but age caught up to him. Miss and love you buddy.](https://news.puppy-snuggles.com/24303728/had-to-say-goodbye-to-the-goodest-of-boys-today-he-beat-cancer-a-couple-years-ago-but-age-caught-up-to-him-miss-and-love-you-buddy)
+- [Fun at the lake](https://news.puppy-snuggles.com/19988248/fun-at-the-lake)
+- [Took a picture of my dog Gilbert in Mexico.](https://news.puppy-snuggles.com/19352893/took-a-picture-of-my-dog-gilbert-in-mexico)
+- [Happy Shiba Puppy](https://news.puppy-snuggles.com/19009918/happy-shiba-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
