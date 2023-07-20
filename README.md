@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our sweet boy Leo passed away tonight. Our sadness and pain is overwhelming. Just wanted to share his sweet face.](https://news.puppy-snuggles.com/24619600/our-sweet-boy-leo-passed-away-tonight-our-sadness-and-pain-is-overwhelming-just-wanted-to-share-his-sweet-face)
-- [Had to say goodbye to the goodest of boys today. He beat cancer a couple years ago, but age caught up to him. Miss and love you buddy.](https://news.puppy-snuggles.com/24303728/had-to-say-goodbye-to-the-goodest-of-boys-today-he-beat-cancer-a-couple-years-ago-but-age-caught-up-to-him-miss-and-love-you-buddy)
-- [Fun at the lake](https://news.puppy-snuggles.com/19988248/fun-at-the-lake)
-- [Took a picture of my dog Gilbert in Mexico.](https://news.puppy-snuggles.com/19352893/took-a-picture-of-my-dog-gilbert-in-mexico)
-- [Happy Shiba Puppy](https://news.puppy-snuggles.com/19009918/happy-shiba-puppy)
+- [Beware of dog..](https://news.puppy-snuggles.com/37669604/beware-of-dog)
+- [Today&amp;#039;s photos 7-17-23](https://news.puppy-snuggles.com/37563597/todays-photos-7-17-23)
+- [I lost my best friend last week. Words cannot describe this heartbreak. Sleep tight baby girl.](https://news.puppy-snuggles.com/24656762/i-lost-my-best-friend-last-week-words-cannot-describe-this-heartbreak-sleep-tight-baby-girl)
+- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [My dog died](https://news.puppy-snuggles.com/20172268/my-dog-died)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
