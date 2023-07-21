@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Beware of dog..](https://news.puppy-snuggles.com/37669604/beware-of-dog)
-- [Today&amp;#039;s photos 7-17-23](https://news.puppy-snuggles.com/37563597/todays-photos-7-17-23)
-- [I lost my best friend last week. Words cannot describe this heartbreak. Sleep tight baby girl.](https://news.puppy-snuggles.com/24656762/i-lost-my-best-friend-last-week-words-cannot-describe-this-heartbreak-sleep-tight-baby-girl)
-- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
-- [My dog died](https://news.puppy-snuggles.com/20172268/my-dog-died)
+- [what would you do in this case?](https://news.puppy-snuggles.com/37758558/what-would-you-do-in-this-case)
+- [Just adobted her :&rpar; her name is ginger got her from our local shelter, 8 months old and was found as a stray, shelter says her breed is unknown, what are some people opinions on her breed, what does she look like?:&rpar;](https://news.puppy-snuggles.com/37153925/just-adobted-her-her-name-is-ginger-got-her-from-our-local-shelter-8-months-old-and-was-found-as-a-stray-shelter-says-her-breed-is-unknown-what-are-some-people-opinions-on-her-breed-what-does-she-look-like)
+- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
+- [My best friend turned 10 years old!](https://news.puppy-snuggles.com/19508150/my-best-friend-turned-10-years-old)
+- [what mix do you guys think charlie is?](https://news.puppy-snuggles.com/19366515/what-mix-do-you-guys-think-charlie-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
