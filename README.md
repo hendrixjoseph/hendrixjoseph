@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [what would you do in this case?](https://news.puppy-snuggles.com/37758558/what-would-you-do-in-this-case)
-- [Just adobted her :&rpar; her name is ginger got her from our local shelter, 8 months old and was found as a stray, shelter says her breed is unknown, what are some people opinions on her breed, what does she look like?:&rpar;](https://news.puppy-snuggles.com/37153925/just-adobted-her-her-name-is-ginger-got-her-from-our-local-shelter-8-months-old-and-was-found-as-a-stray-shelter-says-her-breed-is-unknown-what-are-some-people-opinions-on-her-breed-what-does-she-look-like)
-- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
-- [My best friend turned 10 years old!](https://news.puppy-snuggles.com/19508150/my-best-friend-turned-10-years-old)
-- [what mix do you guys think charlie is?](https://news.puppy-snuggles.com/19366515/what-mix-do-you-guys-think-charlie-is)
+- [My boy saw river for the first time ever](https://news.puppy-snuggles.com/33095892/my-boy-saw-river-for-the-first-time-ever)
+- [My dog](https://news.puppy-snuggles.com/27732067/my-dog)
+- [adopting this girl,any name suggestions?](https://news.puppy-snuggles.com/27096441/adopting-this-girlany-name-suggestions)
+- [Boris. We lost our chunk-a-hunka yesterday.](https://news.puppy-snuggles.com/24487782/boris-we-lost-our-chunk-a-hunka-yesterday)
+- [tried to get some cute pics of him playing with his ball, instead he wanted to be a demon](https://news.puppy-snuggles.com/17551065/tried-to-get-some-cute-pics-of-him-playing-with-his-ball-instead-he-wanted-to-be-a-demon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
