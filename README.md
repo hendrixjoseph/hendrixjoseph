@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy saw river for the first time ever](https://news.puppy-snuggles.com/33095892/my-boy-saw-river-for-the-first-time-ever)
-- [My dog](https://news.puppy-snuggles.com/27732067/my-dog)
-- [adopting this girl,any name suggestions?](https://news.puppy-snuggles.com/27096441/adopting-this-girlany-name-suggestions)
-- [Boris. We lost our chunk-a-hunka yesterday.](https://news.puppy-snuggles.com/24487782/boris-we-lost-our-chunk-a-hunka-yesterday)
-- [tried to get some cute pics of him playing with his ball, instead he wanted to be a demon](https://news.puppy-snuggles.com/17551065/tried-to-get-some-cute-pics-of-him-playing-with-his-ball-instead-he-wanted-to-be-a-demon)
+- [The cutest puppies!!!](https://news.puppy-snuggles.com/36440729/the-cutest-puppies)
+- [My best friend Charlie is *Drum roll* officially one year old!! 🎂](https://news.puppy-snuggles.com/35746204/my-best-friend-charlie-is-drum-roll-officially-one-year-old)
+- [sofi](https://news.puppy-snuggles.com/24508981/sofi)
+- [I put in an Application to adopt a dog saved from Ukraine, please send possitive thoughts hopeing it works out.](https://news.puppy-snuggles.com/23944118/i-put-in-an-application-to-adopt-a-dog-saved-from-ukraine-please-send-possitive-thoughts-hopeing-it-works-out)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
