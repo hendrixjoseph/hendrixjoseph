@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The cutest puppies!!!](https://news.puppy-snuggles.com/36440729/the-cutest-puppies)
-- [My best friend Charlie is *Drum roll* officially one year old!! 🎂](https://news.puppy-snuggles.com/35746204/my-best-friend-charlie-is-drum-roll-officially-one-year-old)
-- [sofi](https://news.puppy-snuggles.com/24508981/sofi)
-- [I put in an Application to adopt a dog saved from Ukraine, please send possitive thoughts hopeing it works out.](https://news.puppy-snuggles.com/23944118/i-put-in-an-application-to-adopt-a-dog-saved-from-ukraine-please-send-possitive-thoughts-hopeing-it-works-out)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [Someone feels she&amp;#039;s more important than my view of the TV. She&amp;#039;s not wrong 💜](https://news.puppy-snuggles.com/19896733/someone-feels-shes-more-important-than-my-view-of-the-tv-shes-not-wrong)
+- [Look at this little guy!](https://news.puppy-snuggles.com/19713860/look-at-this-little-guy)
+- [Dirty equals happy!](https://news.puppy-snuggles.com/17983581/dirty-equals-happy)
+- [Got suckered into fostering. 13 weeks. Who needs shoes anyway?..](https://news.puppy-snuggles.com/17154997/got-suckered-into-fostering-13-weeks-who-needs-shoes-anyway)
+- [All the smiles 🥰😛 Tongue out Tuesday](https://news.puppy-snuggles.com/16992369/all-the-smiles-tongue-out-tuesday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
