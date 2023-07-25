@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Someone feels she&amp;#039;s more important than my view of the TV. She&amp;#039;s not wrong 💜](https://news.puppy-snuggles.com/19896733/someone-feels-shes-more-important-than-my-view-of-the-tv-shes-not-wrong)
-- [Look at this little guy!](https://news.puppy-snuggles.com/19713860/look-at-this-little-guy)
-- [Dirty equals happy!](https://news.puppy-snuggles.com/17983581/dirty-equals-happy)
-- [Got suckered into fostering. 13 weeks. Who needs shoes anyway?..](https://news.puppy-snuggles.com/17154997/got-suckered-into-fostering-13-weeks-who-needs-shoes-anyway)
-- [All the smiles 🥰😛 Tongue out Tuesday](https://news.puppy-snuggles.com/16992369/all-the-smiles-tongue-out-tuesday)
+- [Billie Eilish, Finneas mourn death of family dog and &amp;#039;life-long best friend&amp;#039; Pepper](https://news.puppy-snuggles.com/38027356/billie-eilish-finneas-mourn-death-of-family-dog-and-life-long-best-friend-pepper)
+- [Billie Eilish Mourns Death of Beloved Dog Pepper](https://news.puppy-snuggles.com/38027358/billie-eilish-mourns-death-of-beloved-dog-pepper)
+- [We got the grass cut for the first time this Spring just two weeks ago. Chalky, as ever, was thrilled by the whole vista of newly-mown, juicy grass and couldn&amp;#039;t resist a typical Westie roll around. ❤️❤️❤️](https://news.puppy-snuggles.com/32285557/we-got-the-grass-cut-for-the-first-time-this-spring-just-two-weeks-ago-chalky-as-ever-was-thrilled-by-the-whole-vista-of-newly-mown-juicy-grass-and-couldnt-resist-a-typical-westie-roll-around)
+- [The sunlight hit those eyes just perfect in this one… Grayson being his fierce self 🤩](https://news.puppy-snuggles.com/28590721/the-sunlight-hit-those-eyes-just-perfect-in-this-one-grayson-being-his-fierce-self)
+- [The Great White Wolf of the Wissahickon](https://news.puppy-snuggles.com/21521997/the-great-white-wolf-of-the-wissahickon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
