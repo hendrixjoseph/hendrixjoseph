@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Billie Eilish, Finneas mourn death of family dog and &amp;#039;life-long best friend&amp;#039; Pepper](https://news.puppy-snuggles.com/38027356/billie-eilish-finneas-mourn-death-of-family-dog-and-life-long-best-friend-pepper)
-- [Billie Eilish Mourns Death of Beloved Dog Pepper](https://news.puppy-snuggles.com/38027358/billie-eilish-mourns-death-of-beloved-dog-pepper)
-- [We got the grass cut for the first time this Spring just two weeks ago. Chalky, as ever, was thrilled by the whole vista of newly-mown, juicy grass and couldn&amp;#039;t resist a typical Westie roll around. ❤️❤️❤️](https://news.puppy-snuggles.com/32285557/we-got-the-grass-cut-for-the-first-time-this-spring-just-two-weeks-ago-chalky-as-ever-was-thrilled-by-the-whole-vista-of-newly-mown-juicy-grass-and-couldnt-resist-a-typical-westie-roll-around)
-- [The sunlight hit those eyes just perfect in this one… Grayson being his fierce self 🤩](https://news.puppy-snuggles.com/28590721/the-sunlight-hit-those-eyes-just-perfect-in-this-one-grayson-being-his-fierce-self)
-- [The Great White Wolf of the Wissahickon](https://news.puppy-snuggles.com/21521997/the-great-white-wolf-of-the-wissahickon)
+- [you guys seemed to love the last post so here is another of my eight year old pup](https://news.puppy-snuggles.com/37847798/you-guys-seemed-to-love-the-last-post-so-here-is-another-of-my-eight-year-old-pup)
+- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/33577567/oc)
+- [River &lpar;our newest member of the family&rpar;](https://news.puppy-snuggles.com/24531945/river-our-newest-member-of-the-family)
+- [My husband rescued a ditch dog yesterday from the oilfield, every time he looks at you is a &amp;amp;quot;thank you&amp;amp;quot;](https://news.puppy-snuggles.com/23214205/my-husband-rescued-a-ditch-dog-yesterday-from-the-oilfield-every-time-he-looks-at-you-is-a-quotthank-youquot)
+- [love this shot &amp;amp;lt;33](https://news.puppy-snuggles.com/22193310/love-this-shot-lt33)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
