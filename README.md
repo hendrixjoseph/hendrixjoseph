@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [you guys seemed to love the last post so here is another of my eight year old pup](https://news.puppy-snuggles.com/37847798/you-guys-seemed-to-love-the-last-post-so-here-is-another-of-my-eight-year-old-pup)
-- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/33577567/oc)
-- [River &lpar;our newest member of the family&rpar;](https://news.puppy-snuggles.com/24531945/river-our-newest-member-of-the-family)
-- [My husband rescued a ditch dog yesterday from the oilfield, every time he looks at you is a &amp;amp;quot;thank you&amp;amp;quot;](https://news.puppy-snuggles.com/23214205/my-husband-rescued-a-ditch-dog-yesterday-from-the-oilfield-every-time-he-looks-at-you-is-a-quotthank-youquot)
-- [love this shot &amp;amp;lt;33](https://news.puppy-snuggles.com/22193310/love-this-shot-lt33)
+- [My neighbor died and left his dog, and it has been almost a year...](https://news.puppy-snuggles.com/34514508/my-neighbor-died-and-left-his-dog-and-it-has-been-almost-a-year)
+- [I give to you the inspector of quality control Fancy](https://news.puppy-snuggles.com/24727012/i-give-to-you-the-inspector-of-quality-control-fancy)
+- [This is Apollo. He would like to remind everyone who is currently in possession of, or may in the future be in proximity to cheese that he is, in matter of fact, a &amp;amp;quot;good boy&amp;amp;quot;.](https://news.puppy-snuggles.com/24104274/this-is-apollo-he-would-like-to-remind-everyone-who-is-currently-in-possession-of-or-may-in-the-future-be-in-proximity-to-cheese-that-he-is-in-matter-of-fact-a-quotgood-boyquot)
+- [Meet my newest best friend](https://news.puppy-snuggles.com/23797657/meet-my-newest-best-friend)
+- [RiP to my gorgeous girl Willow… Valentine’s Day photo&amp;amp;lt;3](https://news.puppy-snuggles.com/23412980/rip-to-my-gorgeous-girl-willow-valentines-day-photolt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
