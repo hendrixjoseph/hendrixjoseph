@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My neighbor died and left his dog, and it has been almost a year...](https://news.puppy-snuggles.com/34514508/my-neighbor-died-and-left-his-dog-and-it-has-been-almost-a-year)
-- [I give to you the inspector of quality control Fancy](https://news.puppy-snuggles.com/24727012/i-give-to-you-the-inspector-of-quality-control-fancy)
-- [This is Apollo. He would like to remind everyone who is currently in possession of, or may in the future be in proximity to cheese that he is, in matter of fact, a &amp;amp;quot;good boy&amp;amp;quot;.](https://news.puppy-snuggles.com/24104274/this-is-apollo-he-would-like-to-remind-everyone-who-is-currently-in-possession-of-or-may-in-the-future-be-in-proximity-to-cheese-that-he-is-in-matter-of-fact-a-quotgood-boyquot)
-- [Meet my newest best friend](https://news.puppy-snuggles.com/23797657/meet-my-newest-best-friend)
-- [RiP to my gorgeous girl Willow… Valentine’s Day photo&amp;amp;lt;3](https://news.puppy-snuggles.com/23412980/rip-to-my-gorgeous-girl-willow-valentines-day-photolt3)
+- [Yesterday, we had to say goodbye to our sweet girl Ruby as she crossed the rainbow bridge. To the greatest Weiner that ever did ween!](https://news.puppy-snuggles.com/38149882/yesterday-we-had-to-say-goodbye-to-our-sweet-girl-ruby-as-she-crossed-the-rainbow-bridge-to-the-greatest-weiner-that-ever-did-ween)
+- [Meet Mr. Micks..](https://news.puppy-snuggles.com/38052675/meet-mr-micks)
+- [Did someone find a bee?](https://news.puppy-snuggles.com/24508979/did-someone-find-a-bee)
+- [mommy! I am stuck!](https://news.puppy-snuggles.com/24057837/mommy-i-am-stuck)
+- [Gracie in all of her glory](https://news.puppy-snuggles.com/23251507/gracie-in-all-of-her-glory)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
