@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yesterday, we had to say goodbye to our sweet girl Ruby as she crossed the rainbow bridge. To the greatest Weiner that ever did ween!](https://news.puppy-snuggles.com/38149882/yesterday-we-had-to-say-goodbye-to-our-sweet-girl-ruby-as-she-crossed-the-rainbow-bridge-to-the-greatest-weiner-that-ever-did-ween)
-- [Meet Mr. Micks..](https://news.puppy-snuggles.com/38052675/meet-mr-micks)
-- [Did someone find a bee?](https://news.puppy-snuggles.com/24508979/did-someone-find-a-bee)
-- [mommy! I am stuck!](https://news.puppy-snuggles.com/24057837/mommy-i-am-stuck)
-- [Gracie in all of her glory](https://news.puppy-snuggles.com/23251507/gracie-in-all-of-her-glory)
+- [What am I?](https://news.puppy-snuggles.com/38284338/what-am-i)
+- [488 goldens](https://news.puppy-snuggles.com/38284339/488-goldens)
+- [Love of my life](https://news.puppy-snuggles.com/38206461/love-of-my-life)
+- [enjoying her bath. He is the best and most obedient dog in the world](https://news.puppy-snuggles.com/38149884/enjoying-her-bath-he-is-the-best-and-most-obedient-dog-in-the-world)
+- [My 1.5 year old 100lbs &amp;amp;quot;puppy&amp;amp;quot;](https://news.puppy-snuggles.com/36178598/my-15-year-old-100lbs-quotpuppyquot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
