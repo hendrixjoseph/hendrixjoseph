@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What am I?](https://news.puppy-snuggles.com/38284338/what-am-i)
-- [488 goldens](https://news.puppy-snuggles.com/38284339/488-goldens)
-- [Love of my life](https://news.puppy-snuggles.com/38206461/love-of-my-life)
-- [enjoying her bath. He is the best and most obedient dog in the world](https://news.puppy-snuggles.com/38149884/enjoying-her-bath-he-is-the-best-and-most-obedient-dog-in-the-world)
-- [My 1.5 year old 100lbs &amp;amp;quot;puppy&amp;amp;quot;](https://news.puppy-snuggles.com/36178598/my-15-year-old-100lbs-quotpuppyquot)
+- [He&amp;#039;s a good boy and you deserve to see him](https://news.puppy-snuggles.com/38206454/hes-a-good-boy-and-you-deserve-to-see-him)
+- [I love Percy almost as much as he loves broccoli](https://news.puppy-snuggles.com/38206457/i-love-percy-almost-as-much-as-he-loves-broccoli)
+- [You&amp;#039;re in the wrong neighborhood, bro.](https://news.puppy-snuggles.com/24656761/youre-in-the-wrong-neighborhood-bro)
+- [My parents dog missy or we like to sometimes call missymo](https://news.puppy-snuggles.com/24478226/my-parents-dog-missy-or-we-like-to-sometimes-call-missymo)
+- [Just Lisbeth and me &amp;amp;lt;3](https://news.puppy-snuggles.com/24402197/just-lisbeth-and-me-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
