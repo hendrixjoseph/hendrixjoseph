@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s a good boy and you deserve to see him](https://news.puppy-snuggles.com/38206454/hes-a-good-boy-and-you-deserve-to-see-him)
-- [I love Percy almost as much as he loves broccoli](https://news.puppy-snuggles.com/38206457/i-love-percy-almost-as-much-as-he-loves-broccoli)
-- [You&amp;#039;re in the wrong neighborhood, bro.](https://news.puppy-snuggles.com/24656761/youre-in-the-wrong-neighborhood-bro)
-- [My parents dog missy or we like to sometimes call missymo](https://news.puppy-snuggles.com/24478226/my-parents-dog-missy-or-we-like-to-sometimes-call-missymo)
-- [Just Lisbeth and me &amp;amp;lt;3](https://news.puppy-snuggles.com/24402197/just-lisbeth-and-me-lt3)
+- [cute dog](https://news.puppy-snuggles.com/38340370/cute-dog)
+- [Before and after treat](https://news.puppy-snuggles.com/38227341/before-and-after-treat)
+- [she&amp;#039;s always eyeballing me](https://news.puppy-snuggles.com/24519237/shes-always-eyeballing-me)
+- [We had a rainy day, so we snuggled on the comfy chair while I enjoyed my coffee.](https://news.puppy-snuggles.com/22510569/we-had-a-rainy-day-so-we-snuggled-on-the-comfy-chair-while-i-enjoyed-my-coffee)
+- [Does anyone else cook their dogs dinner every day, or am I the cat lady of dog dads? This came up with some friends. they say it&amp;#039;s not healthy. I tell them dog food is not healthy](https://news.puppy-snuggles.com/21872762/does-anyone-else-cook-their-dogs-dinner-every-day-or-am-i-the-cat-lady-of-dog-dads-this-came-up-with-some-friends-they-say-its-not-healthy-i-tell-them-dog-food-is-not-healthy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
