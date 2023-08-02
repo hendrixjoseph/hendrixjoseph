@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Coming!](https://news.puppy-snuggles.com/36440731/coming)
-- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
-- [Ash](https://news.puppy-snuggles.com/19760258/ash)
-- [Weird obsession of using our dog as a coffee table](https://news.puppy-snuggles.com/18491907/weird-obsession-of-using-our-dog-as-a-coffee-table)
-- [Gracie had her first birthday](https://news.puppy-snuggles.com/18491904/gracie-had-her-first-birthday)
+- [Three of my girlfriends](https://news.puppy-snuggles.com/24832385/three-of-my-girlfriends)
+- [Cappy &lpar;Chinese Crested Powderpuff&rpar;.](https://news.puppy-snuggles.com/24402199/cappy-chinese-crested-powderpuff)
+- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
+- [Saturday selfie to make your day 🥴](https://news.puppy-snuggles.com/22960370/saturday-selfie-to-make-your-day)
+- [Someone knows he&amp;#039;s not allowed on the bed](https://news.puppy-snuggles.com/22868082/someone-knows-hes-not-allowed-on-the-bed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
