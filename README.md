@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Three of my girlfriends](https://news.puppy-snuggles.com/24832385/three-of-my-girlfriends)
-- [Cappy &lpar;Chinese Crested Powderpuff&rpar;.](https://news.puppy-snuggles.com/24402199/cappy-chinese-crested-powderpuff)
-- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
-- [Saturday selfie to make your day 🥴](https://news.puppy-snuggles.com/22960370/saturday-selfie-to-make-your-day)
-- [Someone knows he&amp;#039;s not allowed on the bed](https://news.puppy-snuggles.com/22868082/someone-knows-hes-not-allowed-on-the-bed)
+- [Goodest boy got biggest smile](https://news.puppy-snuggles.com/38149886/goodest-boy-got-biggest-smile)
+- [He must have been having a sweet dream.](https://news.puppy-snuggles.com/37599348/he-must-have-been-having-a-sweet-dream)
+- [Smiling at love &amp;amp;lt;3](https://news.puppy-snuggles.com/26994809/smiling-at-love-lt3)
+- [He always feels so dapper in his Dino onesie!](https://news.puppy-snuggles.com/25491593/he-always-feels-so-dapper-in-his-dino-onesie)
+- [I was surprised with a Golden Retriever puppy as an early Christmas gift. Meet Hank!](https://news.puppy-snuggles.com/23907123/i-was-surprised-with-a-golden-retriever-puppy-as-an-early-christmas-gift-meet-hank)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
