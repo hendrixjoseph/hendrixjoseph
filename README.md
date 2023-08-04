@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodest boy got biggest smile](https://news.puppy-snuggles.com/38149886/goodest-boy-got-biggest-smile)
-- [He must have been having a sweet dream.](https://news.puppy-snuggles.com/37599348/he-must-have-been-having-a-sweet-dream)
-- [Smiling at love &amp;amp;lt;3](https://news.puppy-snuggles.com/26994809/smiling-at-love-lt3)
-- [He always feels so dapper in his Dino onesie!](https://news.puppy-snuggles.com/25491593/he-always-feels-so-dapper-in-his-dino-onesie)
-- [I was surprised with a Golden Retriever puppy as an early Christmas gift. Meet Hank!](https://news.puppy-snuggles.com/23907123/i-was-surprised-with-a-golden-retriever-puppy-as-an-early-christmas-gift-meet-hank)
+- [Welcoming this cutie to the family!](https://news.puppy-snuggles.com/38693366/welcoming-this-cutie-to-the-family)
+- [Enjoying her time outside](https://news.puppy-snuggles.com/38693365/enjoying-her-time-outside)
+- [This dog&amp;#039;s reaction is so Wholesome!](https://news.puppy-snuggles.com/38693364/this-dogs-reaction-is-so-wholesome)
+- [Nino&amp;#039;s smile hides a ball](https://news.puppy-snuggles.com/37563596/ninos-smile-hides-a-ball)
+- [I lost my handsome boy on Tuesday and I wanted you all to see him💙](https://news.puppy-snuggles.com/37438817/i-lost-my-handsome-boy-on-tuesday-and-i-wanted-you-all-to-see-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
