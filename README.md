@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Welcoming this cutie to the family!](https://news.puppy-snuggles.com/38693366/welcoming-this-cutie-to-the-family)
-- [Enjoying her time outside](https://news.puppy-snuggles.com/38693365/enjoying-her-time-outside)
-- [This dog&amp;#039;s reaction is so Wholesome!](https://news.puppy-snuggles.com/38693364/this-dogs-reaction-is-so-wholesome)
-- [Nino&amp;#039;s smile hides a ball](https://news.puppy-snuggles.com/37563596/ninos-smile-hides-a-ball)
-- [I lost my handsome boy on Tuesday and I wanted you all to see him💙](https://news.puppy-snuggles.com/37438817/i-lost-my-handsome-boy-on-tuesday-and-i-wanted-you-all-to-see-him)
+- [All the kiddos](https://news.puppy-snuggles.com/38675329/all-the-kiddos)
+- [Why do they love folding their paw so much?](https://news.puppy-snuggles.com/38675331/why-do-they-love-folding-their-paw-so-much)
+- [My 16 year old rescue puppy](https://news.puppy-snuggles.com/38637710/my-16-year-old-rescue-puppy)
+- [Abandoned Puppy&lpar;Our new foster&rpar;- Lab mix?](https://news.puppy-snuggles.com/37563593/abandoned-puppyour-new-foster-lab-mix)
+- [Cheesing from the mountain tops!](https://news.puppy-snuggles.com/24737643/cheesing-from-the-mountain-tops)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
