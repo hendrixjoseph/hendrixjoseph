@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All the kiddos](https://news.puppy-snuggles.com/38675329/all-the-kiddos)
-- [Why do they love folding their paw so much?](https://news.puppy-snuggles.com/38675331/why-do-they-love-folding-their-paw-so-much)
-- [My 16 year old rescue puppy](https://news.puppy-snuggles.com/38637710/my-16-year-old-rescue-puppy)
-- [Abandoned Puppy&lpar;Our new foster&rpar;- Lab mix?](https://news.puppy-snuggles.com/37563593/abandoned-puppyour-new-foster-lab-mix)
-- [Cheesing from the mountain tops!](https://news.puppy-snuggles.com/24737643/cheesing-from-the-mountain-tops)
+- [Today my mini cow crossed the rainbow bridge. RIP Perry](https://news.puppy-snuggles.com/38803402/today-my-mini-cow-crossed-the-rainbow-bridge-rip-perry)
+- [The Labrador centipede](https://news.puppy-snuggles.com/26640975/the-labrador-centipede)
+- [A baby](https://news.puppy-snuggles.com/23242000/a-baby)
+- [❤Blanche❤](https://news.puppy-snuggles.com/23143199/blanche)
+- [Athlete pampers a street dog](https://news.puppy-snuggles.com/23048829/athlete-pampers-a-street-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
