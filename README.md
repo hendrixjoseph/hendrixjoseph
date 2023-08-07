@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today my mini cow crossed the rainbow bridge. RIP Perry](https://news.puppy-snuggles.com/38803402/today-my-mini-cow-crossed-the-rainbow-bridge-rip-perry)
-- [The Labrador centipede](https://news.puppy-snuggles.com/26640975/the-labrador-centipede)
-- [A baby](https://news.puppy-snuggles.com/23242000/a-baby)
-- [❤Blanche❤](https://news.puppy-snuggles.com/23143199/blanche)
-- [Athlete pampers a street dog](https://news.puppy-snuggles.com/23048829/athlete-pampers-a-street-dog)
+- [A daily picture of Peanut the dog](https://news.puppy-snuggles.com/36440737/a-daily-picture-of-peanut-the-dog)
+- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
+- [Someone wants all the pets](https://news.puppy-snuggles.com/23451209/someone-wants-all-the-pets)
+- [Keeping it formal this holiday season](https://news.puppy-snuggles.com/23284744/keeping-it-formal-this-holiday-season)
+- [my new service pup- smartest little dude around ❤️](https://news.puppy-snuggles.com/22590706/my-new-service-pup-smartest-little-dude-around)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
