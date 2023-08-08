@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A daily picture of Peanut the dog](https://news.puppy-snuggles.com/36440737/a-daily-picture-of-peanut-the-dog)
-- [How do I comfort my dog to cope with the death of her companion](https://news.puppy-snuggles.com/23498669/how-do-i-comfort-my-dog-to-cope-with-the-death-of-her-companion)
-- [Someone wants all the pets](https://news.puppy-snuggles.com/23451209/someone-wants-all-the-pets)
-- [Keeping it formal this holiday season](https://news.puppy-snuggles.com/23284744/keeping-it-formal-this-holiday-season)
-- [my new service pup- smartest little dude around ❤️](https://news.puppy-snuggles.com/22590706/my-new-service-pup-smartest-little-dude-around)
+- [Most innocent face ever](https://news.puppy-snuggles.com/38946142/most-innocent-face-ever)
+- [some pics of my silly girl](https://news.puppy-snuggles.com/38874967/some-pics-of-my-silly-girl)
+- [Happy face surrounded by beautiful flowers🌼🐶🧡](https://news.puppy-snuggles.com/30569504/happy-face-surrounded-by-beautiful-flowers)
+- [lost him a while back and recently got a memory](https://news.puppy-snuggles.com/23760176/lost-him-a-while-back-and-recently-got-a-memory)
+- [throw pillow or dog](https://news.puppy-snuggles.com/23593369/throw-pillow-or-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
