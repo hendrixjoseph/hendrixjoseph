@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Most innocent face ever](https://news.puppy-snuggles.com/38946142/most-innocent-face-ever)
-- [some pics of my silly girl](https://news.puppy-snuggles.com/38874967/some-pics-of-my-silly-girl)
-- [Happy face surrounded by beautiful flowers🌼🐶🧡](https://news.puppy-snuggles.com/30569504/happy-face-surrounded-by-beautiful-flowers)
-- [lost him a while back and recently got a memory](https://news.puppy-snuggles.com/23760176/lost-him-a-while-back-and-recently-got-a-memory)
-- [throw pillow or dog](https://news.puppy-snuggles.com/23593369/throw-pillow-or-dog)
+- [Double the smiles!](https://news.puppy-snuggles.com/36834681/double-the-smiles)
+- [This is my pencil drawing of Bella!](https://news.puppy-snuggles.com/28111752/this-is-my-pencil-drawing-of-bella)
+- [EVERYONE SHUT UP AND LOOK HOW CUTE MY DOG IS](https://news.puppy-snuggles.com/24183219/everyone-shut-up-and-look-how-cute-my-dog-is)
+- [75 lbs of a smiling lapdog](https://news.puppy-snuggles.com/23944136/75-lbs-of-a-smiling-lapdog)
+- [Earth lost a kind soul with a brave heart today. RIP, Kazu.](https://news.puppy-snuggles.com/23461598/earth-lost-a-kind-soul-with-a-brave-heart-today-rip-kazu)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
