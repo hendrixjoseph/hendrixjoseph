@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Double the smiles!](https://news.puppy-snuggles.com/36834681/double-the-smiles)
-- [This is my pencil drawing of Bella!](https://news.puppy-snuggles.com/28111752/this-is-my-pencil-drawing-of-bella)
-- [EVERYONE SHUT UP AND LOOK HOW CUTE MY DOG IS](https://news.puppy-snuggles.com/24183219/everyone-shut-up-and-look-how-cute-my-dog-is)
-- [75 lbs of a smiling lapdog](https://news.puppy-snuggles.com/23944136/75-lbs-of-a-smiling-lapdog)
-- [Earth lost a kind soul with a brave heart today. RIP, Kazu.](https://news.puppy-snuggles.com/23461598/earth-lost-a-kind-soul-with-a-brave-heart-today-rip-kazu)
+- [This is Skye. She will have her puppies soon. She wanted to make sure you were having a good day](https://news.puppy-snuggles.com/37563589/this-is-skye-she-will-have-her-puppies-soon-she-wanted-to-make-sure-you-were-having-a-good-day)
+- [Why does my girl sleep like this?](https://news.puppy-snuggles.com/24117302/why-does-my-girl-sleep-like-this)
+- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
+- [Catrina want to say thanks to all these special people who helped him afford his chemotheraphy 😊](https://news.puppy-snuggles.com/22994975/catrina-want-to-say-thanks-to-all-these-special-people-who-helped-him-afford-his-chemotheraphy)
+- [Mr thompson is happy today🥰](https://news.puppy-snuggles.com/21607045/mr-thompson-is-happy-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
