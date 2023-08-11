@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Skye. She will have her puppies soon. She wanted to make sure you were having a good day](https://news.puppy-snuggles.com/37563589/this-is-skye-she-will-have-her-puppies-soon-she-wanted-to-make-sure-you-were-having-a-good-day)
-- [Why does my girl sleep like this?](https://news.puppy-snuggles.com/24117302/why-does-my-girl-sleep-like-this)
-- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
-- [Catrina want to say thanks to all these special people who helped him afford his chemotheraphy 😊](https://news.puppy-snuggles.com/22994975/catrina-want-to-say-thanks-to-all-these-special-people-who-helped-him-afford-his-chemotheraphy)
-- [Mr thompson is happy today🥰](https://news.puppy-snuggles.com/21607045/mr-thompson-is-happy-today)
+- [Rate my sweet girl](https://news.puppy-snuggles.com/29668086/rate-my-sweet-girl)
+- [What kind of dog breed is this?](https://news.puppy-snuggles.com/23412981/what-kind-of-dog-breed-is-this)
+- [very cute, in love](https://news.puppy-snuggles.com/22868076/very-cute-in-love)
+- [Ms. Marvel our new rescue pup! &lpar;OC&rpar;](https://news.puppy-snuggles.com/22674535/ms-marvel-our-new-rescue-pup-oc)
+- [Dog in the fog](https://news.puppy-snuggles.com/21730986/dog-in-the-fog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
