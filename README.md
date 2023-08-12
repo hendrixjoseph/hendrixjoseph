@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rate my sweet girl](https://news.puppy-snuggles.com/29668086/rate-my-sweet-girl)
-- [What kind of dog breed is this?](https://news.puppy-snuggles.com/23412981/what-kind-of-dog-breed-is-this)
-- [very cute, in love](https://news.puppy-snuggles.com/22868076/very-cute-in-love)
-- [Ms. Marvel our new rescue pup! &lpar;OC&rpar;](https://news.puppy-snuggles.com/22674535/ms-marvel-our-new-rescue-pup-oc)
-- [Dog in the fog](https://news.puppy-snuggles.com/21730986/dog-in-the-fog)
+- [He just humped my bf!](https://news.puppy-snuggles.com/23424323/he-just-humped-my-bf)
+- [❤Blanche❤](https://news.puppy-snuggles.com/23143199/blanche)
+- [Everyone needs a dog. . .](https://news.puppy-snuggles.com/22807148/everyone-needs-a-dog)
+- [baked a banana cake for my Rottweiler twins who are celebrating their birthday in Heaven.](https://news.puppy-snuggles.com/21985695/baked-a-banana-cake-for-my-rottweiler-twins-who-are-celebrating-their-birthday-in-heaven)
+- [We love the dog park!!](https://news.puppy-snuggles.com/21748197/we-love-the-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
