@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He just humped my bf!](https://news.puppy-snuggles.com/23424323/he-just-humped-my-bf)
-- [❤Blanche❤](https://news.puppy-snuggles.com/23143199/blanche)
-- [Everyone needs a dog. . .](https://news.puppy-snuggles.com/22807148/everyone-needs-a-dog)
-- [baked a banana cake for my Rottweiler twins who are celebrating their birthday in Heaven.](https://news.puppy-snuggles.com/21985695/baked-a-banana-cake-for-my-rottweiler-twins-who-are-celebrating-their-birthday-in-heaven)
-- [We love the dog park!!](https://news.puppy-snuggles.com/21748197/we-love-the-dog-park)
+- [But it is very comfortable](https://news.puppy-snuggles.com/39292012/but-it-is-very-comfortable)
+- [Our sweet boy passed away at home tonight, in front of the heater in his favorite bed. Love you forever and ever Prince.](https://news.puppy-snuggles.com/22522776/our-sweet-boy-passed-away-at-home-tonight-in-front-of-the-heater-in-his-favorite-bed-love-you-forever-and-ever-prince)
+- [Does anyone know what dog breed this is??? Please let me know](https://news.puppy-snuggles.com/21691487/does-anyone-know-what-dog-breed-this-is-please-let-me-know)
+- [Any ideas of a Halloween customer for Mocca?](https://news.puppy-snuggles.com/21503446/any-ideas-of-a-halloween-customer-for-mocca)
+- [The reaction when Leia hears the word &amp;amp;quot;walkies&amp;amp;quot;](https://news.puppy-snuggles.com/20074759/the-reaction-when-leia-hears-the-word-quotwalkiesquot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
