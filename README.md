@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new boy](https://news.puppy-snuggles.com/39365344/my-new-boy)
-- [But it is very comfortable](https://news.puppy-snuggles.com/39292012/but-it-is-very-comfortable)
-- [Blessed him..](https://news.puppy-snuggles.com/39292010/blessed-him)
-- [Gotta add this to my dictionary 😉](https://news.puppy-snuggles.com/39292008/gotta-add-this-to-my-dictionary)
-- [Our new little guy!!](https://news.puppy-snuggles.com/39292011/our-new-little-guy)
+- [My boy Budders cross the rainbow bridge last night, just wanted to show his cute face to the world.](https://news.puppy-snuggles.com/39419562/my-boy-budders-cross-the-rainbow-bridge-last-night-just-wanted-to-show-his-cute-face-to-the-world)
+- [Parkour](https://news.puppy-snuggles.com/39419567/parkour)
+- [I hope I get just &amp;#039;one like&amp;#039;](https://news.puppy-snuggles.com/39164783/i-hope-i-get-just-one-like)
+- [Happy girl](https://news.puppy-snuggles.com/37777173/happy-girl)
+- [Mochi loves scritches from dad 🥰](https://news.puppy-snuggles.com/24138753/mochi-loves-scritches-from-dad)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
