@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Budders cross the rainbow bridge last night, just wanted to show his cute face to the world.](https://news.puppy-snuggles.com/39419562/my-boy-budders-cross-the-rainbow-bridge-last-night-just-wanted-to-show-his-cute-face-to-the-world)
-- [Parkour](https://news.puppy-snuggles.com/39419567/parkour)
-- [I hope I get just &amp;#039;one like&amp;#039;](https://news.puppy-snuggles.com/39164783/i-hope-i-get-just-one-like)
-- [Happy girl](https://news.puppy-snuggles.com/37777173/happy-girl)
-- [Mochi loves scritches from dad 🥰](https://news.puppy-snuggles.com/24138753/mochi-loves-scritches-from-dad)
+- [My reason for waking up](https://news.puppy-snuggles.com/25710647/my-reason-for-waking-up)
+- [My fur Neice Fancy](https://news.puppy-snuggles.com/24707129/my-fur-neice-fancy)
+- [Guess his breed. I guarantee you’ll guess wrong.](https://news.puppy-snuggles.com/22940092/guess-his-breed-i-guarantee-youll-guess-wrong)
+- [Our foster dog, Juice. He’s 6 years old and shaped like a lozenge.](https://news.puppy-snuggles.com/22880760/our-foster-dog-juice-hes-6-years-old-and-shaped-like-a-lozenge)
+- [Spring smiles from Daisy](https://news.puppy-snuggles.com/21532081/spring-smiles-from-daisy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
