@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My reason for waking up](https://news.puppy-snuggles.com/25710647/my-reason-for-waking-up)
-- [My fur Neice Fancy](https://news.puppy-snuggles.com/24707129/my-fur-neice-fancy)
-- [Guess his breed. I guarantee you’ll guess wrong.](https://news.puppy-snuggles.com/22940092/guess-his-breed-i-guarantee-youll-guess-wrong)
-- [Our foster dog, Juice. He’s 6 years old and shaped like a lozenge.](https://news.puppy-snuggles.com/22880760/our-foster-dog-juice-hes-6-years-old-and-shaped-like-a-lozenge)
-- [Spring smiles from Daisy](https://news.puppy-snuggles.com/21532081/spring-smiles-from-daisy)
+- [In memory of Ace. He was 15 years old and passed away this morning. This is my favorite picture of him.](https://news.puppy-snuggles.com/39547420/in-memory-of-ace-he-was-15-years-old-and-passed-away-this-morning-this-is-my-favorite-picture-of-him)
+- [Zoomies 2.0](https://news.puppy-snuggles.com/39311625/zoomies-20)
+- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
+- [Found this sweet girl abandoned on the side of the road](https://news.puppy-snuggles.com/21962518/found-this-sweet-girl-abandoned-on-the-side-of-the-road)
+- [It&amp;#039;s WWE In this Bitch!](https://news.puppy-snuggles.com/20125138/its-wwe-in-this-bitch)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
