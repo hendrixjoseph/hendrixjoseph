@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on High School Merch issues?](https://www.reddit.com/r/AmazonMerch/comments/15tuz5b/high_school_merch_issues/jwmkyaf/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of August 14, 2023](https://www.reddit.com/r/personalfinance/comments/15qrhe1/weekday_help_and_victory_thread_for_the_week_of/jwkrjpz/)
 - [/u/joehx on Weekday Help Thread for the week of June 19, 2023](https://www.reddit.com/r/personalfinance/comments/14dbfko/weekday_help_thread_for_the_week_of_june_19_2023/jp35xq4/)
 - [June 2023 Blog Statistics](https://www.reddit.com/r/u_joehx/comments/14es1wv/june_2023_blog_statistics/)
 - [More Time Doesn&#39;t Mean Better; More People Doesn&#39;t Mean Quicker](https://www.reddit.com/r/u_joehx/comments/142tbzy/more_time_doesnt_mean_better_more_people_doesnt/)
-- [/u/joehx on Did Sonatype shut down its OSS Repository Hosting &lpar;i. e. &quot;publish my artifact to Maven Central&quot;&rpar;?](https://www.reddit.com/r/java/comments/142fj3r/did_sonatype_shut_down_its_oss_repository_hosting/jn4estt/)
-- [/u/joehx on Daily FI discussion thread - Monday, June 05, 2023](https://www.reddit.com/r/financialindependence/comments/14183nv/daily_fi_discussion_thread_monday_june_05_2023/jn039fu/)
 <!-- REDDIT:END -->
