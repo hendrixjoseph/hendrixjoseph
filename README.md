@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [In memory of Ace. He was 15 years old and passed away this morning. This is my favorite picture of him.](https://news.puppy-snuggles.com/39547420/in-memory-of-ace-he-was-15-years-old-and-passed-away-this-morning-this-is-my-favorite-picture-of-him)
-- [Zoomies 2.0](https://news.puppy-snuggles.com/39311625/zoomies-20)
-- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
-- [Found this sweet girl abandoned on the side of the road](https://news.puppy-snuggles.com/21962518/found-this-sweet-girl-abandoned-on-the-side-of-the-road)
-- [It&amp;#039;s WWE In this Bitch!](https://news.puppy-snuggles.com/20125138/its-wwe-in-this-bitch)
+- [Family](https://news.puppy-snuggles.com/39623597/family)
+- [Dog made &amp;amp;quot;milanesa&amp;amp;quot; &lpar;Argentina&rpar; hahahaha. Anyone else with a dog who likes to do this? 😁😆](https://news.puppy-snuggles.com/39604548/dog-made-quotmilanesaquot-argentina-hahahaha-anyone-else-with-a-dog-who-likes-to-do-this)
+- [Enjoying the sun. No leg, don&amp;#039;t care](https://news.puppy-snuggles.com/39547421/enjoying-the-sun-no-leg-dont-care)
+- [Dog Thinking &amp;amp;quot;You Call This A Storm?!&amp;amp;quot;](https://news.puppy-snuggles.com/38432193/dog-thinking-quotyou-call-this-a-stormquot)
+- [My favorite partner... what do you think?](https://news.puppy-snuggles.com/24347095/my-favorite-partner-what-do-you-think)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
