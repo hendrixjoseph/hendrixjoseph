@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Family](https://news.puppy-snuggles.com/39623597/family)
-- [Dog made &amp;amp;quot;milanesa&amp;amp;quot; &lpar;Argentina&rpar; hahahaha. Anyone else with a dog who likes to do this? 😁😆](https://news.puppy-snuggles.com/39604548/dog-made-quotmilanesaquot-argentina-hahahaha-anyone-else-with-a-dog-who-likes-to-do-this)
-- [Enjoying the sun. No leg, don&amp;#039;t care](https://news.puppy-snuggles.com/39547421/enjoying-the-sun-no-leg-dont-care)
-- [Dog Thinking &amp;amp;quot;You Call This A Storm?!&amp;amp;quot;](https://news.puppy-snuggles.com/38432193/dog-thinking-quotyou-call-this-a-stormquot)
-- [My favorite partner... what do you think?](https://news.puppy-snuggles.com/24347095/my-favorite-partner-what-do-you-think)
+- [Coffee](https://news.puppy-snuggles.com/39643092/coffee)
+- [Our happy boy reuniting with his twin!](https://news.puppy-snuggles.com/39346640/our-happy-boy-reuniting-with-his-twin)
+- [But it is very comfortable](https://news.puppy-snuggles.com/39292012/but-it-is-very-comfortable)
+- [My sweet girl Fino &lpar;15&rpar; will be crossing the rainbow bridge tomorrow. I’m gonna miss her so much..](https://news.puppy-snuggles.com/29542389/my-sweet-girl-fino-15-will-be-crossing-the-rainbow-bridge-tomorrow-im-gonna-miss-her-so-much)
+- [It&amp;#039;s great to see the sun again](https://news.puppy-snuggles.com/22119304/its-great-to-see-the-sun-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
