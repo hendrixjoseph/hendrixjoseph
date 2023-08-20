@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Coffee](https://news.puppy-snuggles.com/39643092/coffee)
-- [Our happy boy reuniting with his twin!](https://news.puppy-snuggles.com/39346640/our-happy-boy-reuniting-with-his-twin)
-- [But it is very comfortable](https://news.puppy-snuggles.com/39292012/but-it-is-very-comfortable)
-- [My sweet girl Fino &lpar;15&rpar; will be crossing the rainbow bridge tomorrow. I’m gonna miss her so much..](https://news.puppy-snuggles.com/29542389/my-sweet-girl-fino-15-will-be-crossing-the-rainbow-bridge-tomorrow-im-gonna-miss-her-so-much)
-- [It&amp;#039;s great to see the sun again](https://news.puppy-snuggles.com/22119304/its-great-to-see-the-sun-again)
+- [Had to say goodbye to my best friend](https://news.puppy-snuggles.com/34988858/had-to-say-goodbye-to-my-best-friend)
+- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
+- [Goodbye poppy you were my everything](https://news.puppy-snuggles.com/21638382/goodbye-poppy-you-were-my-everything)
+- [crush, break and be happy](https://news.puppy-snuggles.com/19287457/crush-break-and-be-happy)
+- [she smiled for the pic](https://news.puppy-snuggles.com/18711590/she-smiled-for-the-pic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
