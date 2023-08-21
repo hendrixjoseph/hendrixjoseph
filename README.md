@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to say goodbye to my best friend](https://news.puppy-snuggles.com/34988858/had-to-say-goodbye-to-my-best-friend)
-- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
-- [Goodbye poppy you were my everything](https://news.puppy-snuggles.com/21638382/goodbye-poppy-you-were-my-everything)
-- [crush, break and be happy](https://news.puppy-snuggles.com/19287457/crush-break-and-be-happy)
-- [she smiled for the pic](https://news.puppy-snuggles.com/18711590/she-smiled-for-the-pic)
+- [When I look through the camera to see what my dog is doing.](https://news.puppy-snuggles.com/34947905/when-i-look-through-the-camera-to-see-what-my-dog-is-doing)
+- [That’s Kimchi, he likes cuddles, food and even vet visits](https://news.puppy-snuggles.com/29221290/thats-kimchi-he-likes-cuddles-food-and-even-vet-visits)
+- [Dogs are the best bro](https://news.puppy-snuggles.com/27261575/dogs-are-the-best-bro)
+- [A lot of people seem to think that all chihuahuas are aggressive rats who bite everyone, so here is mine, showing off his favourite toy. He never barks and loves everyone.](https://news.puppy-snuggles.com/24442431/a-lot-of-people-seem-to-think-that-all-chihuahuas-are-aggressive-rats-who-bite-everyone-so-here-is-mine-showing-off-his-favourite-toy-he-never-barks-and-loves-everyone)
+- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
