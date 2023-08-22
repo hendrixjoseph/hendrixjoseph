@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I look through the camera to see what my dog is doing.](https://news.puppy-snuggles.com/34947905/when-i-look-through-the-camera-to-see-what-my-dog-is-doing)
-- [That’s Kimchi, he likes cuddles, food and even vet visits](https://news.puppy-snuggles.com/29221290/thats-kimchi-he-likes-cuddles-food-and-even-vet-visits)
-- [Dogs are the best bro](https://news.puppy-snuggles.com/27261575/dogs-are-the-best-bro)
-- [A lot of people seem to think that all chihuahuas are aggressive rats who bite everyone, so here is mine, showing off his favourite toy. He never barks and loves everyone.](https://news.puppy-snuggles.com/24442431/a-lot-of-people-seem-to-think-that-all-chihuahuas-are-aggressive-rats-who-bite-everyone-so-here-is-mine-showing-off-his-favourite-toy-he-never-barks-and-loves-everyone)
-- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
+- [I am so happy](https://news.puppy-snuggles.com/39891084/i-am-so-happy)
+- [Goodbye Pepper](https://news.puppy-snuggles.com/39891083/goodbye-pepper)
+- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
+- [He may only have one eye but he&amp;#039;s still cute](https://news.puppy-snuggles.com/36024941/he-may-only-have-one-eye-but-hes-still-cute)
+- [World&amp;#039;s Oldest Dog Bobi, 30, Is Also One Of The Luckiest](https://news.puppy-snuggles.com/26823002/worlds-oldest-dog-bobi-30-is-also-one-of-the-luckiest)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
