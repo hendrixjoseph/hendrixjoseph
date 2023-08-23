@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I am so happy](https://news.puppy-snuggles.com/39891084/i-am-so-happy)
-- [Goodbye Pepper](https://news.puppy-snuggles.com/39891083/goodbye-pepper)
-- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
-- [He may only have one eye but he&amp;#039;s still cute](https://news.puppy-snuggles.com/36024941/he-may-only-have-one-eye-but-hes-still-cute)
-- [World&amp;#039;s Oldest Dog Bobi, 30, Is Also One Of The Luckiest](https://news.puppy-snuggles.com/26823002/worlds-oldest-dog-bobi-30-is-also-one-of-the-luckiest)
+- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/39750290/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
+- [Last year, this good boy was my best man.](https://news.puppy-snuggles.com/39750291/last-year-this-good-boy-was-my-best-man)
+- [My name is Chicken](https://news.puppy-snuggles.com/39750292/my-name-is-chicken)
+- [Traveling](https://news.puppy-snuggles.com/39715846/traveling)
+- [I love those teeth!!!](https://news.puppy-snuggles.com/39715848/i-love-those-teeth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
