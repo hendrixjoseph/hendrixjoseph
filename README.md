@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/39750290/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
-- [Last year, this good boy was my best man.](https://news.puppy-snuggles.com/39750291/last-year-this-good-boy-was-my-best-man)
-- [My name is Chicken](https://news.puppy-snuggles.com/39750292/my-name-is-chicken)
-- [Traveling](https://news.puppy-snuggles.com/39715846/traveling)
-- [I love those teeth!!!](https://news.puppy-snuggles.com/39715848/i-love-those-teeth)
+- [Friggin Queso loves the hose](https://news.puppy-snuggles.com/36320247/friggin-queso-loves-the-hose)
+- [They just keep on smiling! We love the happiness they bring this sub. A few more of our happy pups at sanctuary Sara Morocco. May they brighten your day like they do ours](https://news.puppy-snuggles.com/30031962/they-just-keep-on-smiling-we-love-the-happiness-they-bring-this-sub-a-few-more-of-our-happy-pups-at-sanctuary-sara-morocco-may-they-brighten-your-day-like-they-do-ours)
+- [So apparently my dog,whom I adopted from the street has a son...](https://news.puppy-snuggles.com/27329066/so-apparently-my-dogwhom-i-adopted-from-the-street-has-a-son)
+- [First day at his new home, with his new bed, new toy, and new bowls](https://news.puppy-snuggles.com/24816591/first-day-at-his-new-home-with-his-new-bed-new-toy-and-new-bowls)
+- [Floyd the corgi](https://news.puppy-snuggles.com/23957366/floyd-the-corgi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
