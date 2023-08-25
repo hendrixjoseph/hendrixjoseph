@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Friggin Queso loves the hose](https://news.puppy-snuggles.com/36320247/friggin-queso-loves-the-hose)
-- [They just keep on smiling! We love the happiness they bring this sub. A few more of our happy pups at sanctuary Sara Morocco. May they brighten your day like they do ours](https://news.puppy-snuggles.com/30031962/they-just-keep-on-smiling-we-love-the-happiness-they-bring-this-sub-a-few-more-of-our-happy-pups-at-sanctuary-sara-morocco-may-they-brighten-your-day-like-they-do-ours)
-- [So apparently my dog,whom I adopted from the street has a son...](https://news.puppy-snuggles.com/27329066/so-apparently-my-dogwhom-i-adopted-from-the-street-has-a-son)
-- [First day at his new home, with his new bed, new toy, and new bowls](https://news.puppy-snuggles.com/24816591/first-day-at-his-new-home-with-his-new-bed-new-toy-and-new-bowls)
-- [Floyd the corgi](https://news.puppy-snuggles.com/23957366/floyd-the-corgi)
+- [Aww. So cute.](https://news.puppy-snuggles.com/39750295/aww-so-cute)
+- [Goodbye Nata](https://news.puppy-snuggles.com/37173056/goodbye-nata)
+- [My mom kept saying my dog would &amp;amp;quot;stare at her judgementally&amp;amp;quot; while she dogsits for me. She sent me this.](https://news.puppy-snuggles.com/36778125/my-mom-kept-saying-my-dog-would-quotstare-at-her-judgementallyquot-while-she-dogsits-for-me-she-sent-me-this)
+- [Abbey, the dog from &amp;#039;I Am Legend&amp;#039;, is now 15 yrs old...](https://news.puppy-snuggles.com/25289624/abbey-the-dog-from-i-am-legend-is-now-15-yrs-old)
+- [The newest member of our family needs a name. He’s a boy and we like more human names.](https://news.puppy-snuggles.com/23412987/the-newest-member-of-our-family-needs-a-name-hes-a-boy-and-we-like-more-human-names)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
