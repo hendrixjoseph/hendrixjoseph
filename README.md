@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Aww. So cute.](https://news.puppy-snuggles.com/39750295/aww-so-cute)
-- [Goodbye Nata](https://news.puppy-snuggles.com/37173056/goodbye-nata)
-- [My mom kept saying my dog would &amp;amp;quot;stare at her judgementally&amp;amp;quot; while she dogsits for me. She sent me this.](https://news.puppy-snuggles.com/36778125/my-mom-kept-saying-my-dog-would-quotstare-at-her-judgementallyquot-while-she-dogsits-for-me-she-sent-me-this)
-- [Abbey, the dog from &amp;#039;I Am Legend&amp;#039;, is now 15 yrs old...](https://news.puppy-snuggles.com/25289624/abbey-the-dog-from-i-am-legend-is-now-15-yrs-old)
-- [The newest member of our family needs a name. He’s a boy and we like more human names.](https://news.puppy-snuggles.com/23412987/the-newest-member-of-our-family-needs-a-name-hes-a-boy-and-we-like-more-human-names)
+- [Just Found This Sub](https://news.puppy-snuggles.com/40086905/just-found-this-sub)
+- [Bowsie looks extra fluffy today!](https://news.puppy-snuggles.com/39997706/bowsie-looks-extra-fluffy-today)
+- [Katie Price plays with new puppy Tank after death of dog Blade despite petition against her owning pets](https://news.puppy-snuggles.com/39339243/katie-price-plays-with-new-puppy-tank-after-death-of-dog-blade-despite-petition-against-her-owning-pets)
+- [Happy boy!](https://news.puppy-snuggles.com/37563594/happy-boy)
+- [Charlie, 6 year old Border Collie](https://news.puppy-snuggles.com/37287628/charlie-6-year-old-border-collie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
