@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just Found This Sub](https://news.puppy-snuggles.com/40086905/just-found-this-sub)
-- [Bowsie looks extra fluffy today!](https://news.puppy-snuggles.com/39997706/bowsie-looks-extra-fluffy-today)
-- [Katie Price plays with new puppy Tank after death of dog Blade despite petition against her owning pets](https://news.puppy-snuggles.com/39339243/katie-price-plays-with-new-puppy-tank-after-death-of-dog-blade-despite-petition-against-her-owning-pets)
-- [Happy boy!](https://news.puppy-snuggles.com/37563594/happy-boy)
-- [Charlie, 6 year old Border Collie](https://news.puppy-snuggles.com/37287628/charlie-6-year-old-border-collie)
+- [snowdog](https://news.puppy-snuggles.com/40232569/snowdog)
+- [Meet Harry Manback](https://news.puppy-snuggles.com/40214507/meet-harry-manback)
+- [Poor Penelope is not a fan of thunder storms.](https://news.puppy-snuggles.com/40086907/poor-penelope-is-not-a-fan-of-thunder-storms)
+- [My best friend since I&amp;#039;ve been a child:&rpar;](https://news.puppy-snuggles.com/39260062/my-best-friend-since-ive-been-a-child)
+- [My Bruno..he crossed the rainbow bridge July 29th. I miss him every minute of every day.](https://news.puppy-snuggles.com/19668337/my-brunohe-crossed-the-rainbow-bridge-july-29th-i-miss-him-every-minute-of-every-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
