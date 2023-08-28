@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Sasha throughout the years:&rpar;](https://news.puppy-snuggles.com/40284423/sasha-throughout-the-years)
+- [Before and after 🖤](https://news.puppy-snuggles.com/40250176/before-and-after)
 - [snowdog](https://news.puppy-snuggles.com/40232569/snowdog)
-- [Meet Harry Manback](https://news.puppy-snuggles.com/40214507/meet-harry-manback)
-- [Poor Penelope is not a fan of thunder storms.](https://news.puppy-snuggles.com/40086907/poor-penelope-is-not-a-fan-of-thunder-storms)
-- [My best friend since I&amp;#039;ve been a child:&rpar;](https://news.puppy-snuggles.com/39260062/my-best-friend-since-ive-been-a-child)
-- [My Bruno..he crossed the rainbow bridge July 29th. I miss him every minute of every day.](https://news.puppy-snuggles.com/19668337/my-brunohe-crossed-the-rainbow-bridge-july-29th-i-miss-him-every-minute-of-every-day)
+- [Show me your funniest pic&lpar;s&rpar; of your dog&lpar;s&rpar; ill go first](https://news.puppy-snuggles.com/40178845/show-me-your-funniest-pics-of-your-dogs-ill-go-first)
+- [The biggest smile](https://news.puppy-snuggles.com/40178846/the-biggest-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
