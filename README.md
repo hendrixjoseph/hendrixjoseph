@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sasha throughout the years:&rpar;](https://news.puppy-snuggles.com/40284423/sasha-throughout-the-years)
-- [Before and after 🖤](https://news.puppy-snuggles.com/40250176/before-and-after)
-- [snowdog](https://news.puppy-snuggles.com/40232569/snowdog)
-- [Show me your funniest pic&lpar;s&rpar; of your dog&lpar;s&rpar; ill go first](https://news.puppy-snuggles.com/40178845/show-me-your-funniest-pics-of-your-dogs-ill-go-first)
-- [The biggest smile](https://news.puppy-snuggles.com/40178846/the-biggest-smile)
+- [RIP, Baxter. 💔](https://news.puppy-snuggles.com/28168305/rip-baxter)
+- [She had a whole pack of chewing gum 🙄](https://news.puppy-snuggles.com/24225968/she-had-a-whole-pack-of-chewing-gum)
+- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
+- [Well come dance to mom and dad.](https://news.puppy-snuggles.com/19639421/well-come-dance-to-mom-and-dad)
+- [Eileen has an under bite.](https://news.puppy-snuggles.com/19366514/eileen-has-an-under-bite)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
