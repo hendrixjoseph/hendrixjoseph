@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP, Baxter. 💔](https://news.puppy-snuggles.com/28168305/rip-baxter)
-- [She had a whole pack of chewing gum 🙄](https://news.puppy-snuggles.com/24225968/she-had-a-whole-pack-of-chewing-gum)
-- [look at her tail](https://news.puppy-snuggles.com/23164533/look-at-her-tail)
-- [Well come dance to mom and dad.](https://news.puppy-snuggles.com/19639421/well-come-dance-to-mom-and-dad)
-- [Eileen has an under bite.](https://news.puppy-snuggles.com/19366514/eileen-has-an-under-bite)
+- [Happy 2nd gotcha day!](https://news.puppy-snuggles.com/33314741/happy-2nd-gotcha-day)
+- [This is Cash. He wanted me to tell everyone hello.](https://news.puppy-snuggles.com/23618731/this-is-cash-he-wanted-me-to-tell-everyone-hello)
+- [And they call it...](https://news.puppy-snuggles.com/23251506/and-they-call-it)
+- [my big dummy is the best big dummy](https://news.puppy-snuggles.com/22220148/my-big-dummy-is-the-best-big-dummy)
+- [My Pretty Boy](https://news.puppy-snuggles.com/19835093/my-pretty-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
