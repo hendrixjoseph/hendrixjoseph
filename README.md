@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekday Help and Victory Thread for the week of August 28, 2023](https://www.reddit.com/r/personalfinance/comments/163izbz/weekday_help_and_victory_thread_for_the_week_of/jydggt3/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, August 29, 2023](https://www.reddit.com/r/financialindependence/comments/164d5y3/daily_fi_discussion_thread_tuesday_august_29_2023/jy98dsp/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, August 29, 2023](https://www.reddit.com/r/financialindependence/comments/164d5y3/daily_fi_discussion_thread_tuesday_august_29_2023/jy8721x/)
 - [/u/joehx on What do you waste a lot of time on every day?](https://www.reddit.com/r/ExperiencedDevs/comments/15xysbj/what_do_you_waste_a_lot_of_time_on_every_day/jx9uihz/)
 - [/u/joehx on High School Merch issues?](https://www.reddit.com/r/AmazonMerch/comments/15tuz5b/high_school_merch_issues/jwmkyaf/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of August 14, 2023](https://www.reddit.com/r/personalfinance/comments/15qrhe1/weekday_help_and_victory_thread_for_the_week_of/jwkrjpz/)
 <!-- REDDIT:END -->
