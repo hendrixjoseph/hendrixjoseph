@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Penny won our building’s puppy of the month.](https://news.puppy-snuggles.com/40489285/penny-won-our-buildings-puppy-of-the-month)
-- [This is my favorite pose of Bella&amp;#039;s](https://news.puppy-snuggles.com/40489286/this-is-my-favorite-pose-of-bellas)
+- [Say hello to my baby](https://news.puppy-snuggles.com/40545104/say-hello-to-my-baby)
+- [Just discovered this sub, I think my dogs belong](https://news.puppy-snuggles.com/40545105/just-discovered-this-sub-i-think-my-dogs-belong)
+- [Found her in the road over a week ago. After unsuccessfully finding her home, she now has one with us.](https://news.puppy-snuggles.com/40526462/found-her-in-the-road-over-a-week-ago-after-unsuccessfully-finding-her-home-she-now-has-one-with-us)
+- [Gone 1 yr today. I miss my HaleyDog.](https://news.puppy-snuggles.com/40414389/gone-1-yr-today-i-miss-my-haleydog)
 - [He likes to lay on hims bacc 💚](https://news.puppy-snuggles.com/40414388/he-likes-to-lay-on-hims-bacc)
-- [Great reflexes](https://news.puppy-snuggles.com/34928271/great-reflexes)
-- [I worked late and dinner was late so....my quilts and pillow were taken outside](https://news.puppy-snuggles.com/22892649/i-worked-late-and-dinner-was-late-somy-quilts-and-pillow-were-taken-outside)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
