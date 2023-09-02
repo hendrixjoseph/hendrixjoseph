@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Say hello to my baby](https://news.puppy-snuggles.com/40545104/say-hello-to-my-baby)
-- [Just discovered this sub, I think my dogs belong](https://news.puppy-snuggles.com/40545105/just-discovered-this-sub-i-think-my-dogs-belong)
-- [Found her in the road over a week ago. After unsuccessfully finding her home, she now has one with us.](https://news.puppy-snuggles.com/40526462/found-her-in-the-road-over-a-week-ago-after-unsuccessfully-finding-her-home-she-now-has-one-with-us)
-- [Gone 1 yr today. I miss my HaleyDog.](https://news.puppy-snuggles.com/40414389/gone-1-yr-today-i-miss-my-haleydog)
-- [He likes to lay on hims bacc 💚](https://news.puppy-snuggles.com/40414388/he-likes-to-lay-on-hims-bacc)
+- [My new 5 year old rescue dog. I got him three days ago, and he’s a golden retriever/ husky mix. He is absolutely beautiful. His name’s Newman. Unfortunately he has heartworms but he’s still very happy and loves to run and play.](https://news.puppy-snuggles.com/23299604/my-new-5-year-old-rescue-dog-i-got-him-three-days-ago-and-hes-a-golden-retriever-husky-mix-he-is-absolutely-beautiful-his-names-newman-unfortunately-he-has-heartworms-but-hes-still-very-happy-and-loves-to-run-and-play)
+- [Hope he brightens your day](https://news.puppy-snuggles.com/23251504/hope-he-brightens-your-day)
+- [meet asus he turned 1 years old today](https://news.puppy-snuggles.com/22856250/meet-asus-he-turned-1-years-old-today)
+- [I just wanted to show y’all my dogs! The black one is Bandit, and the other one is Marco.](https://news.puppy-snuggles.com/22743258/i-just-wanted-to-show-yall-my-dogs-the-black-one-is-bandit-and-the-other-one-is-marco)
+- [Fiona has the prettiest smile 😆](https://news.puppy-snuggles.com/22615425/fiona-has-the-prettiest-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
