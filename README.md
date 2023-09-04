@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sasha throughout the years:&rpar;](https://news.puppy-snuggles.com/40284423/sasha-throughout-the-years)
-- [Before and after 🖤](https://news.puppy-snuggles.com/40250176/before-and-after)
-- [snowdog](https://news.puppy-snuggles.com/40232569/snowdog)
-- [My oldest son won’t go to school or get a job. Advice appreciated.](https://news.puppy-snuggles.com/40214506/my-oldest-son-wont-go-to-school-or-get-a-job-advice-appreciated)
-- [The biggest smile](https://news.puppy-snuggles.com/40178846/the-biggest-smile)
+- [Dog Enjoying the Peaceful Lake](https://news.puppy-snuggles.com/28355818/dog-enjoying-the-peaceful-lake)
+- [Throwback to 11 week old Chuck having the best time](https://news.puppy-snuggles.com/28276747/throwback-to-11-week-old-chuck-having-the-best-time)
+- [milo loves the woods and snow](https://news.puppy-snuggles.com/24104278/milo-loves-the-woods-and-snow)
+- [Hank and Daisy just chilling in the crate](https://news.puppy-snuggles.com/23684695/hank-and-daisy-just-chilling-in-the-crate)
+- [Juno at the beach](https://news.puppy-snuggles.com/23242002/juno-at-the-beach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
