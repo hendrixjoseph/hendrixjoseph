@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog Enjoying the Peaceful Lake](https://news.puppy-snuggles.com/28355818/dog-enjoying-the-peaceful-lake)
-- [Throwback to 11 week old Chuck having the best time](https://news.puppy-snuggles.com/28276747/throwback-to-11-week-old-chuck-having-the-best-time)
-- [milo loves the woods and snow](https://news.puppy-snuggles.com/24104278/milo-loves-the-woods-and-snow)
-- [Hank and Daisy just chilling in the crate](https://news.puppy-snuggles.com/23684695/hank-and-daisy-just-chilling-in-the-crate)
-- [Juno at the beach](https://news.puppy-snuggles.com/23242002/juno-at-the-beach)
+- [This old feller turns 15 today](https://news.puppy-snuggles.com/40829158/this-old-feller-turns-15-today)
+- [11 year old girl can still hang with a 4 day backpacking trip! Loved every minute! Bonus sleepy car ride home pic](https://news.puppy-snuggles.com/40829154/11-year-old-girl-can-still-hang-with-a-4-day-backpacking-trip-loved-every-minute-bonus-sleepy-car-ride-home-pic)
+- [Doggo is getting older. How do I prepare myself for the inevitable](https://news.puppy-snuggles.com/39872579/doggo-is-getting-older-how-do-i-prepare-myself-for-the-inevitable)
+- [The famous &amp;amp;quot;pls let me in&amp;amp;quot; eyes](https://news.puppy-snuggles.com/36964472/the-famous-quotpls-let-me-inquot-eyes)
+- [My beautiful and elegant Collie taking a nap](https://news.puppy-snuggles.com/31737875/my-beautiful-and-elegant-collie-taking-a-nap)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
