@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This old feller turns 15 today](https://news.puppy-snuggles.com/40829158/this-old-feller-turns-15-today)
-- [11 year old girl can still hang with a 4 day backpacking trip! Loved every minute! Bonus sleepy car ride home pic](https://news.puppy-snuggles.com/40829154/11-year-old-girl-can-still-hang-with-a-4-day-backpacking-trip-loved-every-minute-bonus-sleepy-car-ride-home-pic)
-- [Doggo is getting older. How do I prepare myself for the inevitable](https://news.puppy-snuggles.com/39872579/doggo-is-getting-older-how-do-i-prepare-myself-for-the-inevitable)
-- [The famous &amp;amp;quot;pls let me in&amp;amp;quot; eyes](https://news.puppy-snuggles.com/36964472/the-famous-quotpls-let-me-inquot-eyes)
-- [My beautiful and elegant Collie taking a nap](https://news.puppy-snuggles.com/31737875/my-beautiful-and-elegant-collie-taking-a-nap)
+- [Say hello to my baby](https://news.puppy-snuggles.com/40545104/say-hello-to-my-baby)
+- [After surviving a fire,he is now training to become a therapy dog for burn victims](https://news.puppy-snuggles.com/39001284/after-surviving-a-firehe-is-now-training-to-become-a-therapy-dog-for-burn-victims)
+- [throw pillow or dog](https://news.puppy-snuggles.com/23593369/throw-pillow-or-dog)
+- [Shepard commander](https://news.puppy-snuggles.com/23132581/shepard-commander)
+- [This dog came to my window the other night. She is happy and warm now.](https://news.puppy-snuggles.com/22940091/this-dog-came-to-my-window-the-other-night-she-is-happy-and-warm-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
