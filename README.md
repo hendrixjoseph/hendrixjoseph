@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Say hello to my baby](https://news.puppy-snuggles.com/40545104/say-hello-to-my-baby)
-- [After surviving a fire,he is now training to become a therapy dog for burn victims](https://news.puppy-snuggles.com/39001284/after-surviving-a-firehe-is-now-training-to-become-a-therapy-dog-for-burn-victims)
-- [throw pillow or dog](https://news.puppy-snuggles.com/23593369/throw-pillow-or-dog)
-- [Shepard commander](https://news.puppy-snuggles.com/23132581/shepard-commander)
-- [This dog came to my window the other night. She is happy and warm now.](https://news.puppy-snuggles.com/22940091/this-dog-came-to-my-window-the-other-night-she-is-happy-and-warm-now)
+- [Does she look pretty?](https://news.puppy-snuggles.com/40972360/does-she-look-pretty)
+- [My mom surrendered lil Timmy this morning without telling the fam :&lpar;](https://news.puppy-snuggles.com/40972359/my-mom-surrendered-lil-timmy-this-morning-without-telling-the-fam)
+- [I want to have a home.](https://news.puppy-snuggles.com/40953207/i-want-to-have-a-home)
+- [Guess who we brought home today! Can I get some help getting this little boy a name?](https://news.puppy-snuggles.com/40829157/guess-who-we-brought-home-today-can-i-get-some-help-getting-this-little-boy-a-name)
+- [One of Mookie&amp;#039;s favorite spots](https://news.puppy-snuggles.com/40758309/one-of-mookies-favorite-spots)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
