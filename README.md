@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [August 2023 Book Reading List](https://www.joehxblog.com/august-2023-book-reading-list/)
 - [Why Do I Always Read Those &quot;How to Make Passive Income&quot; Articles](https://www.joehxblog.com/why-do-i-always-read-those-how-to-make-passive-income-articles/)
 - [August 2023 Blog Statistics](https://www.joehxblog.com/august-2023-blog-statistics/)
 - [July 2023 Book Reading List](https://www.joehxblog.com/july-2023-book-reading-list/)
 - [July 2023 Blog Statistics](https://www.joehxblog.com/july-2023-blog-statistics/)
-- [Ohio&#39;s Expanded EdChoice Program - A Breakdown of Scholarship Amounts for 2024](https://www.joehxblog.com/ohios-expanded-edchoice-program-a-breakdown-of-scholarship-amounts-for-2024/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
