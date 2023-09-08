@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does she look pretty?](https://news.puppy-snuggles.com/40972360/does-she-look-pretty)
-- [My mom surrendered lil Timmy this morning without telling the fam :&lpar;](https://news.puppy-snuggles.com/40972359/my-mom-surrendered-lil-timmy-this-morning-without-telling-the-fam)
-- [I want to have a home.](https://news.puppy-snuggles.com/40953207/i-want-to-have-a-home)
-- [Guess who we brought home today! Can I get some help getting this little boy a name?](https://news.puppy-snuggles.com/40829157/guess-who-we-brought-home-today-can-i-get-some-help-getting-this-little-boy-a-name)
-- [One of Mookie&amp;#039;s favorite spots](https://news.puppy-snuggles.com/40758309/one-of-mookies-favorite-spots)
+- [My Girl Zoey post surgery](https://news.puppy-snuggles.com/41023384/my-girl-zoey-post-surgery)
+- [She needs a name what shall we name this sweet girl? I’d like something unique not typical names like Princess,Bella, Ruby Queenie ect. &lpar;She’s a 4yo rescue&rpar;](https://news.puppy-snuggles.com/41023382/she-needs-a-name-what-shall-we-name-this-sweet-girl-id-like-something-unique-not-typical-names-like-princessbella-ruby-queenie-ect-shes-a-4yo-rescue)
+- [My dog died today](https://news.puppy-snuggles.com/41004396/my-dog-died-today)
+- [This is my almost 4yo boio, which breeds y’all think are there? I’m thinking about getting DNA test just because he’s such a wolf-potato ♥️](https://news.puppy-snuggles.com/40829155/this-is-my-almost-4yo-boio-which-breeds-yall-think-are-there-im-thinking-about-getting-dna-test-just-because-hes-such-a-wolf-potato)
+- [If this isn’t a happy pupper I don’t know what is 🐕🐶](https://news.puppy-snuggles.com/40829153/if-this-isnt-a-happy-pupper-i-dont-know-what-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
