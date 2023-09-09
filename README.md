@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Girl Zoey post surgery](https://news.puppy-snuggles.com/41023384/my-girl-zoey-post-surgery)
-- [She needs a name what shall we name this sweet girl? I’d like something unique not typical names like Princess,Bella, Ruby Queenie ect. &lpar;She’s a 4yo rescue&rpar;](https://news.puppy-snuggles.com/41023382/she-needs-a-name-what-shall-we-name-this-sweet-girl-id-like-something-unique-not-typical-names-like-princessbella-ruby-queenie-ect-shes-a-4yo-rescue)
-- [My dog died today](https://news.puppy-snuggles.com/41004396/my-dog-died-today)
-- [This is my almost 4yo boio, which breeds y’all think are there? I’m thinking about getting DNA test just because he’s such a wolf-potato ♥️](https://news.puppy-snuggles.com/40829155/this-is-my-almost-4yo-boio-which-breeds-yall-think-are-there-im-thinking-about-getting-dna-test-just-because-hes-such-a-wolf-potato)
-- [If this isn’t a happy pupper I don’t know what is 🐕🐶](https://news.puppy-snuggles.com/40829153/if-this-isnt-a-happy-pupper-i-dont-know-what-is)
+- [He&amp;#039;d live in the park if he could](https://news.puppy-snuggles.com/41096200/hed-live-in-the-park-if-he-could)
+- [Hi people](https://news.puppy-snuggles.com/41023383/hi-people)
+- [Name for our 6 month old rescue?](https://news.puppy-snuggles.com/41023385/name-for-our-6-month-old-rescue)
+- [someone comes back from a walk](https://news.puppy-snuggles.com/39292003/someone-comes-back-from-a-walk)
+- [Blessed him..](https://news.puppy-snuggles.com/39292010/blessed-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
