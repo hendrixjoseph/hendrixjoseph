@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;d live in the park if he could](https://news.puppy-snuggles.com/41096200/hed-live-in-the-park-if-he-could)
-- [Hi people](https://news.puppy-snuggles.com/41023383/hi-people)
-- [Name for our 6 month old rescue?](https://news.puppy-snuggles.com/41023385/name-for-our-6-month-old-rescue)
-- [someone comes back from a walk](https://news.puppy-snuggles.com/39292003/someone-comes-back-from-a-walk)
-- [Blessed him..](https://news.puppy-snuggles.com/39292010/blessed-him)
+- [My name is Lily - The queen of puppy dogs eyes &amp;amp;lt;3](https://news.puppy-snuggles.com/41165591/my-name-is-lily-the-queen-of-puppy-dogs-eyes-lt3)
+- [My tini dachshund needs a name please &amp;amp;lt;3](https://news.puppy-snuggles.com/41131939/my-tini-dachshund-needs-a-name-please-lt3)
+- [Sheba was a kind soul. She&amp;#039;s been gone for five years. I&amp;#039;d like to share this picture.](https://news.puppy-snuggles.com/41131940/sheba-was-a-kind-soul-shes-been-gone-for-five-years-id-like-to-share-this-picture)
+- [Goin out for walkies and coffee and treats](https://news.puppy-snuggles.com/41096198/goin-out-for-walkies-and-coffee-and-treats)
+- [Whenever I&amp;#039;m getting ready to water the plants, he plays along. He loves playing with water so much that if I don’t pay attention, he will bite the water pipe and play with it by himself.🤣 my naughty and cute baby.❤️](https://news.puppy-snuggles.com/40953211/whenever-im-getting-ready-to-water-the-plants-he-plays-along-he-loves-playing-with-water-so-much-that-if-i-dont-pay-attention-he-will-bite-the-water-pipe-and-play-with-it-by-himself-my-naughty-and-cute-baby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
