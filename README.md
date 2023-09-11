@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My name is Lily - The queen of puppy dogs eyes &amp;amp;lt;3](https://news.puppy-snuggles.com/41165591/my-name-is-lily-the-queen-of-puppy-dogs-eyes-lt3)
-- [My tini dachshund needs a name please &amp;amp;lt;3](https://news.puppy-snuggles.com/41131939/my-tini-dachshund-needs-a-name-please-lt3)
-- [Sheba was a kind soul. She&amp;#039;s been gone for five years. I&amp;#039;d like to share this picture.](https://news.puppy-snuggles.com/41131940/sheba-was-a-kind-soul-shes-been-gone-for-five-years-id-like-to-share-this-picture)
-- [Goin out for walkies and coffee and treats](https://news.puppy-snuggles.com/41096198/goin-out-for-walkies-and-coffee-and-treats)
-- [Whenever I&amp;#039;m getting ready to water the plants, he plays along. He loves playing with water so much that if I don’t pay attention, he will bite the water pipe and play with it by himself.🤣 my naughty and cute baby.❤️](https://news.puppy-snuggles.com/40953211/whenever-im-getting-ready-to-water-the-plants-he-plays-along-he-loves-playing-with-water-so-much-that-if-i-dont-pay-attention-he-will-bite-the-water-pipe-and-play-with-it-by-himself-my-naughty-and-cute-baby)
+- [My dog died today](https://news.puppy-snuggles.com/41004396/my-dog-died-today)
+- [There were many flower causalities in the name of trying to get a good photo but I think it was worth it](https://news.puppy-snuggles.com/39819870/there-were-many-flower-causalities-in-the-name-of-trying-to-get-a-good-photo-but-i-think-it-was-worth-it)
+- [My dogs were spooning in work and I thought it was cute so thought I’d share!](https://news.puppy-snuggles.com/22142100/my-dogs-were-spooning-in-work-and-i-thought-it-was-cute-so-thought-id-share)
+- [Injured dog in an animal ambulance used during WW2](https://news.puppy-snuggles.com/19160229/injured-dog-in-an-animal-ambulance-used-during-ww2)
+- [My yoga instructor is very enthusiastic about her job](https://news.puppy-snuggles.com/19027157/my-yoga-instructor-is-very-enthusiastic-about-her-job)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
