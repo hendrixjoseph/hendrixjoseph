@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog died today](https://news.puppy-snuggles.com/41004396/my-dog-died-today)
-- [There were many flower causalities in the name of trying to get a good photo but I think it was worth it](https://news.puppy-snuggles.com/39819870/there-were-many-flower-causalities-in-the-name-of-trying-to-get-a-good-photo-but-i-think-it-was-worth-it)
-- [My dogs were spooning in work and I thought it was cute so thought I’d share!](https://news.puppy-snuggles.com/22142100/my-dogs-were-spooning-in-work-and-i-thought-it-was-cute-so-thought-id-share)
-- [Injured dog in an animal ambulance used during WW2](https://news.puppy-snuggles.com/19160229/injured-dog-in-an-animal-ambulance-used-during-ww2)
-- [My yoga instructor is very enthusiastic about her job](https://news.puppy-snuggles.com/19027157/my-yoga-instructor-is-very-enthusiastic-about-her-job)
+- [The second I tell her not to drink from her play pool](https://news.puppy-snuggles.com/22940099/the-second-i-tell-her-not-to-drink-from-her-play-pool)
+- [A few of Merle’s smiles.](https://news.puppy-snuggles.com/21962522/a-few-of-merles-smiles)
+- [The best friend a girl could ask for 🥰](https://news.puppy-snuggles.com/21403317/the-best-friend-a-girl-could-ask-for)
+- [My Dog and kitten giving themselves a bath next to each other :&rpar;](https://news.puppy-snuggles.com/18022257/my-dog-and-kitten-giving-themselves-a-bath-next-to-each-other)
+- [my neighbors dog](https://news.puppy-snuggles.com/15738197/my-neighbors-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
