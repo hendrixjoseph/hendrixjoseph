@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The second I tell her not to drink from her play pool](https://news.puppy-snuggles.com/22940099/the-second-i-tell-her-not-to-drink-from-her-play-pool)
-- [A few of Merle’s smiles.](https://news.puppy-snuggles.com/21962522/a-few-of-merles-smiles)
-- [The best friend a girl could ask for 🥰](https://news.puppy-snuggles.com/21403317/the-best-friend-a-girl-could-ask-for)
-- [My Dog and kitten giving themselves a bath next to each other :&rpar;](https://news.puppy-snuggles.com/18022257/my-dog-and-kitten-giving-themselves-a-bath-next-to-each-other)
-- [my neighbors dog](https://news.puppy-snuggles.com/15738197/my-neighbors-dog)
+- [The smile you put on when you know you are guilty](https://news.puppy-snuggles.com/39512913/the-smile-you-put-on-when-you-know-you-are-guilty)
+- [still a pretty new team, but the best service dog I know❤️❤️](https://news.puppy-snuggles.com/24291261/still-a-pretty-new-team-but-the-best-service-dog-i-know)
+- [Does anyone have an idea of what kind of dog he is?? He’s very tall and the roof of his mouth is all black!](https://news.puppy-snuggles.com/23658542/does-anyone-have-an-idea-of-what-kind-of-dog-he-is-hes-very-tall-and-the-roof-of-his-mouth-is-all-black)
+- [Maple between begging for more pets](https://news.puppy-snuggles.com/23498665/maple-between-begging-for-more-pets)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
