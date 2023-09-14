@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The smile you put on when you know you are guilty](https://news.puppy-snuggles.com/39512913/the-smile-you-put-on-when-you-know-you-are-guilty)
-- [still a pretty new team, but the best service dog I know❤️❤️](https://news.puppy-snuggles.com/24291261/still-a-pretty-new-team-but-the-best-service-dog-i-know)
-- [Does anyone have an idea of what kind of dog he is?? He’s very tall and the roof of his mouth is all black!](https://news.puppy-snuggles.com/23658542/does-anyone-have-an-idea-of-what-kind-of-dog-he-is-hes-very-tall-and-the-roof-of-his-mouth-is-all-black)
-- [Maple between begging for more pets](https://news.puppy-snuggles.com/23498665/maple-between-begging-for-more-pets)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
+- [He realized he was destined to be the lord of the husks..](https://news.puppy-snuggles.com/39750296/he-realized-he-was-destined-to-be-the-lord-of-the-husks)
+- [Our 11 week old Newfoundland, Etta](https://news.puppy-snuggles.com/30142743/our-11-week-old-newfoundland-etta)
+- [Supermodel looks but dumb as a doorknob](https://news.puppy-snuggles.com/28512794/supermodel-looks-but-dumb-as-a-doorknob)
+- [I have to say, I&amp;#039;ve never seen a bigger dog in my life! Does anyone know what breed this dog is?](https://news.puppy-snuggles.com/26367606/i-have-to-say-ive-never-seen-a-bigger-dog-in-my-life-does-anyone-know-what-breed-this-dog-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
