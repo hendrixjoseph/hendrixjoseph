@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
-- [He realized he was destined to be the lord of the husks..](https://news.puppy-snuggles.com/39750296/he-realized-he-was-destined-to-be-the-lord-of-the-husks)
-- [Our 11 week old Newfoundland, Etta](https://news.puppy-snuggles.com/30142743/our-11-week-old-newfoundland-etta)
-- [Supermodel looks but dumb as a doorknob](https://news.puppy-snuggles.com/28512794/supermodel-looks-but-dumb-as-a-doorknob)
-- [I have to say, I&amp;#039;ve never seen a bigger dog in my life! Does anyone know what breed this dog is?](https://news.puppy-snuggles.com/26367606/i-have-to-say-ive-never-seen-a-bigger-dog-in-my-life-does-anyone-know-what-breed-this-dog-is)
+- [RIP my best friend Dempsey](https://news.puppy-snuggles.com/36369023/rip-my-best-friend-dempsey)
+- [I’M AT CRUFTS!!! First dog I see is Hamish the Irish wolfhound! Top 3 of my breeds 🥰](https://news.puppy-snuggles.com/28551668/im-at-crufts-first-dog-i-see-is-hamish-the-irish-wolfhound-top-3-of-my-breeds)
+- [this was the last day with him! how i miss he 😞😞😞 Any advice to overcome a loss like this?](https://news.puppy-snuggles.com/25395268/this-was-the-last-day-with-him-how-i-miss-he-any-advice-to-overcome-a-loss-like-this)
+- [When your child asks for help with fractions](https://news.puppy-snuggles.com/23644207/when-your-child-asks-for-help-with-fractions)
+- [Hi my name Sila!!!!!](https://news.puppy-snuggles.com/19631487/hi-my-name-sila)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
