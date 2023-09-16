@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP my best friend Dempsey](https://news.puppy-snuggles.com/36369023/rip-my-best-friend-dempsey)
-- [I’M AT CRUFTS!!! First dog I see is Hamish the Irish wolfhound! Top 3 of my breeds 🥰](https://news.puppy-snuggles.com/28551668/im-at-crufts-first-dog-i-see-is-hamish-the-irish-wolfhound-top-3-of-my-breeds)
-- [this was the last day with him! how i miss he 😞😞😞 Any advice to overcome a loss like this?](https://news.puppy-snuggles.com/25395268/this-was-the-last-day-with-him-how-i-miss-he-any-advice-to-overcome-a-loss-like-this)
-- [When your child asks for help with fractions](https://news.puppy-snuggles.com/23644207/when-your-child-asks-for-help-with-fractions)
-- [Hi my name Sila!!!!!](https://news.puppy-snuggles.com/19631487/hi-my-name-sila)
+- [Do you guys think my Dog is handsome](https://news.puppy-snuggles.com/41379318/do-you-guys-think-my-dog-is-handsome)
+- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
+- [Today is Opal&amp;#039;s 13th birthday!](https://news.puppy-snuggles.com/29413252/today-is-opals-13th-birthday)
+- [A very mellow red golden [oc]](https://news.puppy-snuggles.com/22482784/a-very-mellow-red-golden-oc)
+- [The love of my life turns 5 tomorrow. &amp;amp;lt;3](https://news.puppy-snuggles.com/21669841/the-love-of-my-life-turns-5-tomorrow-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
