@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do you guys think my Dog is handsome](https://news.puppy-snuggles.com/41379318/do-you-guys-think-my-dog-is-handsome)
-- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
-- [Today is Opal&amp;#039;s 13th birthday!](https://news.puppy-snuggles.com/29413252/today-is-opals-13th-birthday)
-- [A very mellow red golden [oc]](https://news.puppy-snuggles.com/22482784/a-very-mellow-red-golden-oc)
-- [The love of my life turns 5 tomorrow. &amp;amp;lt;3](https://news.puppy-snuggles.com/21669841/the-love-of-my-life-turns-5-tomorrow-lt3)
+- [Does this count?](https://news.puppy-snuggles.com/41562470/does-this-count)
+- [Beware of dog..](https://news.puppy-snuggles.com/37669604/beware-of-dog)
+- [I love his little smile](https://news.puppy-snuggles.com/35809168/i-love-his-little-smile)
+- [My boy he died March 1](https://news.puppy-snuggles.com/19072440/my-boy-he-died-march-1)
+- [Zoe the husky in charcoal and pastel](https://news.puppy-snuggles.com/16495650/zoe-the-husky-in-charcoal-and-pastel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
