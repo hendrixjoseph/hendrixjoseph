@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does this count?](https://news.puppy-snuggles.com/41562470/does-this-count)
-- [Beware of dog..](https://news.puppy-snuggles.com/37669604/beware-of-dog)
-- [I love his little smile](https://news.puppy-snuggles.com/35809168/i-love-his-little-smile)
-- [My boy he died March 1](https://news.puppy-snuggles.com/19072440/my-boy-he-died-march-1)
-- [Zoe the husky in charcoal and pastel](https://news.puppy-snuggles.com/16495650/zoe-the-husky-in-charcoal-and-pastel)
+- [No, I haven&amp;#039;t been in the dirt. Why do you ask?](https://news.puppy-snuggles.com/41720181/no-i-havent-been-in-the-dirt-why-do-you-ask)
+- [Why do dogs sit in the tiniest of boxes? 🥹](https://news.puppy-snuggles.com/41598040/why-do-dogs-sit-in-the-tiniest-of-boxes)
+- [My best friend Bonzo aka Big Baby flew over the Rainbow Bridge today. I&amp;#039;m not sure what to do anymore. Goodbye my friend, until we meet again.](https://news.puppy-snuggles.com/41287436/my-best-friend-bonzo-aka-big-baby-flew-over-the-rainbow-bridge-today-im-not-sure-what-to-do-anymore-goodbye-my-friend-until-we-meet-again)
+- [Fry guy](https://news.puppy-snuggles.com/40141765/fry-guy)
+- [siblings or partners? hahahah](https://news.puppy-snuggles.com/40086906/siblings-or-partners-hahahah)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
