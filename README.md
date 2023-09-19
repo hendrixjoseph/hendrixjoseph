@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [No, I haven&amp;#039;t been in the dirt. Why do you ask?](https://news.puppy-snuggles.com/41720181/no-i-havent-been-in-the-dirt-why-do-you-ask)
-- [Why do dogs sit in the tiniest of boxes? 🥹](https://news.puppy-snuggles.com/41598040/why-do-dogs-sit-in-the-tiniest-of-boxes)
 - [My best friend Bonzo aka Big Baby flew over the Rainbow Bridge today. I&amp;#039;m not sure what to do anymore. Goodbye my friend, until we meet again.](https://news.puppy-snuggles.com/41287436/my-best-friend-bonzo-aka-big-baby-flew-over-the-rainbow-bridge-today-im-not-sure-what-to-do-anymore-goodbye-my-friend-until-we-meet-again)
-- [Fry guy](https://news.puppy-snuggles.com/40141765/fry-guy)
-- [siblings or partners? hahahah](https://news.puppy-snuggles.com/40086906/siblings-or-partners-hahahah)
+- [A daily picture of Peanut the dog](https://news.puppy-snuggles.com/36440737/a-daily-picture-of-peanut-the-dog)
+- [Stop scrolling if you need some joy in your life. We love showing off our residents here at our sanctuary Sara Morocco, with 900 puppers it’s smiles all round.](https://news.puppy-snuggles.com/36392095/stop-scrolling-if-you-need-some-joy-in-your-life-we-love-showing-off-our-residents-here-at-our-sanctuary-sara-morocco-with-900-puppers-its-smiles-all-round)
+- [Juneau is getting grayer, but she still has that puppy mentality. I love this goofball so much.](https://news.puppy-snuggles.com/31010252/juneau-is-getting-grayer-but-she-still-has-that-puppy-mentality-i-love-this-goofball-so-much)
+- [How boop-able is my nose?](https://news.puppy-snuggles.com/24716470/how-boop-able-is-my-nose)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
