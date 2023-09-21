@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Am I cute?](https://news.puppy-snuggles.com/41867874/am-i-cute)
-- [Hades the rescue pup and goofball](https://news.puppy-snuggles.com/37474609/hades-the-rescue-pup-and-goofball)
-- [Would you guess he’s a beagle mix? Regardless my boy is handsome. ❤️](https://news.puppy-snuggles.com/32873868/would-you-guess-hes-a-beagle-mix-regardless-my-boy-is-handsome)
-- [Like father, like son!](https://news.puppy-snuggles.com/31547208/like-father-like-son)
-- [he knows it&amp;#039;s breakfast time](https://news.puppy-snuggles.com/26310082/he-knows-its-breakfast-time)
+- [She is one with the sun 🌞](https://news.puppy-snuggles.com/34763236/she-is-one-with-the-sun)
+- [My Angel. Actually called Angel](https://news.puppy-snuggles.com/24092871/my-angel-actually-called-angel)
+- [What is this breed of dog?](https://news.puppy-snuggles.com/23185584/what-is-this-breed-of-dog)
+- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [True happiness for those two](https://news.puppy-snuggles.com/22439103/true-happiness-for-those-two)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
