@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She is one with the sun 🌞](https://news.puppy-snuggles.com/34763236/she-is-one-with-the-sun)
-- [My Angel. Actually called Angel](https://news.puppy-snuggles.com/24092871/my-angel-actually-called-angel)
-- [What is this breed of dog?](https://news.puppy-snuggles.com/23185584/what-is-this-breed-of-dog)
-- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
-- [True happiness for those two](https://news.puppy-snuggles.com/22439103/true-happiness-for-those-two)
+- [Colour pencil portrait of a dog order work for mh client](https://news.puppy-snuggles.com/41997451/colour-pencil-portrait-of-a-dog-order-work-for-mh-client)
+- [She just loves the dog park](https://news.puppy-snuggles.com/41942433/she-just-loves-the-dog-park)
+- [Does any of your dogs love playing with plastic bottles?](https://news.puppy-snuggles.com/41506641/does-any-of-your-dogs-love-playing-with-plastic-bottles)
+- [Before and after 🖤](https://news.puppy-snuggles.com/40250176/before-and-after)
+- [My 1 month old Frenchie, so smol. she’s always getting lost around the house 🥹](https://news.puppy-snuggles.com/28111747/my-1-month-old-frenchie-so-smol-shes-always-getting-lost-around-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
