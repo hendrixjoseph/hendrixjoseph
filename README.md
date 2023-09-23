@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Colour pencil portrait of a dog order work for mh client](https://news.puppy-snuggles.com/41997451/colour-pencil-portrait-of-a-dog-order-work-for-mh-client)
-- [She just loves the dog park](https://news.puppy-snuggles.com/41942433/she-just-loves-the-dog-park)
-- [Does any of your dogs love playing with plastic bottles?](https://news.puppy-snuggles.com/41506641/does-any-of-your-dogs-love-playing-with-plastic-bottles)
-- [Before and after 🖤](https://news.puppy-snuggles.com/40250176/before-and-after)
-- [My 1 month old Frenchie, so smol. she’s always getting lost around the house 🥹](https://news.puppy-snuggles.com/28111747/my-1-month-old-frenchie-so-smol-shes-always-getting-lost-around-the-house)
+- [I think my dog is possessed should I be worried?](https://news.puppy-snuggles.com/26794983/i-think-my-dog-is-possessed-should-i-be-worried)
+- [She&amp;#039;s not a morning person. My truck dog Wrigley. She just woke up on our way to my job.](https://news.puppy-snuggles.com/23710055/shes-not-a-morning-person-my-truck-dog-wrigley-she-just-woke-up-on-our-way-to-my-job)
+- [Without looking at my recent post history, guess this big man’s makeup. He is a combination of two breeds. Hint: One is the first one you’d guess~](https://news.puppy-snuggles.com/22491698/without-looking-at-my-recent-post-history-guess-this-big-mans-makeup-he-is-a-combination-of-two-breeds-hint-one-is-the-first-one-youd-guess)
+- [My friend sent me these photos of his good boi](https://news.puppy-snuggles.com/21757665/my-friend-sent-me-these-photos-of-his-good-boi)
+- [Bills 16th birthday today](https://news.puppy-snuggles.com/19913975/bills-16th-birthday-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
