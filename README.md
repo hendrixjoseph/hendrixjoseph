@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I think my dog is possessed should I be worried?](https://news.puppy-snuggles.com/26794983/i-think-my-dog-is-possessed-should-i-be-worried)
-- [She&amp;#039;s not a morning person. My truck dog Wrigley. She just woke up on our way to my job.](https://news.puppy-snuggles.com/23710055/shes-not-a-morning-person-my-truck-dog-wrigley-she-just-woke-up-on-our-way-to-my-job)
-- [Without looking at my recent post history, guess this big man’s makeup. He is a combination of two breeds. Hint: One is the first one you’d guess~](https://news.puppy-snuggles.com/22491698/without-looking-at-my-recent-post-history-guess-this-big-mans-makeup-he-is-a-combination-of-two-breeds-hint-one-is-the-first-one-youd-guess)
-- [My friend sent me these photos of his good boi](https://news.puppy-snuggles.com/21757665/my-friend-sent-me-these-photos-of-his-good-boi)
-- [Bills 16th birthday today](https://news.puppy-snuggles.com/19913975/bills-16th-birthday-today)
+- [My boyfriend’s 270 lbs English Mastiff with his littermates](https://news.puppy-snuggles.com/39438067/my-boyfriends-270-lbs-english-mastiff-with-his-littermates)
+- [Rate my dog](https://news.puppy-snuggles.com/33076003/rate-my-dog)
+- [Always a happy boy](https://news.puppy-snuggles.com/24667750/always-a-happy-boy)
+- [I&amp;#039;m keeping him warm](https://news.puppy-snuggles.com/24568290/im-keeping-him-warm)
+- [Can’t even begin to explain how grateful I am to be blessed with such an amazing companion. I love Diablo so much that it hurts 😅 I don’t have many friends to be honest, but having him just makes everything so much better.](https://news.puppy-snuggles.com/24487780/cant-even-begin-to-explain-how-grateful-i-am-to-be-blessed-with-such-an-amazing-companion-i-love-diablo-so-much-that-it-hurts-i-dont-have-many-friends-to-be-honest-but-having-him-just-makes-everything-so-much-better)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
