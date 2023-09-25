@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boyfriend’s 270 lbs English Mastiff with his littermates](https://news.puppy-snuggles.com/39438067/my-boyfriends-270-lbs-english-mastiff-with-his-littermates)
-- [Rate my dog](https://news.puppy-snuggles.com/33076003/rate-my-dog)
-- [Always a happy boy](https://news.puppy-snuggles.com/24667750/always-a-happy-boy)
-- [I&amp;#039;m keeping him warm](https://news.puppy-snuggles.com/24568290/im-keeping-him-warm)
-- [Can’t even begin to explain how grateful I am to be blessed with such an amazing companion. I love Diablo so much that it hurts 😅 I don’t have many friends to be honest, but having him just makes everything so much better.](https://news.puppy-snuggles.com/24487780/cant-even-begin-to-explain-how-grateful-i-am-to-be-blessed-with-such-an-amazing-companion-i-love-diablo-so-much-that-it-hurts-i-dont-have-many-friends-to-be-honest-but-having-him-just-makes-everything-so-much-better)
+- [Sleepy smile](https://news.puppy-snuggles.com/42196195/sleepy-smile)
+- [My family](https://news.puppy-snuggles.com/42196198/my-family)
+- [Her name is Snopy. She left us many years ago, but I still think of her.](https://news.puppy-snuggles.com/42196196/her-name-is-snopy-she-left-us-many-years-ago-but-i-still-think-of-her)
+- [Dad didn&amp;#039;t want a dog in his house. Dad now:](https://news.puppy-snuggles.com/42196194/dad-didnt-want-a-dog-in-his-house-dad-now)
+- [Dog said oops](https://news.puppy-snuggles.com/42178394/dog-said-oops)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
