@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sleepy smile](https://news.puppy-snuggles.com/42196195/sleepy-smile)
-- [My family](https://news.puppy-snuggles.com/42196198/my-family)
-- [Her name is Snopy. She left us many years ago, but I still think of her.](https://news.puppy-snuggles.com/42196196/her-name-is-snopy-she-left-us-many-years-ago-but-i-still-think-of-her)
+- [New puppy. He needs a name. Wife vetoed everything I&amp;#039;ve came up with](https://news.puppy-snuggles.com/42271315/new-puppy-he-needs-a-name-wife-vetoed-everything-ive-came-up-with)
+- [The most handsome boy 💖](https://news.puppy-snuggles.com/42251536/the-most-handsome-boy)
+- [Dog offers his toy to new born baby:&rpar;](https://news.puppy-snuggles.com/42233957/dog-offers-his-toy-to-new-born-baby)
 - [Dad didn&amp;#039;t want a dog in his house. Dad now:](https://news.puppy-snuggles.com/42196194/dad-didnt-want-a-dog-in-his-house-dad-now)
-- [Dog said oops](https://news.puppy-snuggles.com/42178394/dog-said-oops)
+- [Today, Koki learned how to shake hands](https://news.puppy-snuggles.com/35787950/today-koki-learned-how-to-shake-hands)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
