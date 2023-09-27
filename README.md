@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New puppy. He needs a name. Wife vetoed everything I&amp;#039;ve came up with](https://news.puppy-snuggles.com/42271315/new-puppy-he-needs-a-name-wife-vetoed-everything-ive-came-up-with)
-- [The most handsome boy 💖](https://news.puppy-snuggles.com/42251536/the-most-handsome-boy)
-- [Dog offers his toy to new born baby:&rpar;](https://news.puppy-snuggles.com/42233957/dog-offers-his-toy-to-new-born-baby)
-- [Dad didn&amp;#039;t want a dog in his house. Dad now:](https://news.puppy-snuggles.com/42196194/dad-didnt-want-a-dog-in-his-house-dad-now)
-- [Today, Koki learned how to shake hands](https://news.puppy-snuggles.com/35787950/today-koki-learned-how-to-shake-hands)
+- [Just took this picture of my little Tom :&rpar; love him so much](https://news.puppy-snuggles.com/42346342/just-took-this-picture-of-my-little-tom-love-him-so-much)
+- [my naughty little puppy](https://news.puppy-snuggles.com/42346337/my-naughty-little-puppy)
+- [Took a photo of my dog 🐶](https://news.puppy-snuggles.com/42346341/took-a-photo-of-my-dog)
+- [A boy and his dog](https://news.puppy-snuggles.com/42346339/a-boy-and-his-dog)
+- [Happ](https://news.puppy-snuggles.com/42346340/happ)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
