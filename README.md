@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just took this picture of my little Tom :&rpar; love him so much](https://news.puppy-snuggles.com/42346342/just-took-this-picture-of-my-little-tom-love-him-so-much)
-- [my naughty little puppy](https://news.puppy-snuggles.com/42346337/my-naughty-little-puppy)
-- [Took a photo of my dog 🐶](https://news.puppy-snuggles.com/42346341/took-a-photo-of-my-dog)
-- [A boy and his dog](https://news.puppy-snuggles.com/42346339/a-boy-and-his-dog)
-- [Happ](https://news.puppy-snuggles.com/42346340/happ)
+- [RiP to my gorgeous girl Willow… Valentine’s Day photo&amp;amp;lt;3](https://news.puppy-snuggles.com/23412980/rip-to-my-gorgeous-girl-willow-valentines-day-photolt3)
+- [Beautiful Bertie](https://news.puppy-snuggles.com/23299599/beautiful-bertie)
+- [Is this safe for a dog in winter? It&amp;#039;s a heat lamp attached to a cage wrapped in a tarp. I don&amp;#039;t think I could put my pup in something like this without worrying if she will die from overheating. Even in winter time.](https://news.puppy-snuggles.com/23261891/is-this-safe-for-a-dog-in-winter-its-a-heat-lamp-attached-to-a-cage-wrapped-in-a-tarp-i-dont-think-i-could-put-my-pup-in-something-like-this-without-worrying-if-she-will-die-from-overheating-even-in-winter-time)
+- [Meet Miss Delilah!](https://news.puppy-snuggles.com/23223412/meet-miss-delilah)
+- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
