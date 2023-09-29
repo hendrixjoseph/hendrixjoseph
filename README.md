@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RiP to my gorgeous girl Willow… Valentine’s Day photo&amp;amp;lt;3](https://news.puppy-snuggles.com/23412980/rip-to-my-gorgeous-girl-willow-valentines-day-photolt3)
-- [Beautiful Bertie](https://news.puppy-snuggles.com/23299599/beautiful-bertie)
-- [Is this safe for a dog in winter? It&amp;#039;s a heat lamp attached to a cage wrapped in a tarp. I don&amp;#039;t think I could put my pup in something like this without worrying if she will die from overheating. Even in winter time.](https://news.puppy-snuggles.com/23261891/is-this-safe-for-a-dog-in-winter-its-a-heat-lamp-attached-to-a-cage-wrapped-in-a-tarp-i-dont-think-i-could-put-my-pup-in-something-like-this-without-worrying-if-she-will-die-from-overheating-even-in-winter-time)
-- [Meet Miss Delilah!](https://news.puppy-snuggles.com/23223412/meet-miss-delilah)
-- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [8 months with my rescue Django, I think he likes his new home and hanging out with me all the time.](https://news.puppy-snuggles.com/39240777/8-months-with-my-rescue-django-i-think-he-likes-his-new-home-and-hanging-out-with-me-all-the-time)
+- [Today, Koki learned how to shake hands](https://news.puppy-snuggles.com/35787950/today-koki-learned-how-to-shake-hands)
+- [The Best Doggo Videographer is at Your Service!](https://news.puppy-snuggles.com/34409783/the-best-doggo-videographer-is-at-your-service)
+- [Patch is 10 today 🥰](https://news.puppy-snuggles.com/34195906/patch-is-10-today)
+- [I may not look perfect but I have a beautiful heart and soul .](https://news.puppy-snuggles.com/27791110/i-may-not-look-perfect-but-i-have-a-beautiful-heart-and-soul)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
