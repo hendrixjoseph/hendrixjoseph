@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Every time I enter my house with his food, I am greeted by a 6ft jump of joy.](https://news.puppy-snuggles.com/42531282/every-time-i-enter-my-house-with-his-food-i-am-greeted-by-a-6ft-jump-of-joy)
-- [My sweet old man crossed the rainbow bridge today….17 years of love and snuggles](https://news.puppy-snuggles.com/42456676/my-sweet-old-man-crossed-the-rainbow-bridge-today17-years-of-love-and-snuggles)
-- [Eva, just happy to be part of the plans 😋](https://news.puppy-snuggles.com/40880913/eva-just-happy-to-be-part-of-the-plans)
-- [Happy Boba!🐶💕](https://news.puppy-snuggles.com/31446355/happy-boba)
-- [what do you guys think?](https://news.puppy-snuggles.com/23740419/what-do-you-guys-think)
+- [This is Toby. He is in end stage kidney failure and today is his last day with us. He is the sweetest dog I&amp;#039;ve ever known and I just want everyone in the world to know that he existed and he mattered.](https://news.puppy-snuggles.com/42618744/this-is-toby-he-is-in-end-stage-kidney-failure-and-today-is-his-last-day-with-us-he-is-the-sweetest-dog-ive-ever-known-and-i-just-want-everyone-in-the-world-to-know-that-he-existed-and-he-mattered)
+- [My princess 💕](https://news.puppy-snuggles.com/42601908/my-princess)
+- [Just had to say goodbye to my grumpy old man, Scout. It was time, but I’m still devastated.](https://news.puppy-snuggles.com/42567319/just-had-to-say-goodbye-to-my-grumpy-old-man-scout-it-was-time-but-im-still-devastated)
+- [What a gentle GIANT!](https://news.puppy-snuggles.com/41668262/what-a-gentle-giant)
+- [Handsome Boy](https://news.puppy-snuggles.com/41668263/handsome-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
