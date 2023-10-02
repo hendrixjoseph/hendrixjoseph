@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Toby. He is in end stage kidney failure and today is his last day with us. He is the sweetest dog I&amp;#039;ve ever known and I just want everyone in the world to know that he existed and he mattered.](https://news.puppy-snuggles.com/42618744/this-is-toby-he-is-in-end-stage-kidney-failure-and-today-is-his-last-day-with-us-he-is-the-sweetest-dog-ive-ever-known-and-i-just-want-everyone-in-the-world-to-know-that-he-existed-and-he-mattered)
-- [My princess 💕](https://news.puppy-snuggles.com/42601908/my-princess)
-- [Just had to say goodbye to my grumpy old man, Scout. It was time, but I’m still devastated.](https://news.puppy-snuggles.com/42567319/just-had-to-say-goodbye-to-my-grumpy-old-man-scout-it-was-time-but-im-still-devastated)
-- [What a gentle GIANT!](https://news.puppy-snuggles.com/41668262/what-a-gentle-giant)
-- [Handsome Boy](https://news.puppy-snuggles.com/41668263/handsome-boy)
+- [I always call her fish dog with how much she loves the water](https://news.puppy-snuggles.com/42669354/i-always-call-her-fish-dog-with-how-much-she-loves-the-water)
+- [Ha ha ha, good teacher! Good student! Good boy!](https://news.puppy-snuggles.com/36178603/ha-ha-ha-good-teacher-good-student-good-boy)
+- [This good boy saved my life and my children’s lives when my house caught fire in the middle of the night a year ago. He’s definitely allowed on the couch.](https://news.puppy-snuggles.com/34047859/this-good-boy-saved-my-life-and-my-childrens-lives-when-my-house-caught-fire-in-the-middle-of-the-night-a-year-ago-hes-definitely-allowed-on-the-couch)
+- [Emaciated female dog found along Berks road and dead puppies later found in a bag under investigation](https://news.puppy-snuggles.com/32941882/emaciated-female-dog-found-along-berks-road-and-dead-puppies-later-found-in-a-bag-under-investigation)
+- [My dog Duncan](https://news.puppy-snuggles.com/31346944/my-dog-duncan)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
