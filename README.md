@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bruce got a big smile while vacationing with mom and dad.](https://news.puppy-snuggles.com/22916232/bruce-got-a-big-smile-while-vacationing-with-mom-and-dad)
-- [Ms. Marvel our new rescue pup! &lpar;OC&rpar;](https://news.puppy-snuggles.com/22674535/ms-marvel-our-new-rescue-pup-oc)
-- [Meet Paningning, The Puppy With Unusual Sleeping Habit That Is Cute Beyond Words](https://news.puppy-snuggles.com/22522778/meet-paningning-the-puppy-with-unusual-sleeping-habit-that-is-cute-beyond-words)
-- [Hi, fetch plz!](https://news.puppy-snuggles.com/22456886/hi-fetch-plz)
-- [Happy Six Month birthday!](https://news.puppy-snuggles.com/22244442/happy-six-month-birthday)
+- [He may only have one eye but he&amp;#039;s still cute 😍♥️](https://news.puppy-snuggles.com/39927230/he-may-only-have-one-eye-but-hes-still-cute)
+- [Sneaky kisses..](https://news.puppy-snuggles.com/34763233/sneaky-kisses)
+- [Mom, is that food? haha I think today someone will have his well-deserved meal](https://news.puppy-snuggles.com/34011619/mom-is-that-food-haha-i-think-today-someone-will-have-his-well-deserved-meal)
+- [my girlfriend when she sleeps](https://news.puppy-snuggles.com/23153193/my-girlfriend-when-she-sleeps)
+- [Just me, and my friend Dolly.](https://news.puppy-snuggles.com/22638311/just-me-and-my-friend-dolly)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
