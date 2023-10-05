@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He may only have one eye but he&amp;#039;s still cute 😍♥️](https://news.puppy-snuggles.com/39927230/he-may-only-have-one-eye-but-hes-still-cute)
-- [Sneaky kisses..](https://news.puppy-snuggles.com/34763233/sneaky-kisses)
-- [Mom, is that food? haha I think today someone will have his well-deserved meal](https://news.puppy-snuggles.com/34011619/mom-is-that-food-haha-i-think-today-someone-will-have-his-well-deserved-meal)
-- [my girlfriend when she sleeps](https://news.puppy-snuggles.com/23153193/my-girlfriend-when-she-sleeps)
-- [Just me, and my friend Dolly.](https://news.puppy-snuggles.com/22638311/just-me-and-my-friend-dolly)
+- [What breed of dog is this?](https://news.puppy-snuggles.com/42883389/what-breed-of-dog-is-this)
+- [successful vacation](https://news.puppy-snuggles.com/42793040/successful-vacation)
+- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
+- [My “First born son” that I call a “pit lab” any time anyone asks. Tbh I’m not positive what he is. But I’m positive that he’s my best friend and honestly the best thing that has ever happened to me. He’s turning 8&lpar;ish&rpar; years old this month and I’m super emotional about it for some reason. 😭](https://news.puppy-snuggles.com/22880759/my-first-born-son-that-i-call-a-pit-lab-any-time-anyone-asks-tbh-im-not-positive-what-he-is-but-im-positive-that-hes-my-best-friend-and-honestly-the-best-thing-that-has-ever-happened-to-me-hes-turning-8ish-years-old-this-month-and-im-super-emotional-about-it-for-some-reason)
+- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
