@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed of dog is this?](https://news.puppy-snuggles.com/42883389/what-breed-of-dog-is-this)
-- [successful vacation](https://news.puppy-snuggles.com/42793040/successful-vacation)
-- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
-- [My “First born son” that I call a “pit lab” any time anyone asks. Tbh I’m not positive what he is. But I’m positive that he’s my best friend and honestly the best thing that has ever happened to me. He’s turning 8&lpar;ish&rpar; years old this month and I’m super emotional about it for some reason. 😭](https://news.puppy-snuggles.com/22880759/my-first-born-son-that-i-call-a-pit-lab-any-time-anyone-asks-tbh-im-not-positive-what-he-is-but-im-positive-that-hes-my-best-friend-and-honestly-the-best-thing-that-has-ever-happened-to-me-hes-turning-8ish-years-old-this-month-and-im-super-emotional-about-it-for-some-reason)
-- [Shelter dog](https://news.puppy-snuggles.com/21815832/shelter-dog)
+- [Dog survives after being dumped in Lenoir County landfill](https://news.puppy-snuggles.com/42957172/dog-survives-after-being-dumped-in-lenoir-county-landfill)
+- [One dog has ear medicine she needs and the other one also thinks he needs it too](https://news.puppy-snuggles.com/42936552/one-dog-has-ear-medicine-she-needs-and-the-other-one-also-thinks-he-needs-it-too)
+- [Help me name my new puppy](https://news.puppy-snuggles.com/42738690/help-me-name-my-new-puppy)
+- [She always sleep on my feet.. Why?](https://news.puppy-snuggles.com/42738691/she-always-sleep-on-my-feet-why)
+- [Enzo is a happy dog.](https://news.puppy-snuggles.com/42703842/enzo-is-a-happy-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
