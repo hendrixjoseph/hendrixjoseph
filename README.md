@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog survives after being dumped in Lenoir County landfill](https://news.puppy-snuggles.com/42957172/dog-survives-after-being-dumped-in-lenoir-county-landfill)
-- [One dog has ear medicine she needs and the other one also thinks he needs it too](https://news.puppy-snuggles.com/42936552/one-dog-has-ear-medicine-she-needs-and-the-other-one-also-thinks-he-needs-it-too)
-- [Help me name my new puppy](https://news.puppy-snuggles.com/42738690/help-me-name-my-new-puppy)
-- [She always sleep on my feet.. Why?](https://news.puppy-snuggles.com/42738691/she-always-sleep-on-my-feet-why)
-- [Enzo is a happy dog.](https://news.puppy-snuggles.com/42703842/enzo-is-a-happy-dog)
+- [When you make it past Monday](https://news.puppy-snuggles.com/42793042/when-you-make-it-past-monday)
+- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
+- [this is my boy harold sitting pretty for christmas pictures!](https://news.puppy-snuggles.com/24070824/this-is-my-boy-harold-sitting-pretty-for-christmas-pictures)
+- [My 15 y/o Patterdale cross who went to sleep last year. Miss you every day, buddy.](https://news.puppy-snuggles.com/23310238/my-15-yo-patterdale-cross-who-went-to-sleep-last-year-miss-you-every-day-buddy)
+- [Need help identifying my new puppy..!!](https://news.puppy-snuggles.com/23205509/need-help-identifying-my-new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
