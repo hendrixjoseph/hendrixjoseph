@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When you make it past Monday](https://news.puppy-snuggles.com/42793042/when-you-make-it-past-monday)
-- [Just adopted this baby boy, yet to decide a name please give me options in the comments was thinking “Gingy”](https://news.puppy-snuggles.com/31659785/just-adopted-this-baby-boy-yet-to-decide-a-name-please-give-me-options-in-the-comments-was-thinking-gingy)
-- [this is my boy harold sitting pretty for christmas pictures!](https://news.puppy-snuggles.com/24070824/this-is-my-boy-harold-sitting-pretty-for-christmas-pictures)
-- [My 15 y/o Patterdale cross who went to sleep last year. Miss you every day, buddy.](https://news.puppy-snuggles.com/23310238/my-15-yo-patterdale-cross-who-went-to-sleep-last-year-miss-you-every-day-buddy)
-- [Need help identifying my new puppy..!!](https://news.puppy-snuggles.com/23205509/need-help-identifying-my-new-puppy)
+- [Pure judgment from Misha](https://news.puppy-snuggles.com/41200200/pure-judgment-from-misha)
+- [My dog has bigger head than my gf &lpar;OC&rpar;](https://news.puppy-snuggles.com/36485349/my-dog-has-bigger-head-than-my-gf-oc)
+- [Rate my dog please](https://news.puppy-snuggles.com/36485347/rate-my-dog-please)
+- [Just a couple nice shots of my boys](https://news.puppy-snuggles.com/32729682/just-a-couple-nice-shots-of-my-boys)
+- [can someone identify this breed? they are siblings](https://news.puppy-snuggles.com/32375231/can-someone-identify-this-breed-they-are-siblings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
