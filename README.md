@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pure judgment from Misha](https://news.puppy-snuggles.com/41200200/pure-judgment-from-misha)
-- [My dog has bigger head than my gf &lpar;OC&rpar;](https://news.puppy-snuggles.com/36485349/my-dog-has-bigger-head-than-my-gf-oc)
-- [Rate my dog please](https://news.puppy-snuggles.com/36485347/rate-my-dog-please)
-- [Just a couple nice shots of my boys](https://news.puppy-snuggles.com/32729682/just-a-couple-nice-shots-of-my-boys)
-- [can someone identify this breed? they are siblings](https://news.puppy-snuggles.com/32375231/can-someone-identify-this-breed-they-are-siblings)
+- [Pictures of my dog when my daughter comes home for a visit.](https://news.puppy-snuggles.com/36926999/pictures-of-my-dog-when-my-daughter-comes-home-for-a-visit)
+- [Smiles in her new forever home](https://news.puppy-snuggles.com/23760174/smiles-in-her-new-forever-home)
+- [I&amp;#039;m going to sleep on the road one second later](https://news.puppy-snuggles.com/18601937/im-going-to-sleep-on-the-road-one-second-later)
+- [Buster&amp;#039;s a BONE-a fide Good Boy &lpar;Petsmart Beginner Class Graduation Photos&rpar;](https://news.puppy-snuggles.com/14879187/busters-a-bone-a-fide-good-boy-petsmart-beginner-class-graduation-photos)
+- [I wish someone looked at me the way my dog does](https://news.puppy-snuggles.com/14779113/i-wish-someone-looked-at-me-the-way-my-dog-does)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
