@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pictures of my dog when my daughter comes home for a visit.](https://news.puppy-snuggles.com/36926999/pictures-of-my-dog-when-my-daughter-comes-home-for-a-visit)
-- [Smiles in her new forever home](https://news.puppy-snuggles.com/23760174/smiles-in-her-new-forever-home)
-- [I&amp;#039;m going to sleep on the road one second later](https://news.puppy-snuggles.com/18601937/im-going-to-sleep-on-the-road-one-second-later)
-- [Buster&amp;#039;s a BONE-a fide Good Boy &lpar;Petsmart Beginner Class Graduation Photos&rpar;](https://news.puppy-snuggles.com/14879187/busters-a-bone-a-fide-good-boy-petsmart-beginner-class-graduation-photos)
-- [I wish someone looked at me the way my dog does](https://news.puppy-snuggles.com/14779113/i-wish-someone-looked-at-me-the-way-my-dog-does)
+- [My dogs share one brain cell and it’s currently being used by the brown one to look out of the window](https://news.puppy-snuggles.com/43199369/my-dogs-share-one-brain-cell-and-its-currently-being-used-by-the-brown-one-to-look-out-of-the-window)
+- [Pregnant dog found on side of road in Detroit with dead puppy hanging out of her](https://news.puppy-snuggles.com/43176727/pregnant-dog-found-on-side-of-road-in-detroit-with-dead-puppy-hanging-out-of-her)
+- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
+- [Just a boy and his ball ☺️💙](https://news.puppy-snuggles.com/43163197/just-a-boy-and-his-ball)
+- [The most spoiled hound dogs you’ll meet](https://news.puppy-snuggles.com/40034870/the-most-spoiled-hound-dogs-youll-meet)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
