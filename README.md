@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dogs share one brain cell and it’s currently being used by the brown one to look out of the window](https://news.puppy-snuggles.com/43199369/my-dogs-share-one-brain-cell-and-its-currently-being-used-by-the-brown-one-to-look-out-of-the-window)
-- [Pregnant dog found on side of road in Detroit with dead puppy hanging out of her](https://news.puppy-snuggles.com/43176727/pregnant-dog-found-on-side-of-road-in-detroit-with-dead-puppy-hanging-out-of-her)
-- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
-- [Just a boy and his ball ☺️💙](https://news.puppy-snuggles.com/43163197/just-a-boy-and-his-ball)
-- [The most spoiled hound dogs you’ll meet](https://news.puppy-snuggles.com/40034870/the-most-spoiled-hound-dogs-youll-meet)
+- [I can&amp;#039;t refuse him](https://news.puppy-snuggles.com/41812662/i-cant-refuse-him)
+- [Does anyone know why one of my Shiba Inu&amp;#039;s puppies looks different from the other two? &lpar;Smaller, rounder head and eyes&rpar; he also acts a lot different, he&amp;#039;s more timid and easily distracted. He&amp;#039;s in the last picture](https://news.puppy-snuggles.com/40432596/does-anyone-know-why-one-of-my-shiba-inus-puppies-looks-different-from-the-other-two-smaller-rounder-head-and-eyes-he-also-acts-a-lot-different-hes-more-timid-and-easily-distracted-hes-in-the-last-picture)
+- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
+- [This is maya, our dog that we just got in November. We went for a nice long walk by the beach today and now she’s so pooped out and we are chilling on the sofa.](https://news.puppy-snuggles.com/24261026/this-is-maya-our-dog-that-we-just-got-in-november-we-went-for-a-nice-long-walk-by-the-beach-today-and-now-shes-so-pooped-out-and-we-are-chilling-on-the-sofa)
+- [I can&amp;#039;t resist painting such happy pups!](https://news.puppy-snuggles.com/19624134/i-cant-resist-painting-such-happy-pups)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
