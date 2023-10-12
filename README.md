@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can&amp;#039;t refuse him](https://news.puppy-snuggles.com/41812662/i-cant-refuse-him)
-- [Does anyone know why one of my Shiba Inu&amp;#039;s puppies looks different from the other two? &lpar;Smaller, rounder head and eyes&rpar; he also acts a lot different, he&amp;#039;s more timid and easily distracted. He&amp;#039;s in the last picture](https://news.puppy-snuggles.com/40432596/does-anyone-know-why-one-of-my-shiba-inus-puppies-looks-different-from-the-other-two-smaller-rounder-head-and-eyes-he-also-acts-a-lot-different-hes-more-timid-and-easily-distracted-hes-in-the-last-picture)
-- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
-- [This is maya, our dog that we just got in November. We went for a nice long walk by the beach today and now she’s so pooped out and we are chilling on the sofa.](https://news.puppy-snuggles.com/24261026/this-is-maya-our-dog-that-we-just-got-in-november-we-went-for-a-nice-long-walk-by-the-beach-today-and-now-shes-so-pooped-out-and-we-are-chilling-on-the-sofa)
-- [I can&amp;#039;t resist painting such happy pups!](https://news.puppy-snuggles.com/19624134/i-cant-resist-painting-such-happy-pups)
+- [This is Tato, the newest addition to our family 🐶](https://news.puppy-snuggles.com/22940093/this-is-tato-the-newest-addition-to-our-family)
+- [Thief.](https://news.puppy-snuggles.com/22716969/thief)
+- [Loved this.](https://news.puppy-snuggles.com/22555977/loved-this)
+- [I&amp;#039;ve done it again. met this guy at 6am in the streets, brought him home. meet Bowser.](https://news.puppy-snuggles.com/22522774/ive-done-it-again-met-this-guy-at-6am-in-the-streets-brought-him-home-meet-bowser)
+- [I love you mama](https://news.puppy-snuggles.com/22202068/i-love-you-mama)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
