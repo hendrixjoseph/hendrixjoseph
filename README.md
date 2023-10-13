@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Sleeper credit cards? Tell me your secrets.](https://www.reddit.com/r/CreditCards/comments/175rfdg/sleeper_credit_cards_tell_me_your_secrets/k4k527l/)
 - [/u/joehx on is using the debugging tool considered cheating?](https://www.reddit.com/r/java/comments/16msa6c/is_using_the_debugging_tool_considered_cheating/k19zgr1/)
 - [/u/joehx on LPT request: I&#39;m traveling on an intercontinental flight for the first time &lpar;USA to Australia&rpar;. What &quot;rookie mistakes&quot; do I need to avoid?](https://www.reddit.com/r/LifeProTips/comments/16ctynk/lpt_request_im_traveling_on_an_intercontinental/jzo3wug/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of August 28, 2023](https://www.reddit.com/r/personalfinance/comments/163izbz/weekday_help_and_victory_thread_for_the_week_of/jydggt3/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, August 29, 2023](https://www.reddit.com/r/financialindependence/comments/164d5y3/daily_fi_discussion_thread_tuesday_august_29_2023/jy98dsp/)
-- [/u/joehx on Daily FI discussion thread - Tuesday, August 29, 2023](https://www.reddit.com/r/financialindependence/comments/164d5y3/daily_fi_discussion_thread_tuesday_august_29_2023/jy8721x/)
 <!-- REDDIT:END -->
