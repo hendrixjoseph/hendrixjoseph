@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Tato, the newest addition to our family 🐶](https://news.puppy-snuggles.com/22940093/this-is-tato-the-newest-addition-to-our-family)
-- [Thief.](https://news.puppy-snuggles.com/22716969/thief)
-- [Loved this.](https://news.puppy-snuggles.com/22555977/loved-this)
-- [I&amp;#039;ve done it again. met this guy at 6am in the streets, brought him home. meet Bowser.](https://news.puppy-snuggles.com/22522774/ive-done-it-again-met-this-guy-at-6am-in-the-streets-brought-him-home-meet-bowser)
-- [I love you mama](https://news.puppy-snuggles.com/22202068/i-love-you-mama)
+- [Does this count?](https://news.puppy-snuggles.com/41562470/does-this-count)
+- [Why does my dog have the Batman sign on his chest?](https://news.puppy-snuggles.com/40489283/why-does-my-dog-have-the-batman-sign-on-his-chest)
+- [Circumstantial evidence at best](https://news.puppy-snuggles.com/29542391/circumstantial-evidence-at-best)
+- [Smiling and playing in the leaves](https://news.puppy-snuggles.com/27261579/smiling-and-playing-in-the-leaves)
+- [Bought him a *very* expensive and warm tepee for winter.. buut..](https://news.puppy-snuggles.com/23605475/bought-him-a-very-expensive-and-warm-tepee-for-winter-buut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
