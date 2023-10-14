@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does this count?](https://news.puppy-snuggles.com/41562470/does-this-count)
-- [Why does my dog have the Batman sign on his chest?](https://news.puppy-snuggles.com/40489283/why-does-my-dog-have-the-batman-sign-on-his-chest)
-- [Circumstantial evidence at best](https://news.puppy-snuggles.com/29542391/circumstantial-evidence-at-best)
-- [Smiling and playing in the leaves](https://news.puppy-snuggles.com/27261579/smiling-and-playing-in-the-leaves)
-- [Bought him a *very* expensive and warm tepee for winter.. buut..](https://news.puppy-snuggles.com/23605475/bought-him-a-very-expensive-and-warm-tepee-for-winter-buut)
+- [2nd day this &amp;amp;quot;foster&amp;amp;quot; was with me. He knew he was staying then, even if I didn&amp;#039;t.](https://news.puppy-snuggles.com/43490620/2nd-day-this-quotfosterquot-was-with-me-he-knew-he-was-staying-then-even-if-i-didnt)
+- [Meet the wise old labraseal called Lily ❤️](https://news.puppy-snuggles.com/43471687/meet-the-wise-old-labraseal-called-lily)
+- [I ate all the Chips Ahoys!](https://news.puppy-snuggles.com/43490621/i-ate-all-the-chips-ahoys)
+- [Lost a piece of me 3 days ago](https://news.puppy-snuggles.com/43471690/lost-a-piece-of-me-3-days-ago)
+- [He’s such a goober](https://news.puppy-snuggles.com/43395794/hes-such-a-goober)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
