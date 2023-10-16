@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [2nd day this &amp;amp;quot;foster&amp;amp;quot; was with me. He knew he was staying then, even if I didn&amp;#039;t.](https://news.puppy-snuggles.com/43490620/2nd-day-this-quotfosterquot-was-with-me-he-knew-he-was-staying-then-even-if-i-didnt)
-- [Meet the wise old labraseal called Lily ❤️](https://news.puppy-snuggles.com/43471687/meet-the-wise-old-labraseal-called-lily)
-- [I ate all the Chips Ahoys!](https://news.puppy-snuggles.com/43490621/i-ate-all-the-chips-ahoys)
-- [Lost a piece of me 3 days ago](https://news.puppy-snuggles.com/43471690/lost-a-piece-of-me-3-days-ago)
-- [He’s such a goober](https://news.puppy-snuggles.com/43395794/hes-such-a-goober)
+- [My girl, Mika, passed away last night.](https://news.puppy-snuggles.com/43599234/my-girl-mika-passed-away-last-night)
+- [All you need is love and a dog.🐶](https://news.puppy-snuggles.com/43546472/all-you-need-is-love-and-a-dog)
+- [he stole my chair](https://news.puppy-snuggles.com/22844341/he-stole-my-chair)
+- [Wake Up!](https://news.puppy-snuggles.com/18886578/wake-up)
+- [This lovely old golden that walked up to me while I was on holiday](https://news.puppy-snuggles.com/18574098/this-lovely-old-golden-that-walked-up-to-me-while-i-was-on-holiday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
