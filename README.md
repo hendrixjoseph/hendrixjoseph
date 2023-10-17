@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [My girl, Mika, passed away last night.](https://news.puppy-snuggles.com/43599234/my-girl-mika-passed-away-last-night)
-- [All you need is love and a dog.🐶](https://news.puppy-snuggles.com/43546472/all-you-need-is-love-and-a-dog)
-- [he stole my chair](https://news.puppy-snuggles.com/22844341/he-stole-my-chair)
-- [Wake Up!](https://news.puppy-snuggles.com/18886578/wake-up)
-- [This lovely old golden that walked up to me while I was on holiday](https://news.puppy-snuggles.com/18574098/this-lovely-old-golden-that-walked-up-to-me-while-i-was-on-holiday)
+- [2nd day this &amp;amp;quot;foster&amp;amp;quot; was with me. He knew he was staying then, even if I didn&amp;#039;t.](https://news.puppy-snuggles.com/43490620/2nd-day-this-quotfosterquot-was-with-me-he-knew-he-was-staying-then-even-if-i-didnt)
+- [First hike with the new dog](https://news.puppy-snuggles.com/43381074/first-hike-with-the-new-dog)
+- [RIP Chugi - The sweetest Akita ever. I will miss her and love her forever. #RIPChugi #akaSugarbear #akaSugarbean #akaSweetypants](https://news.puppy-snuggles.com/36702270/rip-chugi-the-sweetest-akita-ever-i-will-miss-her-and-love-her-forever-ripchugi-akasugarbear-akasugarbean-akasweetypants)
+- [Two years ago today, I brought home the tiny little 15-pound bundle of cuteness on the left. Somewhere along the way, someone switched him out with 75-pound monstrosity on the right. Not sure when or how that happened.](https://news.puppy-snuggles.com/22066875/two-years-ago-today-i-brought-home-the-tiny-little-15-pound-bundle-of-cuteness-on-the-left-somewhere-along-the-way-someone-switched-him-out-with-75-pound-monstrosity-on-the-right-not-sure-when-or-how-that-happened)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
