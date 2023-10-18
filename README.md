@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My girl, Mika, passed away last night.](https://news.puppy-snuggles.com/43599234/my-girl-mika-passed-away-last-night)
-- [2nd day this &amp;amp;quot;foster&amp;amp;quot; was with me. He knew he was staying then, even if I didn&amp;#039;t.](https://news.puppy-snuggles.com/43490620/2nd-day-this-quotfosterquot-was-with-me-he-knew-he-was-staying-then-even-if-i-didnt)
-- [First hike with the new dog](https://news.puppy-snuggles.com/43381074/first-hike-with-the-new-dog)
-- [RIP Chugi - The sweetest Akita ever. I will miss her and love her forever. #RIPChugi #akaSugarbear #akaSugarbean #akaSweetypants](https://news.puppy-snuggles.com/36702270/rip-chugi-the-sweetest-akita-ever-i-will-miss-her-and-love-her-forever-ripchugi-akasugarbear-akasugarbean-akasweetypants)
-- [Two years ago today, I brought home the tiny little 15-pound bundle of cuteness on the left. Somewhere along the way, someone switched him out with 75-pound monstrosity on the right. Not sure when or how that happened.](https://news.puppy-snuggles.com/22066875/two-years-ago-today-i-brought-home-the-tiny-little-15-pound-bundle-of-cuteness-on-the-left-somewhere-along-the-way-someone-switched-him-out-with-75-pound-monstrosity-on-the-right-not-sure-when-or-how-that-happened)
+- [Happy Sunday Morning💕](https://news.puppy-snuggles.com/32729681/happy-sunday-morning)
+- [Lupe Deer](https://news.puppy-snuggles.com/24313850/lupe-deer)
+- [My Bluetick Coonhound](https://news.puppy-snuggles.com/16131556/my-bluetick-coonhound)
+- [Russ and Carrot bedtime cuddles](https://news.puppy-snuggles.com/15767206/russ-and-carrot-bedtime-cuddles)
+- [You are mine now](https://news.puppy-snuggles.com/15698701/you-are-mine-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
