@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Those pushing for a four day work week, what incentive is there for an employer to pay an employee the same for 20% less work?](https://www.reddit.com/r/AskReddit/comments/179zvuf/those_pushing_for_a_four_day_work_week_what/k59kwnh/)
 - [/u/joehx on What do you struggle with the most in TS?](https://www.reddit.com/r/typescript/comments/178wcby/what_do_you_struggle_with_the_most_in_ts/k54n0z6/)
 - [/u/joehx on What do you struggle with the most in TS?](https://www.reddit.com/r/typescript/comments/178wcby/what_do_you_struggle_with_the_most_in_ts/k53wgpb/)
 - [/u/joehx on Sleeper credit cards? Tell me your secrets.](https://www.reddit.com/r/CreditCards/comments/175rfdg/sleeper_credit_cards_tell_me_your_secrets/k4k527l/)
 - [/u/joehx on is using the debugging tool considered cheating?](https://www.reddit.com/r/java/comments/16msa6c/is_using_the_debugging_tool_considered_cheating/k19zgr1/)
-- [/u/joehx on LPT request: I&#39;m traveling on an intercontinental flight for the first time &lpar;USA to Australia&rpar;. What &quot;rookie mistakes&quot; do I need to avoid?](https://www.reddit.com/r/LifeProTips/comments/16ctynk/lpt_request_im_traveling_on_an_intercontinental/jzo3wug/)
 <!-- REDDIT:END -->
