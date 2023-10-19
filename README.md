@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Sunday Morning💕](https://news.puppy-snuggles.com/32729681/happy-sunday-morning)
-- [Lupe Deer](https://news.puppy-snuggles.com/24313850/lupe-deer)
-- [My Bluetick Coonhound](https://news.puppy-snuggles.com/16131556/my-bluetick-coonhound)
-- [Russ and Carrot bedtime cuddles](https://news.puppy-snuggles.com/15767206/russ-and-carrot-bedtime-cuddles)
-- [You are mine now](https://news.puppy-snuggles.com/15698701/you-are-mine-now)
+- [This baby needs a chocolatey name](https://news.puppy-snuggles.com/43811005/this-baby-needs-a-chocolatey-name)
+- [I just adopted my new baby boy Bruno! 🐶❤️](https://news.puppy-snuggles.com/43752747/i-just-adopted-my-new-baby-boy-bruno)
+- [Update on my little mystery breed butthead. He’s growing fast.](https://news.puppy-snuggles.com/43752752/update-on-my-little-mystery-breed-butthead-hes-growing-fast)
+- [My girl, Mika, passed away last night.](https://news.puppy-snuggles.com/43599234/my-girl-mika-passed-away-last-night)
+- [the joy of meeting their new siblings..](https://news.puppy-snuggles.com/42883388/the-joy-of-meeting-their-new-siblings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
