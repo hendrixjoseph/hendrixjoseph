@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What CEO do you think is most likely to be Batman based on their human compassion?](https://www.reddit.com/r/AskReddit/comments/17aquqq/what_ceo_do_you_think_is_most_likely_to_be_batman/k5ejp8f/)
 - [/u/joehx on Those pushing for a four day work week, what incentive is there for an employer to pay an employee the same for 20% less work?](https://www.reddit.com/r/AskReddit/comments/179zvuf/those_pushing_for_a_four_day_work_week_what/k59kwnh/)
 - [/u/joehx on What do you struggle with the most in TS?](https://www.reddit.com/r/typescript/comments/178wcby/what_do_you_struggle_with_the_most_in_ts/k54n0z6/)
 - [/u/joehx on What do you struggle with the most in TS?](https://www.reddit.com/r/typescript/comments/178wcby/what_do_you_struggle_with_the_most_in_ts/k53wgpb/)
 - [/u/joehx on Sleeper credit cards? Tell me your secrets.](https://www.reddit.com/r/CreditCards/comments/175rfdg/sleeper_credit_cards_tell_me_your_secrets/k4k527l/)
-- [/u/joehx on is using the debugging tool considered cheating?](https://www.reddit.com/r/java/comments/16msa6c/is_using_the_debugging_tool_considered_cheating/k19zgr1/)
 <!-- REDDIT:END -->
