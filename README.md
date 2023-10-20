@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This baby needs a chocolatey name](https://news.puppy-snuggles.com/43811005/this-baby-needs-a-chocolatey-name)
 - [I just adopted my new baby boy Bruno! 🐶❤️](https://news.puppy-snuggles.com/43752747/i-just-adopted-my-new-baby-boy-bruno)
-- [Update on my little mystery breed butthead. He’s growing fast.](https://news.puppy-snuggles.com/43752752/update-on-my-little-mystery-breed-butthead-hes-growing-fast)
-- [My girl, Mika, passed away last night.](https://news.puppy-snuggles.com/43599234/my-girl-mika-passed-away-last-night)
-- [the joy of meeting their new siblings..](https://news.puppy-snuggles.com/42883388/the-joy-of-meeting-their-new-siblings)
+- [Good boys rescuing a good boy, Manchester UK.](https://news.puppy-snuggles.com/26994813/good-boys-rescuing-a-good-boy-manchester-uk)
+- [Squishy dog](https://news.puppy-snuggles.com/24642664/squishy-dog)
+- [Happy holidays and a happy new year to everyone!](https://news.puppy-snuggles.com/24193178/happy-holidays-and-a-happy-new-year-to-everyone)
+- [My girl, Nova. She’s a gorgeous rescue that’s been with me for a month now. Husky mix with I don’t know what, any ideas?](https://news.puppy-snuggles.com/21715614/my-girl-nova-shes-a-gorgeous-rescue-thats-been-with-me-for-a-month-now-husky-mix-with-i-dont-know-what-any-ideas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
