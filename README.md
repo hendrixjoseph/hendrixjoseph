@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I just adopted my new baby boy Bruno! 🐶❤️](https://news.puppy-snuggles.com/43752747/i-just-adopted-my-new-baby-boy-bruno)
-- [Good boys rescuing a good boy, Manchester UK.](https://news.puppy-snuggles.com/26994813/good-boys-rescuing-a-good-boy-manchester-uk)
-- [Squishy dog](https://news.puppy-snuggles.com/24642664/squishy-dog)
-- [Happy holidays and a happy new year to everyone!](https://news.puppy-snuggles.com/24193178/happy-holidays-and-a-happy-new-year-to-everyone)
-- [My girl, Nova. She’s a gorgeous rescue that’s been with me for a month now. Husky mix with I don’t know what, any ideas?](https://news.puppy-snuggles.com/21715614/my-girl-nova-shes-a-gorgeous-rescue-thats-been-with-me-for-a-month-now-husky-mix-with-i-dont-know-what-any-ideas)
+- [Enjoying the cold weather?](https://news.puppy-snuggles.com/23122455/enjoying-the-cold-weather)
+- [cheers to my best friend](https://news.puppy-snuggles.com/23059900/cheers-to-my-best-friend)
+- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
+- [Cute date kinda nervous](https://news.puppy-snuggles.com/20269816/cute-date-kinda-nervous)
+- [This is just adorable](https://news.puppy-snuggles.com/20192793/this-is-just-adorable)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
