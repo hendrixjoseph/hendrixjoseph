@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Enjoying the cold weather?](https://news.puppy-snuggles.com/23122455/enjoying-the-cold-weather)
-- [cheers to my best friend](https://news.puppy-snuggles.com/23059900/cheers-to-my-best-friend)
-- [My dog had emergency surgery to remove his spleen the day I flew across the country for Thanksgiving. We are doing a biopsy on his spleen to see if it is cancer, and I find out tomorrow. Please send him prayers and love ❤️](https://news.puppy-snuggles.com/23024102/my-dog-had-emergency-surgery-to-remove-his-spleen-the-day-i-flew-across-the-country-for-thanksgiving-we-are-doing-a-biopsy-on-his-spleen-to-see-if-it-is-cancer-and-i-find-out-tomorrow-please-send-him-prayers-and-love)
-- [Cute date kinda nervous](https://news.puppy-snuggles.com/20269816/cute-date-kinda-nervous)
-- [This is just adorable](https://news.puppy-snuggles.com/20192793/this-is-just-adorable)
+- [He was not a good dog, he was the best dog!](https://news.puppy-snuggles.com/44026904/he-was-not-a-good-dog-he-was-the-best-dog)
+- [My Corn Dog](https://news.puppy-snuggles.com/43970038/my-corn-dog)
+- [Smiling loaf](https://news.puppy-snuggles.com/41359043/smiling-loaf)
+- [All smiles on a nice sunny day! :&rpar;](https://news.puppy-snuggles.com/24606236/all-smiles-on-a-nice-sunny-day)
+- [Birthday pup!](https://news.puppy-snuggles.com/22510567/birthday-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
