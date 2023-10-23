@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He was not a good dog, he was the best dog!](https://news.puppy-snuggles.com/44026904/he-was-not-a-good-dog-he-was-the-best-dog)
-- [My Corn Dog](https://news.puppy-snuggles.com/43970038/my-corn-dog)
-- [Smiling loaf](https://news.puppy-snuggles.com/41359043/smiling-loaf)
-- [All smiles on a nice sunny day! :&rpar;](https://news.puppy-snuggles.com/24606236/all-smiles-on-a-nice-sunny-day)
-- [Birthday pup!](https://news.puppy-snuggles.com/22510567/birthday-pup)
+- [I had to say goodbye my best friend of 17 years today. I took him in from an abusive family when he was a pup &amp;amp;amp; gave him all the love, treats, &amp;amp;amp; pets he could ever ask for. He was the best boy!](https://news.puppy-snuggles.com/26037499/i-had-to-say-goodbye-my-best-friend-of-17-years-today-i-took-him-in-from-an-abusive-family-when-he-was-a-pup-amp-gave-him-all-the-love-treats-amp-pets-he-could-ever-ask-for-he-was-the-best-boy)
+- [I can call this as blessings](https://news.puppy-snuggles.com/23059896/i-can-call-this-as-blessings)
+- [Yoga thinking about food](https://news.puppy-snuggles.com/22807164/yoga-thinking-about-food)
+- [My Jack Russel Sullie ❤️ got to show her the big backyard of our very first home today and she’s so happy 🙌🏻](https://news.puppy-snuggles.com/22482789/my-jack-russel-sullie-got-to-show-her-the-big-backyard-of-our-very-first-home-today-and-shes-so-happy)
+- [isn&amp;#039;t it the cutest thing you&amp;#039;ve ever seen](https://news.puppy-snuggles.com/20006270/isnt-it-the-cutest-thing-youve-ever-seen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
