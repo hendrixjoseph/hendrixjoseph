@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I had to say goodbye my best friend of 17 years today. I took him in from an abusive family when he was a pup &amp;amp;amp; gave him all the love, treats, &amp;amp;amp; pets he could ever ask for. He was the best boy!](https://news.puppy-snuggles.com/26037499/i-had-to-say-goodbye-my-best-friend-of-17-years-today-i-took-him-in-from-an-abusive-family-when-he-was-a-pup-amp-gave-him-all-the-love-treats-amp-pets-he-could-ever-ask-for-he-was-the-best-boy)
-- [I can call this as blessings](https://news.puppy-snuggles.com/23059896/i-can-call-this-as-blessings)
-- [Yoga thinking about food](https://news.puppy-snuggles.com/22807164/yoga-thinking-about-food)
-- [My Jack Russel Sullie ❤️ got to show her the big backyard of our very first home today and she’s so happy 🙌🏻](https://news.puppy-snuggles.com/22482789/my-jack-russel-sullie-got-to-show-her-the-big-backyard-of-our-very-first-home-today-and-shes-so-happy)
-- [isn&amp;#039;t it the cutest thing you&amp;#039;ve ever seen](https://news.puppy-snuggles.com/20006270/isnt-it-the-cutest-thing-youve-ever-seen)
+- [Dog Thinking &amp;amp;quot;You Call This A Storm?!&amp;amp;quot;](https://news.puppy-snuggles.com/38432193/dog-thinking-quotyou-call-this-a-stormquot)
+- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
+- [What breed these dogs..im new to dogs](https://news.puppy-snuggles.com/22533850/what-breed-these-dogsim-new-to-dogs)
+- [the goodest boy](https://news.puppy-snuggles.com/19751013/the-goodest-boy)
+- [Obie had a photoshoot and oh my goodness 😍](https://news.puppy-snuggles.com/19695967/obie-had-a-photoshoot-and-oh-my-goodness)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
