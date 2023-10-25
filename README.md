@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog Thinking &amp;amp;quot;You Call This A Storm?!&amp;amp;quot;](https://news.puppy-snuggles.com/38432193/dog-thinking-quotyou-call-this-a-stormquot)
-- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
-- [What breed these dogs..im new to dogs](https://news.puppy-snuggles.com/22533850/what-breed-these-dogsim-new-to-dogs)
-- [the goodest boy](https://news.puppy-snuggles.com/19751013/the-goodest-boy)
-- [Obie had a photoshoot and oh my goodness 😍](https://news.puppy-snuggles.com/19695967/obie-had-a-photoshoot-and-oh-my-goodness)
+- [Big smile from Zeke!](https://news.puppy-snuggles.com/44200285/big-smile-from-zeke)
+- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
+- [Gus](https://news.puppy-snuggles.com/19508151/gus)
+- [This little 3 lbs. dude is a descendant of a wolf?](https://news.puppy-snuggles.com/19393881/this-little-3-lbs-dude-is-a-descendant-of-a-wolf)
+- [My girls :&rpar;](https://news.puppy-snuggles.com/18410580/my-girls)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
