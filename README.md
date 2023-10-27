@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big smile from Zeke!](https://news.puppy-snuggles.com/44200285/big-smile-from-zeke)
-- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
-- [Gus](https://news.puppy-snuggles.com/19508151/gus)
-- [This little 3 lbs. dude is a descendant of a wolf?](https://news.puppy-snuggles.com/19393881/this-little-3-lbs-dude-is-a-descendant-of-a-wolf)
-- [My girls :&rpar;](https://news.puppy-snuggles.com/18410580/my-girls)
+- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
+- [Little photo shoot with our new pup, Kaia](https://news.puppy-snuggles.com/22774025/little-photo-shoot-with-our-new-pup-kaia)
+- [Tomorrow we say goodbye to Subutai, our 15 year old baby boy 💜](https://news.puppy-snuggles.com/22615431/tomorrow-we-say-goodbye-to-subutai-our-15-year-old-baby-boy)
+- [plush potato is sending you love and positivity 🐺🐾](https://news.puppy-snuggles.com/22510565/plush-potato-is-sending-you-love-and-positivity)
+- [This is Charlie. Today he went for a walk for the first time. He also fell asleep for the first time on a walk. Good boy](https://news.puppy-snuggles.com/22220152/this-is-charlie-today-he-went-for-a-walk-for-the-first-time-he-also-fell-asleep-for-the-first-time-on-a-walk-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
