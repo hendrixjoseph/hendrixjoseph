@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Waiting for some love from my mommy](https://news.puppy-snuggles.com/22960377/waiting-for-some-love-from-my-mommy)
-- [Little photo shoot with our new pup, Kaia](https://news.puppy-snuggles.com/22774025/little-photo-shoot-with-our-new-pup-kaia)
-- [Tomorrow we say goodbye to Subutai, our 15 year old baby boy 💜](https://news.puppy-snuggles.com/22615431/tomorrow-we-say-goodbye-to-subutai-our-15-year-old-baby-boy)
-- [plush potato is sending you love and positivity 🐺🐾](https://news.puppy-snuggles.com/22510565/plush-potato-is-sending-you-love-and-positivity)
-- [This is Charlie. Today he went for a walk for the first time. He also fell asleep for the first time on a walk. Good boy](https://news.puppy-snuggles.com/22220152/this-is-charlie-today-he-went-for-a-walk-for-the-first-time-he-also-fell-asleep-for-the-first-time-on-a-walk-good-boy)
+- [2 year of GSD x Husky](https://news.puppy-snuggles.com/43345991/2-year-of-gsd-x-husky)
+- [he is afraid of watching football on tv and he also watching it](https://news.puppy-snuggles.com/43345992/he-is-afraid-of-watching-football-on-tv-and-he-also-watching-it)
+- [Teefs](https://news.puppy-snuggles.com/29158363/teefs)
+- [My own version of the Loch Ness monster](https://news.puppy-snuggles.com/24138759/my-own-version-of-the-loch-ness-monster)
+- [It’s just that kind of a day…](https://news.puppy-snuggles.com/23437864/its-just-that-kind-of-a-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
