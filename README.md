@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [2 year of GSD x Husky](https://news.puppy-snuggles.com/43345991/2-year-of-gsd-x-husky)
-- [he is afraid of watching football on tv and he also watching it](https://news.puppy-snuggles.com/43345992/he-is-afraid-of-watching-football-on-tv-and-he-also-watching-it)
-- [Teefs](https://news.puppy-snuggles.com/29158363/teefs)
-- [My own version of the Loch Ness monster](https://news.puppy-snuggles.com/24138759/my-own-version-of-the-loch-ness-monster)
-- [It’s just that kind of a day…](https://news.puppy-snuggles.com/23437864/its-just-that-kind-of-a-day)
+- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
+- [Smiles!!!](https://news.puppy-snuggles.com/44398910/smiles)
+- [I present to you Pretty Girl, ruler of all of the stuffies.](https://news.puppy-snuggles.com/44398914/i-present-to-you-pretty-girl-ruler-of-all-of-the-stuffies)
+- [My moms new dog, its been crying a lot, we havnt came up with a name yet, if anyone has some suggestions](https://news.puppy-snuggles.com/42669353/my-moms-new-dog-its-been-crying-a-lot-we-havnt-came-up-with-a-name-yet-if-anyone-has-some-suggestions)
+- [Katie Price plays with new puppy Tank after death of dog Blade despite petition against her owning pets](https://news.puppy-snuggles.com/39339243/katie-price-plays-with-new-puppy-tank-after-death-of-dog-blade-despite-petition-against-her-owning-pets)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
