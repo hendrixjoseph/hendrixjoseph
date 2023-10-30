@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
-- [Smiles!!!](https://news.puppy-snuggles.com/44398910/smiles)
-- [I present to you Pretty Girl, ruler of all of the stuffies.](https://news.puppy-snuggles.com/44398914/i-present-to-you-pretty-girl-ruler-of-all-of-the-stuffies)
-- [My moms new dog, its been crying a lot, we havnt came up with a name yet, if anyone has some suggestions](https://news.puppy-snuggles.com/42669353/my-moms-new-dog-its-been-crying-a-lot-we-havnt-came-up-with-a-name-yet-if-anyone-has-some-suggestions)
-- [Katie Price plays with new puppy Tank after death of dog Blade despite petition against her owning pets](https://news.puppy-snuggles.com/39339243/katie-price-plays-with-new-puppy-tank-after-death-of-dog-blade-despite-petition-against-her-owning-pets)
+- [My puppy Bee looking extra cute and cuddly this morning 🥰❤️](https://news.puppy-snuggles.com/20116385/my-puppy-bee-looking-extra-cute-and-cuddly-this-morning)
+- [I don’t know what I’d do without them](https://news.puppy-snuggles.com/19488904/i-dont-know-what-id-do-without-them)
+- [What breeds does this good boy look like to you? We have no idea [OC]](https://news.puppy-snuggles.com/19306424/what-breeds-does-this-good-boy-look-like-to-you-we-have-no-idea-oc)
+- [Freyja, our 12 week old Rottsky.](https://news.puppy-snuggles.com/19279437/freyja-our-12-week-old-rottsky)
+- [my new puppy! he&amp;#039;s from a refuge and I&amp;#039;d be interested to know what you guys think he&amp;#039;s a mix of!](https://news.puppy-snuggles.com/18822261/my-new-puppy-hes-from-a-refuge-and-id-be-interested-to-know-what-you-guys-think-hes-a-mix-of)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
