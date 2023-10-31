@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy Bee looking extra cute and cuddly this morning 🥰❤️](https://news.puppy-snuggles.com/20116385/my-puppy-bee-looking-extra-cute-and-cuddly-this-morning)
-- [I don’t know what I’d do without them](https://news.puppy-snuggles.com/19488904/i-dont-know-what-id-do-without-them)
-- [What breeds does this good boy look like to you? We have no idea [OC]](https://news.puppy-snuggles.com/19306424/what-breeds-does-this-good-boy-look-like-to-you-we-have-no-idea-oc)
-- [Freyja, our 12 week old Rottsky.](https://news.puppy-snuggles.com/19279437/freyja-our-12-week-old-rottsky)
-- [my new puppy! he&amp;#039;s from a refuge and I&amp;#039;d be interested to know what you guys think he&amp;#039;s a mix of!](https://news.puppy-snuggles.com/18822261/my-new-puppy-hes-from-a-refuge-and-id-be-interested-to-know-what-you-guys-think-hes-a-mix-of)
+- [My dog when we both were younger and more energetic! I somehow got a good picture while we were outside playing](https://news.puppy-snuggles.com/23554615/my-dog-when-we-both-were-younger-and-more-energetic-i-somehow-got-a-good-picture-while-we-were-outside-playing)
+- [Meet Miss Delilah!](https://news.puppy-snuggles.com/23223412/meet-miss-delilah)
+- [Upadate:Our little girl is fine](https://news.puppy-snuggles.com/23205505/upadateour-little-girl-is-fine)
+- [Penny&amp;#039;s first bath. She hated it.](https://news.puppy-snuggles.com/22202071/pennys-first-bath-she-hated-it)
+- [At the beach](https://news.puppy-snuggles.com/21946722/at-the-beach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
