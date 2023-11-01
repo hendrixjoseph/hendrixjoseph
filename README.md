@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog when we both were younger and more energetic! I somehow got a good picture while we were outside playing](https://news.puppy-snuggles.com/23554615/my-dog-when-we-both-were-younger-and-more-energetic-i-somehow-got-a-good-picture-while-we-were-outside-playing)
-- [Meet Miss Delilah!](https://news.puppy-snuggles.com/23223412/meet-miss-delilah)
-- [Upadate:Our little girl is fine](https://news.puppy-snuggles.com/23205505/upadateour-little-girl-is-fine)
-- [Penny&amp;#039;s first bath. She hated it.](https://news.puppy-snuggles.com/22202071/pennys-first-bath-she-hated-it)
-- [At the beach](https://news.puppy-snuggles.com/21946722/at-the-beach)
+- [When you make it past Monday](https://news.puppy-snuggles.com/42793042/when-you-make-it-past-monday)
+- [who makes my life happy](https://news.puppy-snuggles.com/39643089/who-makes-my-life-happy)
+- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
+- [Karl in all his glory](https://news.puppy-snuggles.com/23004282/karl-in-all-his-glory)
+- [Meet Paningning, The Puppy With Unusual Sleeping Habit That Is Cute Beyond Words](https://news.puppy-snuggles.com/22522778/meet-paningning-the-puppy-with-unusual-sleeping-habit-that-is-cute-beyond-words)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
