@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
-- [Time to make frozen treats. They are great for crate time](https://news.puppy-snuggles.com/23299613/time-to-make-frozen-treats-they-are-great-for-crate-time)
-- [He had a sleepover with his friend last night](https://news.puppy-snuggles.com/23242005/he-had-a-sleepover-with-his-friend-last-night)
-- [cheers to my best friend](https://news.puppy-snuggles.com/23059900/cheers-to-my-best-friend)
-- [New dog park is bringing her a lot of joy](https://news.puppy-snuggles.com/23024103/new-dog-park-is-bringing-her-a-lot-of-joy)
+- [What does this old man leaning on his fence have to tell me?](https://news.puppy-snuggles.com/44200292/what-does-this-old-man-leaning-on-his-fence-have-to-tell-me)
+- [Rate my dog from 1 to 10 pls](https://news.puppy-snuggles.com/30249583/rate-my-dog-from-1-to-10-pls)
+- [Drumroll for Beans! &lpar;OC&rpar;](https://news.puppy-snuggles.com/22220149/drumroll-for-beans-oc)
+- [oh those eyes](https://news.puppy-snuggles.com/21792189/oh-those-eyes)
+- [Hi my name Sila!!!!!](https://news.puppy-snuggles.com/19631487/hi-my-name-sila)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
