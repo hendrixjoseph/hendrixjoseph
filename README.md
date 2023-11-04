@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What does this old man leaning on his fence have to tell me?](https://news.puppy-snuggles.com/44200292/what-does-this-old-man-leaning-on-his-fence-have-to-tell-me)
-- [Rate my dog from 1 to 10 pls](https://news.puppy-snuggles.com/30249583/rate-my-dog-from-1-to-10-pls)
-- [Drumroll for Beans! &lpar;OC&rpar;](https://news.puppy-snuggles.com/22220149/drumroll-for-beans-oc)
-- [oh those eyes](https://news.puppy-snuggles.com/21792189/oh-those-eyes)
-- [Hi my name Sila!!!!!](https://news.puppy-snuggles.com/19631487/hi-my-name-sila)
+- [show me your fav .5 pic of your dog](https://news.puppy-snuggles.com/44764326/show-me-your-fav-5-pic-of-your-dog)
+- [The day Willz chose my husband, and we got our second border collie!](https://news.puppy-snuggles.com/44764325/the-day-willz-chose-my-husband-and-we-got-our-second-border-collie)
+- [The day we chose eachother](https://news.puppy-snuggles.com/44764322/the-day-we-chose-eachother)
+- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
+- [Just a birthday pup enjoying his steak](https://news.puppy-snuggles.com/22590714/just-a-birthday-pup-enjoying-his-steak)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
