@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [show me your fav .5 pic of your dog](https://news.puppy-snuggles.com/44764326/show-me-your-fav-5-pic-of-your-dog)
-- [The day Willz chose my husband, and we got our second border collie!](https://news.puppy-snuggles.com/44764325/the-day-willz-chose-my-husband-and-we-got-our-second-border-collie)
-- [The day we chose eachother](https://news.puppy-snuggles.com/44764322/the-day-we-chose-eachother)
-- [Enemy spotted](https://news.puppy-snuggles.com/23360378/enemy-spotted)
-- [Just a birthday pup enjoying his steak](https://news.puppy-snuggles.com/22590714/just-a-birthday-pup-enjoying-his-steak)
+- [Samantha passed at 11:45 AM today.](https://news.puppy-snuggles.com/26428435/samantha-passed-at-1145-am-today)
+- [I&amp;#039;m pretty sure Malinois were created with an ultra secret government superdog serum.](https://news.puppy-snuggles.com/23132583/im-pretty-sure-malinois-were-created-with-an-ultra-secret-government-superdog-serum)
+- [My local used to provide my dog with a blanket. Last night he received an upgrade.](https://news.puppy-snuggles.com/22774024/my-local-used-to-provide-my-dog-with-a-blanket-last-night-he-received-an-upgrade)
+- [ellie likes cremesicles](https://news.puppy-snuggles.com/19233588/ellie-likes-cremesicles)
+- [My wife is a park ranger and found this Shar Pei stray with scars and scabs. Our local shelter considered him to be a &amp;amp;quot;level 5&amp;amp;quot; and waived all adoption fees to get rid of him. We adopted him and he&amp;#039;s found love I&amp;#039;m sure he&amp;#039;s never felt before.](https://news.puppy-snuggles.com/18917422/my-wife-is-a-park-ranger-and-found-this-shar-pei-stray-with-scars-and-scabs-our-local-shelter-considered-him-to-be-a-quotlevel-5quot-and-waived-all-adoption-fees-to-get-rid-of-him-we-adopted-him-and-hes-found-love-im-sure-hes-never-felt-before)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
