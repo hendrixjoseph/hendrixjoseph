@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Samantha passed at 11:45 AM today.](https://news.puppy-snuggles.com/26428435/samantha-passed-at-1145-am-today)
-- [I&amp;#039;m pretty sure Malinois were created with an ultra secret government superdog serum.](https://news.puppy-snuggles.com/23132583/im-pretty-sure-malinois-were-created-with-an-ultra-secret-government-superdog-serum)
-- [My local used to provide my dog with a blanket. Last night he received an upgrade.](https://news.puppy-snuggles.com/22774024/my-local-used-to-provide-my-dog-with-a-blanket-last-night-he-received-an-upgrade)
-- [ellie likes cremesicles](https://news.puppy-snuggles.com/19233588/ellie-likes-cremesicles)
-- [My wife is a park ranger and found this Shar Pei stray with scars and scabs. Our local shelter considered him to be a &amp;amp;quot;level 5&amp;amp;quot; and waived all adoption fees to get rid of him. We adopted him and he&amp;#039;s found love I&amp;#039;m sure he&amp;#039;s never felt before.](https://news.puppy-snuggles.com/18917422/my-wife-is-a-park-ranger-and-found-this-shar-pei-stray-with-scars-and-scabs-our-local-shelter-considered-him-to-be-a-quotlevel-5quot-and-waived-all-adoption-fees-to-get-rid-of-him-we-adopted-him-and-hes-found-love-im-sure-hes-never-felt-before)
+- [grandma&amp;#039;s dog is so cute](https://news.puppy-snuggles.com/41200203/grandmas-dog-is-so-cute)
+- [Two very cute little sisters lol](https://news.puppy-snuggles.com/22697940/two-very-cute-little-sisters-lol)
+- [Da bestest ears ever](https://news.puppy-snuggles.com/21780896/da-bestest-ears-ever)
+- [If you have a bad day - remember that you are the world for someone.](https://news.puppy-snuggles.com/21638385/if-you-have-a-bad-day-remember-that-you-are-the-world-for-someone)
+- [Bathe me hooman](https://news.puppy-snuggles.com/19940580/bathe-me-hooman)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
