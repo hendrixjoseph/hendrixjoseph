@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [grandma&amp;#039;s dog is so cute](https://news.puppy-snuggles.com/41200203/grandmas-dog-is-so-cute)
-- [Two very cute little sisters lol](https://news.puppy-snuggles.com/22697940/two-very-cute-little-sisters-lol)
-- [Da bestest ears ever](https://news.puppy-snuggles.com/21780896/da-bestest-ears-ever)
-- [If you have a bad day - remember that you are the world for someone.](https://news.puppy-snuggles.com/21638385/if-you-have-a-bad-day-remember-that-you-are-the-world-for-someone)
-- [Bathe me hooman](https://news.puppy-snuggles.com/19940580/bathe-me-hooman)
+- [This little guy needs a name 🧡🙌🏻](https://news.puppy-snuggles.com/36506879/this-little-guy-needs-a-name)
+- [This is Goof. Tell him he is handsome.](https://news.puppy-snuggles.com/32135945/this-is-goof-tell-him-he-is-handsome)
+- [I’M AT CRUFTS!!! First dog I see is Hamish the Irish wolfhound! Top 3 of my breeds 🥰](https://news.puppy-snuggles.com/28551668/im-at-crufts-first-dog-i-see-is-hamish-the-irish-wolfhound-top-3-of-my-breeds)
+- [Working at a dog daycare as a dog trainer is a blast](https://news.puppy-snuggles.com/23323511/working-at-a-dog-daycare-as-a-dog-trainer-is-a-blast)
+- [Box for happy](https://news.puppy-snuggles.com/21851000/box-for-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
