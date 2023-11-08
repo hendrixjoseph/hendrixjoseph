@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This little guy needs a name 🧡🙌🏻](https://news.puppy-snuggles.com/36506879/this-little-guy-needs-a-name)
-- [This is Goof. Tell him he is handsome.](https://news.puppy-snuggles.com/32135945/this-is-goof-tell-him-he-is-handsome)
-- [I’M AT CRUFTS!!! First dog I see is Hamish the Irish wolfhound! Top 3 of my breeds 🥰](https://news.puppy-snuggles.com/28551668/im-at-crufts-first-dog-i-see-is-hamish-the-irish-wolfhound-top-3-of-my-breeds)
-- [Working at a dog daycare as a dog trainer is a blast](https://news.puppy-snuggles.com/23323511/working-at-a-dog-daycare-as-a-dog-trainer-is-a-blast)
-- [Box for happy](https://news.puppy-snuggles.com/21851000/box-for-happy)
+- [What shall we name our new puppy?](https://news.puppy-snuggles.com/40707376/what-shall-we-name-our-new-puppy)
+- [I think she&amp;#039;s pretty majestic](https://news.puppy-snuggles.com/22235741/i-think-shes-pretty-majestic)
+- [Here is Roger...don&amp;#039;t know what else to say, just thought I&amp;#039;d share!](https://news.puppy-snuggles.com/20116390/here-is-rogerdont-know-what-else-to-say-just-thought-id-share)
+- [Had to say goodbye to my 15yo buddy Rex today. Put to sleep in my arms. Rest well my furry forever-friend.](https://news.puppy-snuggles.com/20081282/had-to-say-goodbye-to-my-15yo-buddy-rex-today-put-to-sleep-in-my-arms-rest-well-my-furry-forever-friend)
+- [My new best friend. Franklin.](https://news.puppy-snuggles.com/20068379/my-new-best-friend-franklin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
