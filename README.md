@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What shall we name our new puppy?](https://news.puppy-snuggles.com/40707376/what-shall-we-name-our-new-puppy)
-- [I think she&amp;#039;s pretty majestic](https://news.puppy-snuggles.com/22235741/i-think-shes-pretty-majestic)
-- [Here is Roger...don&amp;#039;t know what else to say, just thought I&amp;#039;d share!](https://news.puppy-snuggles.com/20116390/here-is-rogerdont-know-what-else-to-say-just-thought-id-share)
-- [Had to say goodbye to my 15yo buddy Rex today. Put to sleep in my arms. Rest well my furry forever-friend.](https://news.puppy-snuggles.com/20081282/had-to-say-goodbye-to-my-15yo-buddy-rex-today-put-to-sleep-in-my-arms-rest-well-my-furry-forever-friend)
-- [My new best friend. Franklin.](https://news.puppy-snuggles.com/20068379/my-new-best-friend-franklin)
+- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [Fiona has the prettiest smile 😆](https://news.puppy-snuggles.com/22615425/fiona-has-the-prettiest-smile)
+- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
+- [Whomst presents thyselves at mine residence?](https://news.puppy-snuggles.com/22098062/whomst-presents-thyselves-at-mine-residence)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
