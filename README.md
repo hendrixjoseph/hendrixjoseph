@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [Fiona has the prettiest smile 😆](https://news.puppy-snuggles.com/22615425/fiona-has-the-prettiest-smile)
-- [Any guess on breed? Shelter just said mixed breed medium. My parents just got her, and was curious what everyone thinks! Thanks guys.](https://news.puppy-snuggles.com/22405823/any-guess-on-breed-shelter-just-said-mixed-breed-medium-my-parents-just-got-her-and-was-curious-what-everyone-thinks-thanks-guys)
-- [Whomst presents thyselves at mine residence?](https://news.puppy-snuggles.com/22098062/whomst-presents-thyselves-at-mine-residence)
+- [My goldie baby](https://news.puppy-snuggles.com/45073874/my-goldie-baby)
+- [My beautiful rescue dog. Can someone tell her breed?](https://news.puppy-snuggles.com/44688247/my-beautiful-rescue-dog-can-someone-tell-her-breed)
+- [Making my first reddit post because I just brought home my first dog! !!](https://news.puppy-snuggles.com/43345986/making-my-first-reddit-post-because-i-just-brought-home-my-first-dog)
+- [This is Sheila. That is all.](https://news.puppy-snuggles.com/31305991/this-is-sheila-that-is-all)
+- [Any info on adopted dog?](https://news.puppy-snuggles.com/23097350/any-info-on-adopted-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
