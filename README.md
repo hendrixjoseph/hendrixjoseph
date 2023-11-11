@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My goldie baby](https://news.puppy-snuggles.com/45073874/my-goldie-baby)
-- [My beautiful rescue dog. Can someone tell her breed?](https://news.puppy-snuggles.com/44688247/my-beautiful-rescue-dog-can-someone-tell-her-breed)
-- [Making my first reddit post because I just brought home my first dog! !!](https://news.puppy-snuggles.com/43345986/making-my-first-reddit-post-because-i-just-brought-home-my-first-dog)
-- [This is Sheila. That is all.](https://news.puppy-snuggles.com/31305991/this-is-sheila-that-is-all)
-- [Any info on adopted dog?](https://news.puppy-snuggles.com/23097350/any-info-on-adopted-dog)
+- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
+- [Show me pics of your dog trying to smile like a human &lpar;and looking scary&rpar;](https://news.puppy-snuggles.com/42125930/show-me-pics-of-your-dog-trying-to-smile-like-a-human-and-looking-scary)
+- [Need dog name suggestions](https://news.puppy-snuggles.com/32751788/need-dog-name-suggestions)
+- [All smiles](https://news.puppy-snuggles.com/27732073/all-smiles)
+- [This dog came to my window the other night. She is happy and warm now.](https://news.puppy-snuggles.com/22940091/this-dog-came-to-my-window-the-other-night-she-is-happy-and-warm-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
