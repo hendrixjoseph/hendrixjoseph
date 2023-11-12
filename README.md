@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
-- [Show me pics of your dog trying to smile like a human &lpar;and looking scary&rpar;](https://news.puppy-snuggles.com/42125930/show-me-pics-of-your-dog-trying-to-smile-like-a-human-and-looking-scary)
-- [Need dog name suggestions](https://news.puppy-snuggles.com/32751788/need-dog-name-suggestions)
-- [All smiles](https://news.puppy-snuggles.com/27732073/all-smiles)
-- [This dog came to my window the other night. She is happy and warm now.](https://news.puppy-snuggles.com/22940091/this-dog-came-to-my-window-the-other-night-she-is-happy-and-warm-now)
+- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
+- [we adopted a new dog yesterday woke up like this](https://news.puppy-snuggles.com/24402194/we-adopted-a-new-dog-yesterday-woke-up-like-this)
+- [Home exercise and pets do not mix well!](https://news.puppy-snuggles.com/23782618/home-exercise-and-pets-do-not-mix-well)
+- [Anytime I get in my car, this little dude thinks he’s going somewhere and won’t get out](https://news.puppy-snuggles.com/19787409/anytime-i-get-in-my-car-this-little-dude-thinks-hes-going-somewhere-and-wont-get-out)
+- [it&amp;#039;s impossible not to fall in love with those eyes [OC]](https://news.puppy-snuggles.com/19306420/its-impossible-not-to-fall-in-love-with-those-eyes-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
