@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Blair &lpar;smaller&rpar; and Siren &lpar;bigger&rpar;. Any guesses on their breeds? Both are full grown:&rpar;](https://news.puppy-snuggles.com/24832387/this-is-blair-smaller-and-siren-bigger-any-guesses-on-their-breeds-both-are-full-grown)
-- [we adopted a new dog yesterday woke up like this](https://news.puppy-snuggles.com/24402194/we-adopted-a-new-dog-yesterday-woke-up-like-this)
-- [Home exercise and pets do not mix well!](https://news.puppy-snuggles.com/23782618/home-exercise-and-pets-do-not-mix-well)
-- [Anytime I get in my car, this little dude thinks he’s going somewhere and won’t get out](https://news.puppy-snuggles.com/19787409/anytime-i-get-in-my-car-this-little-dude-thinks-hes-going-somewhere-and-wont-get-out)
-- [it&amp;#039;s impossible not to fall in love with those eyes [OC]](https://news.puppy-snuggles.com/19306420/its-impossible-not-to-fall-in-love-with-those-eyes-oc)
+- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
+- [Pirate!](https://news.puppy-snuggles.com/21927038/pirate)
+- [My lazy dog](https://news.puppy-snuggles.com/19563293/my-lazy-dog)
+- [pupy and lucky](https://news.puppy-snuggles.com/18942570/pupy-and-lucky)
+- [That gal jojo](https://news.puppy-snuggles.com/17787582/that-gal-jojo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
