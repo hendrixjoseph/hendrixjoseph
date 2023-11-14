@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Had to say goodbye to my best friend of 11 years today. Peetree, you will be missed.](https://news.puppy-snuggles.com/45365131/had-to-say-goodbye-to-my-best-friend-of-11-years-today-peetree-you-will-be-missed)
+- [Any love for the next door neighbor? His name is Bruno](https://news.puppy-snuggles.com/43830325/any-love-for-the-next-door-neighbor-his-name-is-bruno)
+- [My 1 month old Frenchie, so smol. she’s always getting lost around the house 🥹](https://news.puppy-snuggles.com/28111747/my-1-month-old-frenchie-so-smol-shes-always-getting-lost-around-the-house)
+- [Happy Birthday 🎂 To 🐕](https://news.puppy-snuggles.com/24303725/happy-birthday-to)
 - [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
-- [Pirate!](https://news.puppy-snuggles.com/21927038/pirate)
-- [My lazy dog](https://news.puppy-snuggles.com/19563293/my-lazy-dog)
-- [pupy and lucky](https://news.puppy-snuggles.com/18942570/pupy-and-lucky)
-- [That gal jojo](https://news.puppy-snuggles.com/17787582/that-gal-jojo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
