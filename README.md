@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to say goodbye to my best friend of 11 years today. Peetree, you will be missed.](https://news.puppy-snuggles.com/45365131/had-to-say-goodbye-to-my-best-friend-of-11-years-today-peetree-you-will-be-missed)
-- [Any love for the next door neighbor? His name is Bruno](https://news.puppy-snuggles.com/43830325/any-love-for-the-next-door-neighbor-his-name-is-bruno)
-- [My 1 month old Frenchie, so smol. she’s always getting lost around the house 🥹](https://news.puppy-snuggles.com/28111747/my-1-month-old-frenchie-so-smol-shes-always-getting-lost-around-the-house)
-- [Happy Birthday 🎂 To 🐕](https://news.puppy-snuggles.com/24303725/happy-birthday-to)
+- [Today my mini cow crossed the rainbow bridge. RIP Perry](https://news.puppy-snuggles.com/38803402/today-my-mini-cow-crossed-the-rainbow-bridge-rip-perry)
+- [Someone thought smiling would get her some human treats. Merry Christmas!](https://news.puppy-snuggles.com/24252179/someone-thought-smiling-would-get-her-some-human-treats-merry-christmas)
 - [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
+- [My dog recently passed and I just wanted to show everyone who she was.](https://news.puppy-snuggles.com/23581715/my-dog-recently-passed-and-i-just-wanted-to-show-everyone-who-she-was)
+- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
