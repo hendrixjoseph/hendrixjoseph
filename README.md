@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today my mini cow crossed the rainbow bridge. RIP Perry](https://news.puppy-snuggles.com/38803402/today-my-mini-cow-crossed-the-rainbow-bridge-rip-perry)
-- [Someone thought smiling would get her some human treats. Merry Christmas!](https://news.puppy-snuggles.com/24252179/someone-thought-smiling-would-get-her-some-human-treats-merry-christmas)
-- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
-- [My dog recently passed and I just wanted to show everyone who she was.](https://news.puppy-snuggles.com/23581715/my-dog-recently-passed-and-i-just-wanted-to-show-everyone-who-she-was)
-- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
+- [Cash loves car rides :&rpar;](https://news.puppy-snuggles.com/23618728/cash-loves-car-rides)
+- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
+- [The best part of the day is finding a stick 😊](https://news.puppy-snuggles.com/22220153/the-best-part-of-the-day-is-finding-a-stick)
+- [I’m watching House of Dragon tonight Hooman 🐶](https://news.puppy-snuggles.com/22002409/im-watching-house-of-dragon-tonight-hooman)
+- [“Can we PLEASE go for a walk?”](https://news.puppy-snuggles.com/19343920/can-we-please-go-for-a-walk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
