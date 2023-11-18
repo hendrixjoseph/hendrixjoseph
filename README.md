@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cash loves car rides :&rpar;](https://news.puppy-snuggles.com/23618728/cash-loves-car-rides)
-- [The Unique Golden Retriever Born With A Cool Birthmark](https://news.puppy-snuggles.com/22626225/the-unique-golden-retriever-born-with-a-cool-birthmark)
-- [The best part of the day is finding a stick 😊](https://news.puppy-snuggles.com/22220153/the-best-part-of-the-day-is-finding-a-stick)
-- [I’m watching House of Dragon tonight Hooman 🐶](https://news.puppy-snuggles.com/22002409/im-watching-house-of-dragon-tonight-hooman)
-- [“Can we PLEASE go for a walk?”](https://news.puppy-snuggles.com/19343920/can-we-please-go-for-a-walk)
+- [This appeared in front of our house the night our dog of 16yrs passed. Never seen anything like this...](https://news.puppy-snuggles.com/45442967/this-appeared-in-front-of-our-house-the-night-our-dog-of-16yrs-passed-never-seen-anything-like-this)
+- [Cora being a pretty derp in the sun.](https://news.puppy-snuggles.com/45442966/cora-being-a-pretty-derp-in-the-sun)
+- [The dog brought home for the owner](https://news.puppy-snuggles.com/42669350/the-dog-brought-home-for-the-owner)
+- [65seconds of Surrogate Mom Playing With Adopted Puppy](https://news.puppy-snuggles.com/22927269/65seconds-of-surrogate-mom-playing-with-adopted-puppy)
+- [Same pose, 2 years apart](https://news.puppy-snuggles.com/17230831/same-pose-2-years-apart)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
