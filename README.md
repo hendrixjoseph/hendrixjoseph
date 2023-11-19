@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This appeared in front of our house the night our dog of 16yrs passed. Never seen anything like this...](https://news.puppy-snuggles.com/45442967/this-appeared-in-front-of-our-house-the-night-our-dog-of-16yrs-passed-never-seen-anything-like-this)
-- [Cora being a pretty derp in the sun.](https://news.puppy-snuggles.com/45442966/cora-being-a-pretty-derp-in-the-sun)
-- [The dog brought home for the owner](https://news.puppy-snuggles.com/42669350/the-dog-brought-home-for-the-owner)
-- [65seconds of Surrogate Mom Playing With Adopted Puppy](https://news.puppy-snuggles.com/22927269/65seconds-of-surrogate-mom-playing-with-adopted-puppy)
-- [Same pose, 2 years apart](https://news.puppy-snuggles.com/17230831/same-pose-2-years-apart)
+- [It’s my wigglebutt’s sixth gotcha day. Who rescued who?](https://news.puppy-snuggles.com/45593064/its-my-wigglebutts-sixth-gotcha-day-who-rescued-who)
+- [Adopted a sweet bait dog](https://news.puppy-snuggles.com/45593061/adopted-a-sweet-bait-dog)
+- [Say hi to our new rescue Margot!](https://news.puppy-snuggles.com/29370807/say-hi-to-our-new-rescue-margot)
+- [adopted this dog he is 4 months old now.. what do you think is his breed?](https://news.puppy-snuggles.com/23196460/adopted-this-dog-he-is-4-months-old-now-what-do-you-think-is-his-breed)
+- [Sorry for another sad post. Lost him a few weeks ago now. Couldn&amp;#039;t bring myself to make this post. He was 16. Happened 2 weeks after losing my great aunt that we lived with. I think he missed her too much. So hard isn&amp;#039;t it..?](https://news.puppy-snuggles.com/20312136/sorry-for-another-sad-post-lost-him-a-few-weeks-ago-now-couldnt-bring-myself-to-make-this-post-he-was-16-happened-2-weeks-after-losing-my-great-aunt-that-we-lived-with-i-think-he-missed-her-too-much-so-hard-isnt-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
