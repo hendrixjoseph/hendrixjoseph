@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [just an appreciation post for my dog](https://news.puppy-snuggles.com/45669748/just-an-appreciation-post-for-my-dog)
-- [I was trying to get rid of pumpkins in the woods and he disagreed](https://news.puppy-snuggles.com/45669743/i-was-trying-to-get-rid-of-pumpkins-in-the-woods-and-he-disagreed)
-- [Before and after treat](https://news.puppy-snuggles.com/38227341/before-and-after-treat)
-- [Small bug the biggest smile](https://news.puppy-snuggles.com/32090757/small-bug-the-biggest-smile)
-- [The owner says this is a Pitbull Terrier. What does he look like? Sone sort of mix?](https://news.puppy-snuggles.com/24442430/the-owner-says-this-is-a-pitbull-terrier-what-does-he-look-like-sone-sort-of-mix)
+- [My first foster dog got a furever home!](https://news.puppy-snuggles.com/23760171/my-first-foster-dog-got-a-furever-home)
+- [Cute boy](https://news.puppy-snuggles.com/23085394/cute-boy)
+- [Just a puppy pic, that makes me happy.](https://news.puppy-snuggles.com/22510568/just-a-puppy-pic-that-makes-me-happy)
+- [Meet Henry! A beautiful dope who we think weirdly looks like dobby the house elf!](https://news.puppy-snuggles.com/22086926/meet-henry-a-beautiful-dope-who-we-think-weirdly-looks-like-dobby-the-house-elf)
+- [Photogenic af](https://news.puppy-snuggles.com/20305810/photogenic-af)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
