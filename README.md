@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My first foster dog got a furever home!](https://news.puppy-snuggles.com/23760171/my-first-foster-dog-got-a-furever-home)
-- [Cute boy](https://news.puppy-snuggles.com/23085394/cute-boy)
-- [Just a puppy pic, that makes me happy.](https://news.puppy-snuggles.com/22510568/just-a-puppy-pic-that-makes-me-happy)
-- [Meet Henry! A beautiful dope who we think weirdly looks like dobby the house elf!](https://news.puppy-snuggles.com/22086926/meet-henry-a-beautiful-dope-who-we-think-weirdly-looks-like-dobby-the-house-elf)
-- [Photogenic af](https://news.puppy-snuggles.com/20305810/photogenic-af)
+- [This is Kacie Anne, my sweet girl. Please help me find out what breed she was.](https://news.puppy-snuggles.com/45744192/this-is-kacie-anne-my-sweet-girl-please-help-me-find-out-what-breed-she-was)
+- [This is Boomer, he crossed over the rainbow bridge a few days ago and I wanted to share his pics with everyone. Give your pups a big kiss and hug tonight for him &amp;amp;lt;3](https://news.puppy-snuggles.com/45744185/this-is-boomer-he-crossed-over-the-rainbow-bridge-a-few-days-ago-and-i-wanted-to-share-his-pics-with-everyone-give-your-pups-a-big-kiss-and-hug-tonight-for-him-lt3)
+- [A very good girl.](https://news.puppy-snuggles.com/35537322/a-very-good-girl)
+- [Husky - My love](https://news.puppy-snuggles.com/22275460/husky-my-love)
+- [It can be said that every color is inherited.](https://news.puppy-snuggles.com/21872764/it-can-be-said-that-every-color-is-inherited)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
