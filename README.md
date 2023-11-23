@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Kacie Anne, my sweet girl. Please help me find out what breed she was.](https://news.puppy-snuggles.com/45744192/this-is-kacie-anne-my-sweet-girl-please-help-me-find-out-what-breed-she-was)
-- [This is Boomer, he crossed over the rainbow bridge a few days ago and I wanted to share his pics with everyone. Give your pups a big kiss and hug tonight for him &amp;amp;lt;3](https://news.puppy-snuggles.com/45744185/this-is-boomer-he-crossed-over-the-rainbow-bridge-a-few-days-ago-and-i-wanted-to-share-his-pics-with-everyone-give-your-pups-a-big-kiss-and-hug-tonight-for-him-lt3)
-- [A very good girl.](https://news.puppy-snuggles.com/35537322/a-very-good-girl)
-- [Husky - My love](https://news.puppy-snuggles.com/22275460/husky-my-love)
-- [It can be said that every color is inherited.](https://news.puppy-snuggles.com/21872764/it-can-be-said-that-every-color-is-inherited)
+- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/39750290/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
+- [My new street mutt sweetheart, Our Hungry Lady of the Thick Ears](https://news.puppy-snuggles.com/22501283/my-new-street-mutt-sweetheart-our-hungry-lady-of-the-thick-ears)
+- [What breed mix could this guy be?](https://news.puppy-snuggles.com/22384418/what-breed-mix-could-this-guy-be)
+- [hope it doesn’t upset everyone. I just wanted to follow up from my post last week. I said goodbye to my beautiful, wonderful, happy girl moxie yesterday. had to make that hard choice with the vet due to her health. She went in my arms at peace, I never let her go or left her side. She was my rock ❤️](https://news.puppy-snuggles.com/22372653/hope-it-doesnt-upset-everyone-i-just-wanted-to-follow-up-from-my-post-last-week-i-said-goodbye-to-my-beautiful-wonderful-happy-girl-moxie-yesterday-had-to-make-that-hard-choice-with-the-vet-due-to-her-health-she-went-in-my-arms-at-peace-i-never-let-her-go-or-left-her-side-she-was-my-rock)
+- [RIP my most prettiest girl. She lived 11 years full of love and friendship. I’ve had her since I was 9 years old… I’m 20 now and this is the hardest thing I’ve had to go through. Rest in beauty my Sasha moose](https://news.puppy-snuggles.com/18924055/rip-my-most-prettiest-girl-she-lived-11-years-full-of-love-and-friendship-ive-had-her-since-i-was-9-years-old-im-20-now-and-this-is-the-hardest-thing-ive-had-to-go-through-rest-in-beauty-my-sasha-moose)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
