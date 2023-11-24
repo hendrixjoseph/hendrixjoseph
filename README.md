@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/39750290/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
-- [My new street mutt sweetheart, Our Hungry Lady of the Thick Ears](https://news.puppy-snuggles.com/22501283/my-new-street-mutt-sweetheart-our-hungry-lady-of-the-thick-ears)
-- [What breed mix could this guy be?](https://news.puppy-snuggles.com/22384418/what-breed-mix-could-this-guy-be)
-- [hope it doesn’t upset everyone. I just wanted to follow up from my post last week. I said goodbye to my beautiful, wonderful, happy girl moxie yesterday. had to make that hard choice with the vet due to her health. She went in my arms at peace, I never let her go or left her side. She was my rock ❤️](https://news.puppy-snuggles.com/22372653/hope-it-doesnt-upset-everyone-i-just-wanted-to-follow-up-from-my-post-last-week-i-said-goodbye-to-my-beautiful-wonderful-happy-girl-moxie-yesterday-had-to-make-that-hard-choice-with-the-vet-due-to-her-health-she-went-in-my-arms-at-peace-i-never-let-her-go-or-left-her-side-she-was-my-rock)
-- [RIP my most prettiest girl. She lived 11 years full of love and friendship. I’ve had her since I was 9 years old… I’m 20 now and this is the hardest thing I’ve had to go through. Rest in beauty my Sasha moose](https://news.puppy-snuggles.com/18924055/rip-my-most-prettiest-girl-she-lived-11-years-full-of-love-and-friendship-ive-had-her-since-i-was-9-years-old-im-20-now-and-this-is-the-hardest-thing-ive-had-to-go-through-rest-in-beauty-my-sasha-moose)
+- [Why does my dog have the Batman sign on his chest?](https://news.puppy-snuggles.com/40489283/why-does-my-dog-have-the-batman-sign-on-his-chest)
+- [County girl](https://news.puppy-snuggles.com/37881216/county-girl)
+- [Ms Shifty is really a beach bum 🏝️](https://news.puppy-snuggles.com/35981481/ms-shifty-is-really-a-beach-bum)
+- [Celebrating a special birthday on Reddit today, 10 years of lending an ear.](https://news.puppy-snuggles.com/27848681/celebrating-a-special-birthday-on-reddit-today-10-years-of-lending-an-ear)
+- [The sleeping angle](https://news.puppy-snuggles.com/24568293/the-sleeping-angle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
