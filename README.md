@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Why does my dog have the Batman sign on his chest?](https://news.puppy-snuggles.com/40489283/why-does-my-dog-have-the-batman-sign-on-his-chest)
-- [County girl](https://news.puppy-snuggles.com/37881216/county-girl)
-- [Ms Shifty is really a beach bum 🏝️](https://news.puppy-snuggles.com/35981481/ms-shifty-is-really-a-beach-bum)
-- [Celebrating a special birthday on Reddit today, 10 years of lending an ear.](https://news.puppy-snuggles.com/27848681/celebrating-a-special-birthday-on-reddit-today-10-years-of-lending-an-ear)
-- [The sleeping angle](https://news.puppy-snuggles.com/24568293/the-sleeping-angle)
+- [Very tasty](https://news.puppy-snuggles.com/42346338/very-tasty)
+- [Our new little guy!!](https://news.puppy-snuggles.com/39292011/our-new-little-guy)
+- [Great lady takes care of dog &amp;#039;frozen&amp;#039; with tetanus](https://news.puppy-snuggles.com/34802928/great-lady-takes-care-of-dog-frozen-with-tetanus)
+- [My sweet little angel](https://news.puppy-snuggles.com/24057835/my-sweet-little-angel)
+- [Happy birthday Cloe girl, 5 years being a light in my life](https://news.puppy-snuggles.com/23750092/happy-birthday-cloe-girl-5-years-being-a-light-in-my-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
