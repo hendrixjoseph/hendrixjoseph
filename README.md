@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Very tasty](https://news.puppy-snuggles.com/42346338/very-tasty)
-- [Our new little guy!!](https://news.puppy-snuggles.com/39292011/our-new-little-guy)
-- [Great lady takes care of dog &amp;#039;frozen&amp;#039; with tetanus](https://news.puppy-snuggles.com/34802928/great-lady-takes-care-of-dog-frozen-with-tetanus)
-- [My sweet little angel](https://news.puppy-snuggles.com/24057835/my-sweet-little-angel)
-- [Happy birthday Cloe girl, 5 years being a light in my life](https://news.puppy-snuggles.com/23750092/happy-birthday-cloe-girl-5-years-being-a-light-in-my-life)
+- [My new boy](https://news.puppy-snuggles.com/39365344/my-new-boy)
+- [His smile is gorgeous.](https://news.puppy-snuggles.com/27498753/his-smile-is-gorgeous)
+- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
+- [10 years of great friendship!](https://news.puppy-snuggles.com/23397801/10-years-of-great-friendship)
+- [Why have you disturbed my slumber, human?](https://news.puppy-snuggles.com/22674528/why-have-you-disturbed-my-slumber-human)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
