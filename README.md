@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new boy](https://news.puppy-snuggles.com/39365344/my-new-boy)
-- [His smile is gorgeous.](https://news.puppy-snuggles.com/27498753/his-smile-is-gorgeous)
-- [Golden Retrievers](https://news.puppy-snuggles.com/24335909/golden-retrievers)
-- [10 years of great friendship!](https://news.puppy-snuggles.com/23397801/10-years-of-great-friendship)
-- [Why have you disturbed my slumber, human?](https://news.puppy-snuggles.com/22674528/why-have-you-disturbed-my-slumber-human)
+- [Macchiato&amp;#039;s first Christmas tree](https://news.puppy-snuggles.com/23498668/macchiatos-first-christmas-tree)
+- [bailey loves helping with the dishes!](https://news.puppy-snuggles.com/23223415/bailey-loves-helping-with-the-dishes)
+- [Waiting for best friend.](https://news.puppy-snuggles.com/22987146/waiting-for-best-friend)
+- [My little rainbow pup was getting a lot of love in another sub, so I figured I would share him with you guys too.](https://news.puppy-snuggles.com/22892652/my-little-rainbow-pup-was-getting-a-lot-of-love-in-another-sub-so-i-figured-i-would-share-him-with-you-guys-too)
+- [My best bud and I, he saved me 🐶](https://news.puppy-snuggles.com/22844340/my-best-bud-and-i-he-saved-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
