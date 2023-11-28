@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Macchiato&amp;#039;s first Christmas tree](https://news.puppy-snuggles.com/23498668/macchiatos-first-christmas-tree)
-- [bailey loves helping with the dishes!](https://news.puppy-snuggles.com/23223415/bailey-loves-helping-with-the-dishes)
-- [Waiting for best friend.](https://news.puppy-snuggles.com/22987146/waiting-for-best-friend)
-- [My little rainbow pup was getting a lot of love in another sub, so I figured I would share him with you guys too.](https://news.puppy-snuggles.com/22892652/my-little-rainbow-pup-was-getting-a-lot-of-love-in-another-sub-so-i-figured-i-would-share-him-with-you-guys-too)
-- [My best bud and I, he saved me 🐶](https://news.puppy-snuggles.com/22844340/my-best-bud-and-i-he-saved-me)
+- [The same marks my tire chains leave behind.](https://news.puppy-snuggles.com/46104116/the-same-marks-my-tire-chains-leave-behind)
+- [My little girl got surgery today, it&amp;#039;s cancer, we will see what grade it is &lpar;stitches can trigger people&rpar;](https://news.puppy-snuggles.com/44595791/my-little-girl-got-surgery-today-its-cancer-we-will-see-what-grade-it-is-stitches-can-trigger-people)
+- [Bell boi](https://news.puppy-snuggles.com/24707130/bell-boi)
+- [I painted this little portrait as a Christmas present, I hope you like it](https://news.puppy-snuggles.com/24104275/i-painted-this-little-portrait-as-a-christmas-present-i-hope-you-like-it)
+- [My old lady](https://news.puppy-snuggles.com/19896732/my-old-lady)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
