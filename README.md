@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The same marks my tire chains leave behind.](https://news.puppy-snuggles.com/46104116/the-same-marks-my-tire-chains-leave-behind)
-- [My little girl got surgery today, it&amp;#039;s cancer, we will see what grade it is &lpar;stitches can trigger people&rpar;](https://news.puppy-snuggles.com/44595791/my-little-girl-got-surgery-today-its-cancer-we-will-see-what-grade-it-is-stitches-can-trigger-people)
-- [Bell boi](https://news.puppy-snuggles.com/24707130/bell-boi)
-- [I painted this little portrait as a Christmas present, I hope you like it](https://news.puppy-snuggles.com/24104275/i-painted-this-little-portrait-as-a-christmas-present-i-hope-you-like-it)
-- [My old lady](https://news.puppy-snuggles.com/19896732/my-old-lady)
+- [Can you guess my dog breed?](https://news.puppy-snuggles.com/23299615/can-you-guess-my-dog-breed)
+- [Meet Lunchbox!](https://news.puppy-snuggles.com/23122452/meet-lunchbox)
+- [my tiny baby](https://news.puppy-snuggles.com/22727412/my-tiny-baby)
+- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
+- [Alpha looking stately](https://news.puppy-snuggles.com/22590713/alpha-looking-stately)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
