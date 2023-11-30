@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can you guess my dog breed?](https://news.puppy-snuggles.com/23299615/can-you-guess-my-dog-breed)
-- [Meet Lunchbox!](https://news.puppy-snuggles.com/23122452/meet-lunchbox)
-- [my tiny baby](https://news.puppy-snuggles.com/22727412/my-tiny-baby)
-- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
-- [Alpha looking stately](https://news.puppy-snuggles.com/22590713/alpha-looking-stately)
+- [smiling because I woke up mom](https://news.puppy-snuggles.com/46204302/smiling-because-i-woke-up-mom)
+- [Happy puppy](https://news.puppy-snuggles.com/45929512/happy-puppy)
+- [Had to say goodbye to our mischievous Loki this week](https://news.puppy-snuggles.com/45807382/had-to-say-goodbye-to-our-mischievous-loki-this-week)
+- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
+- [Can anyone tell me what my beagle is mixed with? The lady we adopted her from said she was a Rockwilder and beagle mix, but I have a very hard time believing that after a little research.](https://news.puppy-snuggles.com/27700220/can-anyone-tell-me-what-my-beagle-is-mixed-with-the-lady-we-adopted-her-from-said-she-was-a-rockwilder-and-beagle-mix-but-i-have-a-very-hard-time-believing-that-after-a-little-research)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
