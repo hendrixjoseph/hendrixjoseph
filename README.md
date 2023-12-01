@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [smiling because I woke up mom](https://news.puppy-snuggles.com/46204302/smiling-because-i-woke-up-mom)
-- [Happy puppy](https://news.puppy-snuggles.com/45929512/happy-puppy)
-- [Had to say goodbye to our mischievous Loki this week](https://news.puppy-snuggles.com/45807382/had-to-say-goodbye-to-our-mischievous-loki-this-week)
-- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
-- [Can anyone tell me what my beagle is mixed with? The lady we adopted her from said she was a Rockwilder and beagle mix, but I have a very hard time believing that after a little research.](https://news.puppy-snuggles.com/27700220/can-anyone-tell-me-what-my-beagle-is-mixed-with-the-lady-we-adopted-her-from-said-she-was-a-rockwilder-and-beagle-mix-but-i-have-a-very-hard-time-believing-that-after-a-little-research)
+- [do I paint my boy dog&amp;#039;s nails? yes I do](https://news.puppy-snuggles.com/27700217/do-i-paint-my-boy-dogs-nails-yes-i-do)
+- [He does this every morning &lpar;OC&rpar;](https://news.puppy-snuggles.com/26856999/he-does-this-every-morning-oc)
+- [It is the elves that are doing the job!](https://news.puppy-snuggles.com/23671938/it-is-the-elves-that-are-doing-the-job)
+- [Lost a friend today. Strong, funny, and loyal to the end. Rest in peace, sweet J.D. :&lpar; March 31, 2008 - December 6, 2022](https://news.puppy-snuggles.com/23593368/lost-a-friend-today-strong-funny-and-loyal-to-the-end-rest-in-peace-sweet-jd-march-31-2008-december-6-2022)
+- [All hikes are happy hikes for these 2](https://news.puppy-snuggles.com/23233656/all-hikes-are-happy-hikes-for-these-2)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
