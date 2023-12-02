@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [do I paint my boy dog&amp;#039;s nails? yes I do](https://news.puppy-snuggles.com/27700217/do-i-paint-my-boy-dogs-nails-yes-i-do)
-- [He does this every morning &lpar;OC&rpar;](https://news.puppy-snuggles.com/26856999/he-does-this-every-morning-oc)
-- [It is the elves that are doing the job!](https://news.puppy-snuggles.com/23671938/it-is-the-elves-that-are-doing-the-job)
-- [Lost a friend today. Strong, funny, and loyal to the end. Rest in peace, sweet J.D. :&lpar; March 31, 2008 - December 6, 2022](https://news.puppy-snuggles.com/23593368/lost-a-friend-today-strong-funny-and-loyal-to-the-end-rest-in-peace-sweet-jd-march-31-2008-december-6-2022)
-- [All hikes are happy hikes for these 2](https://news.puppy-snuggles.com/23233656/all-hikes-are-happy-hikes-for-these-2)
+- [Do you think actually has a fever](https://news.puppy-snuggles.com/40302077/do-you-think-actually-has-a-fever)
+- [Ha ha ha, good teacher! Good student! Good boy!](https://news.puppy-snuggles.com/36178603/ha-ha-ha-good-teacher-good-student-good-boy)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/30751604/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [Happy Birthday to Ozwald! He&amp;#039;s 6 today!](https://news.puppy-snuggles.com/22034335/happy-birthday-to-ozwald-hes-6-today)
+- [Took a picture of Charlie at the dog park ❤️](https://news.puppy-snuggles.com/19886949/took-a-picture-of-charlie-at-the-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
