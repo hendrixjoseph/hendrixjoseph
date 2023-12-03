@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do you think actually has a fever](https://news.puppy-snuggles.com/40302077/do-you-think-actually-has-a-fever)
-- [Ha ha ha, good teacher! Good student! Good boy!](https://news.puppy-snuggles.com/36178603/ha-ha-ha-good-teacher-good-student-good-boy)
-- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/30751604/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
-- [Happy Birthday to Ozwald! He&amp;#039;s 6 today!](https://news.puppy-snuggles.com/22034335/happy-birthday-to-ozwald-hes-6-today)
-- [Took a picture of Charlie at the dog park ❤️](https://news.puppy-snuggles.com/19886949/took-a-picture-of-charlie-at-the-dog-park)
+- [This is Ruby. She likes to pet the other dogs at daycare.](https://news.puppy-snuggles.com/43672523/this-is-ruby-she-likes-to-pet-the-other-dogs-at-daycare)
+- [She smiles in her Sleep 😊](https://news.puppy-snuggles.com/30163328/she-smiles-in-her-sleep)
+- [I lost my boy, my furry son, my soul mate 44 days ago. My heart has been heavy, shattered, broken.](https://news.puppy-snuggles.com/27261576/i-lost-my-boy-my-furry-son-my-soul-mate-44-days-ago-my-heart-has-been-heavy-shattered-broken)
+- [she is my beautiful pet, she is 6 years old , my dog](https://news.puppy-snuggles.com/24303727/she-is-my-beautiful-pet-she-is-6-years-old-my-dog)
+- [[OC] Doggo enjoying the last warm days of the year.](https://news.puppy-snuggles.com/22590715/oc-doggo-enjoying-the-last-warm-days-of-the-year)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
