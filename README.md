@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Ruby. She likes to pet the other dogs at daycare.](https://news.puppy-snuggles.com/43672523/this-is-ruby-she-likes-to-pet-the-other-dogs-at-daycare)
-- [She smiles in her Sleep 😊](https://news.puppy-snuggles.com/30163328/she-smiles-in-her-sleep)
-- [I lost my boy, my furry son, my soul mate 44 days ago. My heart has been heavy, shattered, broken.](https://news.puppy-snuggles.com/27261576/i-lost-my-boy-my-furry-son-my-soul-mate-44-days-ago-my-heart-has-been-heavy-shattered-broken)
-- [she is my beautiful pet, she is 6 years old , my dog](https://news.puppy-snuggles.com/24303727/she-is-my-beautiful-pet-she-is-6-years-old-my-dog)
-- [[OC] Doggo enjoying the last warm days of the year.](https://news.puppy-snuggles.com/22590715/oc-doggo-enjoying-the-last-warm-days-of-the-year)
+- [Abigail&amp;#039;s upside down smiles for apple snacks!](https://news.puppy-snuggles.com/46514375/abigails-upside-down-smiles-for-apple-snacks)
+- [What should I name him? Was thinking Kodak but I’m open to names. Just got him not even a hour ago.](https://news.puppy-snuggles.com/46514379/what-should-i-name-him-was-thinking-kodak-but-im-open-to-names-just-got-him-not-even-a-hour-ago)
+- [Are you sure it is good for Instagram?](https://news.puppy-snuggles.com/46514376/are-you-sure-it-is-good-for-instagram)
+- [My 4m baby Valor 😍 if you want you can follow him on IG @valortheaussie](https://news.puppy-snuggles.com/46514380/my-4m-baby-valor-if-you-want-you-can-follow-him-on-ig-at-valortheaussie)
+- [Had to put down one my best friends down yesterday. Copper I will miss you and always love you my little rat rest now ❤️](https://news.puppy-snuggles.com/46514374/had-to-put-down-one-my-best-friends-down-yesterday-copper-i-will-miss-you-and-always-love-you-my-little-rat-rest-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
