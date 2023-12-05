@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Abigail&amp;#039;s upside down smiles for apple snacks!](https://news.puppy-snuggles.com/46514375/abigails-upside-down-smiles-for-apple-snacks)
-- [What should I name him? Was thinking Kodak but I’m open to names. Just got him not even a hour ago.](https://news.puppy-snuggles.com/46514379/what-should-i-name-him-was-thinking-kodak-but-im-open-to-names-just-got-him-not-even-a-hour-ago)
-- [Are you sure it is good for Instagram?](https://news.puppy-snuggles.com/46514376/are-you-sure-it-is-good-for-instagram)
-- [My 4m baby Valor 😍 if you want you can follow him on IG @valortheaussie](https://news.puppy-snuggles.com/46514380/my-4m-baby-valor-if-you-want-you-can-follow-him-on-ig-at-valortheaussie)
-- [Had to put down one my best friends down yesterday. Copper I will miss you and always love you my little rat rest now ❤️](https://news.puppy-snuggles.com/46514374/had-to-put-down-one-my-best-friends-down-yesterday-copper-i-will-miss-you-and-always-love-you-my-little-rat-rest-now)
+- [This is Teddy Bear 🐻 here to brighten your day](https://news.puppy-snuggles.com/44450129/this-is-teddy-bear-here-to-brighten-your-day)
+- [The new member of the family here, would you help me choose a name for this little boy?](https://news.puppy-snuggles.com/40775278/the-new-member-of-the-family-here-would-you-help-me-choose-a-name-for-this-little-boy)
+- [Puppy Kiss 💋](https://news.puppy-snuggles.com/35313663/puppy-kiss)
+- [My teenage dog that everyone thinks is some expensive rare breed, but who is actually a supermutt! Meet Izzy :&rpar;](https://news.puppy-snuggles.com/24631611/my-teenage-dog-that-everyone-thinks-is-some-expensive-rare-breed-but-who-is-actually-a-supermutt-meet-izzy)
+- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
