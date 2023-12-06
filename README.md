@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Teddy Bear 🐻 here to brighten your day](https://news.puppy-snuggles.com/44450129/this-is-teddy-bear-here-to-brighten-your-day)
-- [The new member of the family here, would you help me choose a name for this little boy?](https://news.puppy-snuggles.com/40775278/the-new-member-of-the-family-here-would-you-help-me-choose-a-name-for-this-little-boy)
-- [Puppy Kiss 💋](https://news.puppy-snuggles.com/35313663/puppy-kiss)
-- [My teenage dog that everyone thinks is some expensive rare breed, but who is actually a supermutt! Meet Izzy :&rpar;](https://news.puppy-snuggles.com/24631611/my-teenage-dog-that-everyone-thinks-is-some-expensive-rare-breed-but-who-is-actually-a-supermutt-meet-izzy)
-- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
+- [They told me this brute wasn&amp;#039;t going to be *that* big. 🤣](https://news.puppy-snuggles.com/46564818/they-told-me-this-brute-wasnt-going-to-be-that-big)
+- [watch out for the vicious dog](https://news.puppy-snuggles.com/46104111/watch-out-for-the-vicious-dog)
+- [When the floor is made of lava and chicks](https://news.puppy-snuggles.com/33095894/when-the-floor-is-made-of-lava-and-chicks)
+- [do I paint my boy dog&amp;#039;s nails? yes I do](https://news.puppy-snuggles.com/27700217/do-i-paint-my-boy-dogs-nails-yes-i-do)
+- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
