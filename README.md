@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [They told me this brute wasn&amp;#039;t going to be *that* big. 🤣](https://news.puppy-snuggles.com/46564818/they-told-me-this-brute-wasnt-going-to-be-that-big)
-- [watch out for the vicious dog](https://news.puppy-snuggles.com/46104111/watch-out-for-the-vicious-dog)
-- [When the floor is made of lava and chicks](https://news.puppy-snuggles.com/33095894/when-the-floor-is-made-of-lava-and-chicks)
-- [do I paint my boy dog&amp;#039;s nails? yes I do](https://news.puppy-snuggles.com/27700217/do-i-paint-my-boy-dogs-nails-yes-i-do)
-- [Telling my dog I love him](https://news.puppy-snuggles.com/23823384/telling-my-dog-i-love-him)
+- [Can you tell she loves the ball?](https://news.puppy-snuggles.com/35620656/can-you-tell-she-loves-the-ball)
+- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
+- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [Bamalama with a smile and a wink](https://news.puppy-snuggles.com/22904844/bamalama-with-a-smile-and-a-wink)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
