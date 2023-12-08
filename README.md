@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can you tell she loves the ball?](https://news.puppy-snuggles.com/35620656/can-you-tell-she-loves-the-ball)
-- [Prepare to die from cuteness.](https://news.puppy-snuggles.com/23072312/prepare-to-die-from-cuteness)
-- [Guess his breed - Good luck!!](https://news.puppy-snuggles.com/22969223/guess-his-breed-good-luck)
+- [Here are some photos of my sweet boy for any of you who need some cute puppy pictures today!](https://news.puppy-snuggles.com/46702033/here-are-some-photos-of-my-sweet-boy-for-any-of-you-who-need-some-cute-puppy-pictures-today)
+- [Happy to report that King, the dog from the shelter I posted on Christmas a few weeks ago, is home with me now ❤️](https://news.puppy-snuggles.com/25376147/happy-to-report-that-king-the-dog-from-the-shelter-i-posted-on-christmas-a-few-weeks-ago-is-home-with-me-now)
+- [Ever need to know what its like owning a Jack Russell? Heres your answer](https://news.puppy-snuggles.com/23919371/ever-need-to-know-what-its-like-owning-a-jack-russell-heres-your-answer)
+- [Meet Lucy! Her face is stuck in happy mode.](https://news.puppy-snuggles.com/23048827/meet-lucy-her-face-is-stuck-in-happy-mode)
 - [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [Bamalama with a smile and a wink](https://news.puppy-snuggles.com/22904844/bamalama-with-a-smile-and-a-wink)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
