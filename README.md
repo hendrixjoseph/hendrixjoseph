@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here are some photos of my sweet boy for any of you who need some cute puppy pictures today!](https://news.puppy-snuggles.com/46702033/here-are-some-photos-of-my-sweet-boy-for-any-of-you-who-need-some-cute-puppy-pictures-today)
-- [Happy to report that King, the dog from the shelter I posted on Christmas a few weeks ago, is home with me now ❤️](https://news.puppy-snuggles.com/25376147/happy-to-report-that-king-the-dog-from-the-shelter-i-posted-on-christmas-a-few-weeks-ago-is-home-with-me-now)
-- [Ever need to know what its like owning a Jack Russell? Heres your answer](https://news.puppy-snuggles.com/23919371/ever-need-to-know-what-its-like-owning-a-jack-russell-heres-your-answer)
-- [Meet Lucy! Her face is stuck in happy mode.](https://news.puppy-snuggles.com/23048827/meet-lucy-her-face-is-stuck-in-happy-mode)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [My mom says she doesn&amp;#039;t share food with the dogs.](https://news.puppy-snuggles.com/46564812/my-mom-says-she-doesnt-share-food-with-the-dogs)
+- [Posing for a picture](https://news.puppy-snuggles.com/33394793/posing-for-a-picture)
+- [Yesterday I said goodbye to my Best Friend. Rest in peace Monty](https://news.puppy-snuggles.com/30406623/yesterday-i-said-goodbye-to-my-best-friend-rest-in-peace-monty)
+- [Her face when she wants her treat.](https://news.puppy-snuggles.com/30163332/her-face-when-she-wants-her-treat)
+- [I know i know, I hate getting out of bed too.](https://news.puppy-snuggles.com/23719557/i-know-i-know-i-hate-getting-out-of-bed-too)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
