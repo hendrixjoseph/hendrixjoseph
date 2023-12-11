@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mom says she doesn&amp;#039;t share food with the dogs.](https://news.puppy-snuggles.com/46564812/my-mom-says-she-doesnt-share-food-with-the-dogs)
-- [Posing for a picture](https://news.puppy-snuggles.com/33394793/posing-for-a-picture)
-- [Yesterday I said goodbye to my Best Friend. Rest in peace Monty](https://news.puppy-snuggles.com/30406623/yesterday-i-said-goodbye-to-my-best-friend-rest-in-peace-monty)
-- [Her face when she wants her treat.](https://news.puppy-snuggles.com/30163332/her-face-when-she-wants-her-treat)
-- [I know i know, I hate getting out of bed too.](https://news.puppy-snuggles.com/23719557/i-know-i-know-i-hate-getting-out-of-bed-too)
+- [happy girl!](https://news.puppy-snuggles.com/38110584/happy-girl)
+- [The newest addition to our family, Bruno and my pitty mix / Bruno&amp;#039;s new best friend Desi](https://news.puppy-snuggles.com/37881222/the-newest-addition-to-our-family-bruno-and-my-pitty-mix-brunos-new-best-friend-desi)
+- [First pup cup smile!](https://news.puppy-snuggles.com/32688210/first-pup-cup-smile)
+- [my moms great dane, mr. moose](https://news.puppy-snuggles.com/24272075/my-moms-great-dane-mr-moose)
+- [Huskies are naturally jealous 🤣](https://news.puppy-snuggles.com/23931077/huskies-are-naturally-jealous)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
