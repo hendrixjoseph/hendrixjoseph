@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [happy girl!](https://news.puppy-snuggles.com/38110584/happy-girl)
-- [The newest addition to our family, Bruno and my pitty mix / Bruno&amp;#039;s new best friend Desi](https://news.puppy-snuggles.com/37881222/the-newest-addition-to-our-family-bruno-and-my-pitty-mix-brunos-new-best-friend-desi)
-- [First pup cup smile!](https://news.puppy-snuggles.com/32688210/first-pup-cup-smile)
-- [my moms great dane, mr. moose](https://news.puppy-snuggles.com/24272075/my-moms-great-dane-mr-moose)
-- [Huskies are naturally jealous 🤣](https://news.puppy-snuggles.com/23931077/huskies-are-naturally-jealous)
+- [This is Taco, she just wanted to say hi to everyone!](https://news.puppy-snuggles.com/46771916/this-is-taco-she-just-wanted-to-say-hi-to-everyone)
+- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
+- [What Halloween costume should I try to make for my dog?](https://news.puppy-snuggles.com/43948420/what-halloween-costume-should-i-try-to-make-for-my-dog)
+- [How I get greeted every morning](https://news.puppy-snuggles.com/39203182/how-i-get-greeted-every-morning)
+- [Weird looking Birb](https://news.puppy-snuggles.com/34682997/weird-looking-birb)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
