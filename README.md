@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Taco, she just wanted to say hi to everyone!](https://news.puppy-snuggles.com/46771916/this-is-taco-she-just-wanted-to-say-hi-to-everyone)
-- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
-- [What Halloween costume should I try to make for my dog?](https://news.puppy-snuggles.com/43948420/what-halloween-costume-should-i-try-to-make-for-my-dog)
-- [How I get greeted every morning](https://news.puppy-snuggles.com/39203182/how-i-get-greeted-every-morning)
-- [Weird looking Birb](https://news.puppy-snuggles.com/34682997/weird-looking-birb)
+- [More puppy walks 🥰](https://news.puppy-snuggles.com/38014205/more-puppy-walks)
+- [Billy’s 8th birthday!](https://news.puppy-snuggles.com/23658547/billys-8th-birthday)
+- [Took a picture of my dog Gilbert in Mexico.](https://news.puppy-snuggles.com/19352893/took-a-picture-of-my-dog-gilbert-in-mexico)
+- [My aunts goat thinks it&amp;#039;s a dog. It wont associate with the other goats and only hangs out with the dogs.](https://news.puppy-snuggles.com/19055135/my-aunts-goat-thinks-its-a-dog-it-wont-associate-with-the-other-goats-and-only-hangs-out-with-the-dogs)
+- [Baseball with doggo!](https://news.puppy-snuggles.com/17186043/baseball-with-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
