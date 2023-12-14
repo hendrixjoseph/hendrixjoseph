@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [More puppy walks 🥰](https://news.puppy-snuggles.com/38014205/more-puppy-walks)
-- [Billy’s 8th birthday!](https://news.puppy-snuggles.com/23658547/billys-8th-birthday)
-- [Took a picture of my dog Gilbert in Mexico.](https://news.puppy-snuggles.com/19352893/took-a-picture-of-my-dog-gilbert-in-mexico)
-- [My aunts goat thinks it&amp;#039;s a dog. It wont associate with the other goats and only hangs out with the dogs.](https://news.puppy-snuggles.com/19055135/my-aunts-goat-thinks-its-a-dog-it-wont-associate-with-the-other-goats-and-only-hangs-out-with-the-dogs)
-- [Baseball with doggo!](https://news.puppy-snuggles.com/17186043/baseball-with-doggo)
+- [Does she kiss her dog too much?](https://news.puppy-snuggles.com/46928649/does-she-kiss-her-dog-too-much)
+- [You can tell by the look in your eyes that the melon is delicious](https://news.puppy-snuggles.com/46104112/you-can-tell-by-the-look-in-your-eyes-that-the-melon-is-delicious)
+- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
+- [Woof! I&amp;#039;m so happy you speak my language hooman!](https://news.puppy-snuggles.com/35237794/woof-im-so-happy-you-speak-my-language-hooman)
+- [Daisy smiles are contagious](https://news.puppy-snuggles.com/32954639/daisy-smiles-are-contagious)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
