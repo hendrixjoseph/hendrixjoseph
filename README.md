@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does she kiss her dog too much?](https://news.puppy-snuggles.com/46928649/does-she-kiss-her-dog-too-much)
-- [You can tell by the look in your eyes that the melon is delicious](https://news.puppy-snuggles.com/46104112/you-can-tell-by-the-look-in-your-eyes-that-the-melon-is-delicious)
-- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
-- [Woof! I&amp;#039;m so happy you speak my language hooman!](https://news.puppy-snuggles.com/35237794/woof-im-so-happy-you-speak-my-language-hooman)
-- [Daisy smiles are contagious](https://news.puppy-snuggles.com/32954639/daisy-smiles-are-contagious)
+- [some very cute pics of my sweet babies :&rpar;](https://news.puppy-snuggles.com/46928640/some-very-cute-pics-of-my-sweet-babies)
+- [I think Murphy liked the tunnel](https://news.puppy-snuggles.com/46928647/i-think-murphy-liked-the-tunnel)
+- [Running in opposite directions to see who your dog loves more](https://news.puppy-snuggles.com/44398908/running-in-opposite-directions-to-see-who-your-dog-loves-more)
+- [She’s not much of a puppy anymore but she’s got a permanent smile that we all adore](https://news.puppy-snuggles.com/27430552/shes-not-much-of-a-puppy-anymore-but-shes-got-a-permanent-smile-that-we-all-adore)
+- [3 months old now](https://news.puppy-snuggles.com/25658010/3-months-old-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
