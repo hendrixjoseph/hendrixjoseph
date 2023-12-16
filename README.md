@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [some very cute pics of my sweet babies :&rpar;](https://news.puppy-snuggles.com/46928640/some-very-cute-pics-of-my-sweet-babies)
-- [I think Murphy liked the tunnel](https://news.puppy-snuggles.com/46928647/i-think-murphy-liked-the-tunnel)
-- [Running in opposite directions to see who your dog loves more](https://news.puppy-snuggles.com/44398908/running-in-opposite-directions-to-see-who-your-dog-loves-more)
-- [She’s not much of a puppy anymore but she’s got a permanent smile that we all adore](https://news.puppy-snuggles.com/27430552/shes-not-much-of-a-puppy-anymore-but-shes-got-a-permanent-smile-that-we-all-adore)
-- [3 months old now](https://news.puppy-snuggles.com/25658010/3-months-old-now)
+- [My Handsome, 13 year old boy](https://news.puppy-snuggles.com/43546473/my-handsome-13-year-old-boy)
+- [Dogs are my favorite thing in the world!](https://news.puppy-snuggles.com/33157273/dogs-are-my-favorite-thing-in-the-world)
+- [they brought therapy dogs to campus](https://news.puppy-snuggles.com/30520787/they-brought-therapy-dogs-to-campus)
+- [Adopted this senior dog today. Welcome home Buck!](https://news.puppy-snuggles.com/25874102/adopted-this-senior-dog-today-welcome-home-buck)
+- [Pi Juice has crossed the Rainbow Bridge today. We will always love you Juicy. Rest in peace.](https://news.puppy-snuggles.com/24832388/pi-juice-has-crossed-the-rainbow-bridge-today-we-will-always-love-you-juicy-rest-in-peace)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
