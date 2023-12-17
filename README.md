@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Handsome, 13 year old boy](https://news.puppy-snuggles.com/43546473/my-handsome-13-year-old-boy)
-- [Dogs are my favorite thing in the world!](https://news.puppy-snuggles.com/33157273/dogs-are-my-favorite-thing-in-the-world)
-- [they brought therapy dogs to campus](https://news.puppy-snuggles.com/30520787/they-brought-therapy-dogs-to-campus)
-- [Adopted this senior dog today. Welcome home Buck!](https://news.puppy-snuggles.com/25874102/adopted-this-senior-dog-today-welcome-home-buck)
-- [Pi Juice has crossed the Rainbow Bridge today. We will always love you Juicy. Rest in peace.](https://news.puppy-snuggles.com/24832388/pi-juice-has-crossed-the-rainbow-bridge-today-we-will-always-love-you-juicy-rest-in-peace)
+- [Awesome Dog Help Owner](https://news.puppy-snuggles.com/46885755/awesome-dog-help-owner)
+- [Why is he fighting it? Does he also have more work to do?](https://news.puppy-snuggles.com/44642312/why-is-he-fighting-it-does-he-also-have-more-work-to-do)
+- [This old feller turns 15 today](https://news.puppy-snuggles.com/40829158/this-old-feller-turns-15-today)
+- [This is whiskey. Our new husky puppy. [OC]](https://news.puppy-snuggles.com/34122040/this-is-whiskey-our-new-husky-puppy-oc)
+- [cuty](https://news.puppy-snuggles.com/26310090/cuty)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
