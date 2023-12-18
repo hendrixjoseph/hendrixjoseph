@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Awesome Dog Help Owner](https://news.puppy-snuggles.com/46885755/awesome-dog-help-owner)
-- [Why is he fighting it? Does he also have more work to do?](https://news.puppy-snuggles.com/44642312/why-is-he-fighting-it-does-he-also-have-more-work-to-do)
-- [This old feller turns 15 today](https://news.puppy-snuggles.com/40829158/this-old-feller-turns-15-today)
-- [This is whiskey. Our new husky puppy. [OC]](https://news.puppy-snuggles.com/34122040/this-is-whiskey-our-new-husky-puppy-oc)
-- [cuty](https://news.puppy-snuggles.com/26310090/cuty)
+- [Meet Fudge - my parents long suffering dog 😂.](https://news.puppy-snuggles.com/46996000/meet-fudge-my-parents-long-suffering-dog)
+- [what would you do in this case?](https://news.puppy-snuggles.com/46995994/what-would-you-do-in-this-case)
+- [My doggy always takes my spot as soon as I move out the bed 😂🫶](https://news.puppy-snuggles.com/46995996/my-doggy-always-takes-my-spot-as-soon-as-i-move-out-the-bed)
+- [&lpar;OC&rpar; A happy puppy smile!❤️ 1 eye is not visible but the smile is there 🥰](https://news.puppy-snuggles.com/46995995/oc-a-happy-puppy-smile-1-eye-is-not-visible-but-the-smile-is-there)
+- [This is my dog Yoda.](https://news.puppy-snuggles.com/46995992/this-is-my-dog-yoda)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
