@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Fudge - my parents long suffering dog 😂.](https://news.puppy-snuggles.com/46996000/meet-fudge-my-parents-long-suffering-dog)
-- [what would you do in this case?](https://news.puppy-snuggles.com/46995994/what-would-you-do-in-this-case)
 - [My doggy always takes my spot as soon as I move out the bed 😂🫶](https://news.puppy-snuggles.com/46995996/my-doggy-always-takes-my-spot-as-soon-as-i-move-out-the-bed)
-- [&lpar;OC&rpar; A happy puppy smile!❤️ 1 eye is not visible but the smile is there 🥰](https://news.puppy-snuggles.com/46995995/oc-a-happy-puppy-smile-1-eye-is-not-visible-but-the-smile-is-there)
-- [This is my dog Yoda.](https://news.puppy-snuggles.com/46995992/this-is-my-dog-yoda)
+- [Hello. Could you please give me some food after this handshake?](https://news.puppy-snuggles.com/46885766/hello-could-you-please-give-me-some-food-after-this-handshake)
+- [Very cute dog](https://news.puppy-snuggles.com/46747687/very-cute-dog)
+- [He’s such a goober](https://news.puppy-snuggles.com/43395794/hes-such-a-goober)
+- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
