@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My doggy always takes my spot as soon as I move out the bed 😂🫶](https://news.puppy-snuggles.com/46995996/my-doggy-always-takes-my-spot-as-soon-as-i-move-out-the-bed)
-- [Hello. Could you please give me some food after this handshake?](https://news.puppy-snuggles.com/46885766/hello-could-you-please-give-me-some-food-after-this-handshake)
-- [Very cute dog](https://news.puppy-snuggles.com/46747687/very-cute-dog)
-- [He’s such a goober](https://news.puppy-snuggles.com/43395794/hes-such-a-goober)
-- [Had to put our dog of 12 years to sleep today bec of cancer. This is my favorite photo of her.](https://news.puppy-snuggles.com/23593370/had-to-put-our-dog-of-12-years-to-sleep-today-bec-of-cancer-this-is-my-favorite-photo-of-her)
+- [Nova the happiest pup ✨](https://news.puppy-snuggles.com/40617898/nova-the-happiest-pup)
+- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
+- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
+- [Can you help me find out what breed he is please? :3](https://news.puppy-snuggles.com/22482783/can-you-help-me-find-out-what-breed-he-is-please-3)
+- [Best dog ever. Henry the cocker spaniel aged 13. Love him to bits.](https://news.puppy-snuggles.com/17826538/best-dog-ever-henry-the-cocker-spaniel-aged-13-love-him-to-bits)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
