@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nova the happiest pup ✨](https://news.puppy-snuggles.com/40617898/nova-the-happiest-pup)
-- [What breed is she? Found on the side of the road today in Nowhere, TX.](https://news.puppy-snuggles.com/28630580/what-breed-is-she-found-on-the-side-of-the-road-today-in-nowhere-tx)
-- [little guy was roaming the streets. no collar, no chip, no idea what breed he is.](https://news.puppy-snuggles.com/24369031/little-guy-was-roaming-the-streets-no-collar-no-chip-no-idea-what-breed-he-is)
-- [Can you help me find out what breed he is please? :3](https://news.puppy-snuggles.com/22482783/can-you-help-me-find-out-what-breed-he-is-please-3)
-- [Best dog ever. Henry the cocker spaniel aged 13. Love him to bits.](https://news.puppy-snuggles.com/17826538/best-dog-ever-henry-the-cocker-spaniel-aged-13-love-him-to-bits)
+- [My everything passed the rainbow bridge a couple of days ago. He will be missed so much. 🖤](https://news.puppy-snuggles.com/46747680/my-everything-passed-the-rainbow-bridge-a-couple-of-days-ago-he-will-be-missed-so-much)
+- [For sanity&amp;#039;s sake... no!](https://news.puppy-snuggles.com/45807381/for-sanitys-sake-no)
+- [What do we call this dog?](https://news.puppy-snuggles.com/43129781/what-do-we-call-this-dog)
+- [Picked up my puppy from the humane society a few weeks ago and he’s already my best friend](https://news.puppy-snuggles.com/32488269/picked-up-my-puppy-from-the-humane-society-a-few-weeks-ago-and-hes-already-my-best-friend)
+- [she is my beautiful pet, she is 6 years old , my dog](https://news.puppy-snuggles.com/24303727/she-is-my-beautiful-pet-she-is-6-years-old-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
