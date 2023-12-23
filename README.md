@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [For sanity&amp;#039;s sake... no!](https://news.puppy-snuggles.com/45807381/for-sanitys-sake-no)
-- [This is Boomer, he crossed over the rainbow bridge a few days ago and I wanted to share his pics with everyone. Give your pups a big kiss and hug tonight for him &amp;amp;lt;3](https://news.puppy-snuggles.com/45744185/this-is-boomer-he-crossed-over-the-rainbow-bridge-a-few-days-ago-and-i-wanted-to-share-his-pics-with-everyone-give-your-pups-a-big-kiss-and-hug-tonight-for-him-lt3)
-- [This is Teddy Bear 🐻 here to brighten your day](https://news.puppy-snuggles.com/44450129/this-is-teddy-bear-here-to-brighten-your-day)
-- [Piper always has the goofiest smiles.](https://news.puppy-snuggles.com/40338541/piper-always-has-the-goofiest-smiles)
-- [Picked up my puppy from the humane society a few weeks ago and he’s already my best friend](https://news.puppy-snuggles.com/32488269/picked-up-my-puppy-from-the-humane-society-a-few-weeks-ago-and-hes-already-my-best-friend)
+- [Puppy howling](https://news.puppy-snuggles.com/47682311/puppy-howling)
+- [Elliot then and now 🥰](https://news.puppy-snuggles.com/46747688/elliot-then-and-now)
+- [Sitting in a park and this dude keeps trying to give me his toy](https://news.puppy-snuggles.com/46747686/sitting-in-a-park-and-this-dude-keeps-trying-to-give-me-his-toy)
+- [My 15 year old girl howling for breakfast :&rpar;](https://news.puppy-snuggles.com/29903020/my-15-year-old-girl-howling-for-breakfast)
+- [Where is my dog?](https://news.puppy-snuggles.com/23740417/where-is-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
