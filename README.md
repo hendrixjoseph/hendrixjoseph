@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy howling](https://news.puppy-snuggles.com/47682311/puppy-howling)
-- [Elliot then and now 🥰](https://news.puppy-snuggles.com/46747688/elliot-then-and-now)
-- [Sitting in a park and this dude keeps trying to give me his toy](https://news.puppy-snuggles.com/46747686/sitting-in-a-park-and-this-dude-keeps-trying-to-give-me-his-toy)
-- [My 15 year old girl howling for breakfast :&rpar;](https://news.puppy-snuggles.com/29903020/my-15-year-old-girl-howling-for-breakfast)
-- [Where is my dog?](https://news.puppy-snuggles.com/23740417/where-is-my-dog)
+- [Said goodbye to a member of the family today](https://news.puppy-snuggles.com/39643088/said-goodbye-to-a-member-of-the-family-today)
+- [Hi im chamchi! ;&rpar;](https://news.puppy-snuggles.com/25658005/hi-im-chamchi)
+- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
+- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
+- [Moe’s version of a smile 🥴](https://news.puppy-snuggles.com/22978568/moes-version-of-a-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
