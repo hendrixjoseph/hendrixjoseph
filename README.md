@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to a member of the family today](https://news.puppy-snuggles.com/39643088/said-goodbye-to-a-member-of-the-family-today)
-- [Hi im chamchi! ;&rpar;](https://news.puppy-snuggles.com/25658005/hi-im-chamchi)
-- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
-- [Dog sitting today while my friend is with her parents on Thanksgiving! Except her dog is sitting on me lol](https://news.puppy-snuggles.com/23153192/dog-sitting-today-while-my-friend-is-with-her-parents-on-thanksgiving-except-her-dog-is-sitting-on-me-lol)
-- [Moe’s version of a smile 🥴](https://news.puppy-snuggles.com/22978568/moes-version-of-a-smile)
+- [All smiles at daycare.](https://news.puppy-snuggles.com/47767289/all-smiles-at-daycare)
+- [doggo hates mangos but tries his best](https://news.puppy-snuggles.com/47702701/doggo-hates-mangos-but-tries-his-best)
+- [🥴 why are you so buff? 🤣this is Rocco, we adopted him a little over a year ago.](https://news.puppy-snuggles.com/47702713/why-are-you-so-buff-this-is-rocco-we-adopted-him-a-little-over-a-year-ago)
+- [Puppy howling](https://news.puppy-snuggles.com/47682311/puppy-howling)
+- [The race is on](https://news.puppy-snuggles.com/47682310/the-race-is-on)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
