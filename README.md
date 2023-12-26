@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All smiles at daycare.](https://news.puppy-snuggles.com/47767289/all-smiles-at-daycare)
-- [doggo hates mangos but tries his best](https://news.puppy-snuggles.com/47702701/doggo-hates-mangos-but-tries-his-best)
-- [🥴 why are you so buff? 🤣this is Rocco, we adopted him a little over a year ago.](https://news.puppy-snuggles.com/47702713/why-are-you-so-buff-this-is-rocco-we-adopted-him-a-little-over-a-year-ago)
-- [Puppy howling](https://news.puppy-snuggles.com/47682311/puppy-howling)
-- [The race is on](https://news.puppy-snuggles.com/47682310/the-race-is-on)
+- [This baby needs a chocolatey name](https://news.puppy-snuggles.com/43811005/this-baby-needs-a-chocolatey-name)
+- [Hello zoey](https://news.puppy-snuggles.com/23850507/hello-zoey)
+- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
+- [She’s definitely a daddy’s girl ❤️](https://news.puppy-snuggles.com/23072306/shes-definitely-a-daddys-girl)
+- [Love you my son](https://news.puppy-snuggles.com/22856256/love-you-my-son)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
