@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This baby needs a chocolatey name](https://news.puppy-snuggles.com/43811005/this-baby-needs-a-chocolatey-name)
-- [Hello zoey](https://news.puppy-snuggles.com/23850507/hello-zoey)
-- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
-- [She’s definitely a daddy’s girl ❤️](https://news.puppy-snuggles.com/23072306/shes-definitely-a-daddys-girl)
-- [Love you my son](https://news.puppy-snuggles.com/22856256/love-you-my-son)
+- [Herself at home](https://news.puppy-snuggles.com/45987346/herself-at-home)
+- [the day i adopted my boy + lil’ appreciation for my baby](https://news.puppy-snuggles.com/42125927/the-day-i-adopted-my-boy-lil-appreciation-for-my-baby)
+- [Happy dog from the weekend walk](https://news.puppy-snuggles.com/34802932/happy-dog-from-the-weekend-walk)
+- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/33577567/oc)
+- [Saturday selfie to make your day 🥴](https://news.puppy-snuggles.com/22960370/saturday-selfie-to-make-your-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
