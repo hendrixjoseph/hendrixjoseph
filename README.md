@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Herself at home](https://news.puppy-snuggles.com/45987346/herself-at-home)
-- [the day i adopted my boy + lil’ appreciation for my baby](https://news.puppy-snuggles.com/42125927/the-day-i-adopted-my-boy-lil-appreciation-for-my-baby)
-- [Happy dog from the weekend walk](https://news.puppy-snuggles.com/34802932/happy-dog-from-the-weekend-walk)
-- [&lpar;OC&rpar;](https://news.puppy-snuggles.com/33577567/oc)
-- [Saturday selfie to make your day 🥴](https://news.puppy-snuggles.com/22960370/saturday-selfie-to-make-your-day)
+- [City dog goes to the country](https://news.puppy-snuggles.com/45929513/city-dog-goes-to-the-country)
+- [What would you have called my boy?](https://news.puppy-snuggles.com/42035150/what-would-you-have-called-my-boy)
+- [Dogs are the best](https://news.puppy-snuggles.com/41506632/dogs-are-the-best)
+- [The face of pure glee and happiness](https://news.puppy-snuggles.com/39292004/the-face-of-pure-glee-and-happiness)
+- [Hiya mom. I just pooped in the house 🙃](https://news.puppy-snuggles.com/23424322/hiya-mom-i-just-pooped-in-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
