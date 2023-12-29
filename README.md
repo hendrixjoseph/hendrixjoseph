@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [City dog goes to the country](https://news.puppy-snuggles.com/45929513/city-dog-goes-to-the-country)
-- [What would you have called my boy?](https://news.puppy-snuggles.com/42035150/what-would-you-have-called-my-boy)
-- [Dogs are the best](https://news.puppy-snuggles.com/41506632/dogs-are-the-best)
-- [The face of pure glee and happiness](https://news.puppy-snuggles.com/39292004/the-face-of-pure-glee-and-happiness)
-- [Hiya mom. I just pooped in the house 🙃](https://news.puppy-snuggles.com/23424322/hiya-mom-i-just-pooped-in-the-house)
+- [&lpar;OC&rpar; A happy puppy smile!❤️ 1 eye is not visible but the smile is there 🥰](https://news.puppy-snuggles.com/46995995/oc-a-happy-puppy-smile-1-eye-is-not-visible-but-the-smile-is-there)
+- [My cookie monster. Unsure of his breed. Any ideas?](https://news.puppy-snuggles.com/45073876/my-cookie-monster-unsure-of-his-breed-any-ideas)
+- [A montage of aspen smiling](https://news.puppy-snuggles.com/38284340/a-montage-of-aspen-smiling)
+- [The baby](https://news.puppy-snuggles.com/24749814/the-baby)
+- [Zoe smiles](https://news.puppy-snuggles.com/24183215/zoe-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
