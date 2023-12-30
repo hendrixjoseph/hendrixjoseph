@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&lpar;OC&rpar; A happy puppy smile!❤️ 1 eye is not visible but the smile is there 🥰](https://news.puppy-snuggles.com/46995995/oc-a-happy-puppy-smile-1-eye-is-not-visible-but-the-smile-is-there)
-- [My cookie monster. Unsure of his breed. Any ideas?](https://news.puppy-snuggles.com/45073876/my-cookie-monster-unsure-of-his-breed-any-ideas)
-- [A montage of aspen smiling](https://news.puppy-snuggles.com/38284340/a-montage-of-aspen-smiling)
-- [The baby](https://news.puppy-snuggles.com/24749814/the-baby)
-- [Zoe smiles](https://news.puppy-snuggles.com/24183215/zoe-smiles)
+- [It&amp;#039;s been a year without my gentle giant... Miss you Kimi](https://news.puppy-snuggles.com/40357688/its-been-a-year-without-my-gentle-giant-miss-you-kimi)
+- [Wife went to go let my parents dogs out after they had to unexpectedly leave today. Snoopy is not thrilled with the change of plans](https://news.puppy-snuggles.com/39018391/wife-went-to-go-let-my-parents-dogs-out-after-they-had-to-unexpectedly-leave-today-snoopy-is-not-thrilled-with-the-change-of-plans)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
+- [My dogs were spooning in work and I thought it was cute so thought I’d share!](https://news.puppy-snuggles.com/22142100/my-dogs-were-spooning-in-work-and-i-thought-it-was-cute-so-thought-id-share)
+- [Homer is a simple dog who enjoys the simple things like extension cords.](https://news.puppy-snuggles.com/21377528/homer-is-a-simple-dog-who-enjoys-the-simple-things-like-extension-cords)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
