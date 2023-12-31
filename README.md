@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It&amp;#039;s been a year without my gentle giant... Miss you Kimi](https://news.puppy-snuggles.com/40357688/its-been-a-year-without-my-gentle-giant-miss-you-kimi)
-- [Wife went to go let my parents dogs out after they had to unexpectedly leave today. Snoopy is not thrilled with the change of plans](https://news.puppy-snuggles.com/39018391/wife-went-to-go-let-my-parents-dogs-out-after-they-had-to-unexpectedly-leave-today-snoopy-is-not-thrilled-with-the-change-of-plans)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [My dogs were spooning in work and I thought it was cute so thought I’d share!](https://news.puppy-snuggles.com/22142100/my-dogs-were-spooning-in-work-and-i-thought-it-was-cute-so-thought-id-share)
-- [Homer is a simple dog who enjoys the simple things like extension cords.](https://news.puppy-snuggles.com/21377528/homer-is-a-simple-dog-who-enjoys-the-simple-things-like-extension-cords)
+- [My smiley princess](https://news.puppy-snuggles.com/35581482/my-smiley-princess)
+- [boy🖤](https://news.puppy-snuggles.com/24261030/boy)
+- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
+- [Squish](https://news.puppy-snuggles.com/23348082/squish)
+- [My 8 year old chocolate lab waiting for his ball to be thrown](https://news.puppy-snuggles.com/23323513/my-8-year-old-chocolate-lab-waiting-for-his-ball-to-be-thrown)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
