@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My smiley princess](https://news.puppy-snuggles.com/35581482/my-smiley-princess)
-- [boy🖤](https://news.puppy-snuggles.com/24261030/boy)
-- [My sweetest boy, passed at 16 years old. Swore that I heard his spirit lingering around for a short time after he&amp;#039;d left me. He was truly special. I will always love my Sonshine boy.](https://news.puppy-snuggles.com/23481296/my-sweetest-boy-passed-at-16-years-old-swore-that-i-heard-his-spirit-lingering-around-for-a-short-time-after-hed-left-me-he-was-truly-special-i-will-always-love-my-sonshine-boy)
-- [Squish](https://news.puppy-snuggles.com/23348082/squish)
-- [My 8 year old chocolate lab waiting for his ball to be thrown](https://news.puppy-snuggles.com/23323513/my-8-year-old-chocolate-lab-waiting-for-his-ball-to-be-thrown)
+- [A blind and deaf dog&amp;#039;s reaction to mom coming home is just the best.](https://news.puppy-snuggles.com/48059167/a-blind-and-deaf-dogs-reaction-to-mom-coming-home-is-just-the-best)
+- [Show me your dogs&amp;#039; puppy face.](https://news.puppy-snuggles.com/48059168/show-me-your-dogs-puppy-face)
+- [My girl Remi when she was younger. This picture was taken by a friend who was a professional photographer. Unfortunately, he is no longer with us. Remi is now 11.5 year old and still a wild child! Being a Belgium Malinois, there is no OFF button!](https://news.puppy-snuggles.com/48040431/my-girl-remi-when-she-was-younger-this-picture-was-taken-by-a-friend-who-was-a-professional-photographer-unfortunately-he-is-no-longer-with-us-remi-is-now-115-year-old-and-still-a-wild-child-being-a-belgium-malinois-there-is-no-off-button)
+- [A dog has to learn to enjoy life.](https://news.puppy-snuggles.com/48040433/a-dog-has-to-learn-to-enjoy-life)
+- [u guys have better smilers than me 🤣🥹](https://news.puppy-snuggles.com/48040434/u-guys-have-better-smilers-than-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
