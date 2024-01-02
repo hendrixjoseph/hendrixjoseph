@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A blind and deaf dog&amp;#039;s reaction to mom coming home is just the best.](https://news.puppy-snuggles.com/48059167/a-blind-and-deaf-dogs-reaction-to-mom-coming-home-is-just-the-best)
-- [Show me your dogs&amp;#039; puppy face.](https://news.puppy-snuggles.com/48059168/show-me-your-dogs-puppy-face)
-- [My girl Remi when she was younger. This picture was taken by a friend who was a professional photographer. Unfortunately, he is no longer with us. Remi is now 11.5 year old and still a wild child! Being a Belgium Malinois, there is no OFF button!](https://news.puppy-snuggles.com/48040431/my-girl-remi-when-she-was-younger-this-picture-was-taken-by-a-friend-who-was-a-professional-photographer-unfortunately-he-is-no-longer-with-us-remi-is-now-115-year-old-and-still-a-wild-child-being-a-belgium-malinois-there-is-no-off-button)
-- [A dog has to learn to enjoy life.](https://news.puppy-snuggles.com/48040433/a-dog-has-to-learn-to-enjoy-life)
-- [u guys have better smilers than me 🤣🥹](https://news.puppy-snuggles.com/48040434/u-guys-have-better-smilers-than-me)
+- [She knows what she wants from Santa!](https://news.puppy-snuggles.com/46514373/she-knows-what-she-wants-from-santa)
+- [Rate my pup!](https://news.puppy-snuggles.com/40829161/rate-my-pup)
+- [Our new little guy!!](https://news.puppy-snuggles.com/39292011/our-new-little-guy)
+- [A photo of my boy after I’ve groomed him 🥰](https://news.puppy-snuggles.com/24478230/a-photo-of-my-boy-after-ive-groomed-him)
+- [Just adopted Gramps the chi today!](https://news.puppy-snuggles.com/24193176/just-adopted-gramps-the-chi-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
