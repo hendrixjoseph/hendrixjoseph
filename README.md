@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She knows what she wants from Santa!](https://news.puppy-snuggles.com/46514373/she-knows-what-she-wants-from-santa)
-- [Rate my pup!](https://news.puppy-snuggles.com/40829161/rate-my-pup)
-- [Our new little guy!!](https://news.puppy-snuggles.com/39292011/our-new-little-guy)
-- [A photo of my boy after I’ve groomed him 🥰](https://news.puppy-snuggles.com/24478230/a-photo-of-my-boy-after-ive-groomed-him)
-- [Just adopted Gramps the chi today!](https://news.puppy-snuggles.com/24193176/just-adopted-gramps-the-chi-today)
+- [Sascha’s cancer is removed!](https://news.puppy-snuggles.com/46771920/saschas-cancer-is-removed)
+- [On my cake day I present Time Magazine&amp;#039;s Dog of the Year - 2018.](https://news.puppy-snuggles.com/46611739/on-my-cake-day-i-present-time-magazines-dog-of-the-year-2018)
+- [Who still has photos of their dog as a kid in their photo album? This is a photo of my dog when he was little](https://news.puppy-snuggles.com/46564815/who-still-has-photos-of-their-dog-as-a-kid-in-their-photo-album-this-is-a-photo-of-my-dog-when-he-was-little)
+- [On a scale of 1-10 how cute is Stanley?](https://news.puppy-snuggles.com/44450127/on-a-scale-of-1-10-how-cute-is-stanley)
+- [Self Care With The Dogs](https://news.puppy-snuggles.com/44335187/self-care-with-the-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
