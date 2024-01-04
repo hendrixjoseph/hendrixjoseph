@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What are your small frugal plans for the year 2024?](https://www.reddit.com/r/Frugal/comments/18xhtks/what_are_your_small_frugal_plans_for_the_year_2024/kg6be3i/)
 - [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/18vqdik/monthly_megathread_discuss_quick_frugal_ideas/kfzbv1b/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of November 06, 2023](https://www.reddit.com/r/personalfinance/comments/17p07h7/weekday_help_and_victory_thread_for_the_week_of/k82wol2/)
 - [/u/joehx on my low-risk, low-return-but-higher-than-a-savings-account, boring, mediocre options strategy](https://www.reddit.com/r/options/comments/13rj0s7/my_lowrisk_lowreturnbuthigherthanasavingsaccount/k82j5nk/)
 - [/u/joehx on New referral thread for Halloween?](https://www.reddit.com/r/Webull/comments/17fzksq/new_referral_thread_for_halloween/k6jjrhc/)
-- [/u/joehx on What CEO do you think is most likely to be Batman based on their human compassion?](https://www.reddit.com/r/AskReddit/comments/17aquqq/what_ceo_do_you_think_is_most_likely_to_be_batman/k5ejp8f/)
 <!-- REDDIT:END -->
