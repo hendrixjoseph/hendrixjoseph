@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A throwback to kick off your weekend!](https://news.puppy-snuggles.com/48360557/a-throwback-to-kick-off-your-weekend)
-- [Dad didn&amp;#039;t want a dog in his house. Dad now:](https://news.puppy-snuggles.com/47906685/dad-didnt-want-a-dog-in-his-house-dad-now)
-- [Eva, just happy to be part of the plans 😋](https://news.puppy-snuggles.com/40880913/eva-just-happy-to-be-part-of-the-plans)
-- [A recent pastel commission of Olive and Betty I made. Have a lovely weekend! :&rpar;](https://news.puppy-snuggles.com/25710646/a-recent-pastel-commission-of-olive-and-betty-i-made-have-a-lovely-weekend)
-- [Starting the day...](https://news.puppy-snuggles.com/24357841/starting-the-day)
+- [Yea, I bit the cat but she bit me first.](https://news.puppy-snuggles.com/46702031/yea-i-bit-the-cat-but-she-bit-me-first)
+- [I told you not to pick a fight with them. Now, do you see the consequences of your actions?](https://news.puppy-snuggles.com/46702030/i-told-you-not-to-pick-a-fight-with-them-now-do-you-see-the-consequences-of-your-actions)
+- [Today is Ruby&amp;#039;s 3rd birthday](https://news.puppy-snuggles.com/25874106/today-is-rubys-3rd-birthday)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [They are quite adorable!](https://news.puppy-snuggles.com/22405824/they-are-quite-adorable)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
