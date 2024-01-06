@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yea, I bit the cat but she bit me first.](https://news.puppy-snuggles.com/46702031/yea-i-bit-the-cat-but-she-bit-me-first)
-- [I told you not to pick a fight with them. Now, do you see the consequences of your actions?](https://news.puppy-snuggles.com/46702030/i-told-you-not-to-pick-a-fight-with-them-now-do-you-see-the-consequences-of-your-actions)
-- [Today is Ruby&amp;#039;s 3rd birthday](https://news.puppy-snuggles.com/25874106/today-is-rubys-3rd-birthday)
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [They are quite adorable!](https://news.puppy-snuggles.com/22405824/they-are-quite-adorable)
+- [Flirt!](https://news.puppy-snuggles.com/48327704/flirt)
+- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
+- [A dog is the only creature that can improve your mood](https://news.puppy-snuggles.com/43752748/a-dog-is-the-only-creature-that-can-improve-your-mood)
+- [This young stray used to look like a famined Lazarus. Now she&amp;#039;s just skinny and often come for food scraps. Im gonna steal this dog](https://news.puppy-snuggles.com/43752751/this-young-stray-used-to-look-like-a-famined-lazarus-now-shes-just-skinny-and-often-come-for-food-scraps-im-gonna-steal-this-dog)
+- [Based soley off how my dog looks. What would you name him](https://news.puppy-snuggles.com/42511992/based-soley-off-how-my-dog-looks-what-would-you-name-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
