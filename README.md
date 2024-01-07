@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Flirt!](https://news.puppy-snuggles.com/48327704/flirt)
-- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
-- [A dog is the only creature that can improve your mood](https://news.puppy-snuggles.com/43752748/a-dog-is-the-only-creature-that-can-improve-your-mood)
-- [This young stray used to look like a famined Lazarus. Now she&amp;#039;s just skinny and often come for food scraps. Im gonna steal this dog](https://news.puppy-snuggles.com/43752751/this-young-stray-used-to-look-like-a-famined-lazarus-now-shes-just-skinny-and-often-come-for-food-scraps-im-gonna-steal-this-dog)
-- [Based soley off how my dog looks. What would you name him](https://news.puppy-snuggles.com/42511992/based-soley-off-how-my-dog-looks-what-would-you-name-him)
+- [My boy when he was just a small pup😭](https://news.puppy-snuggles.com/39803372/my-boy-when-he-was-just-a-small-pup)
+- [Alfie our shelter pup](https://news.puppy-snuggles.com/32285558/alfie-our-shelter-pup)
+- [I was happily adopted](https://news.puppy-snuggles.com/23205506/i-was-happily-adopted)
+- [I&amp;#039;m pretty sure Malinois were created with an ultra secret government superdog serum.](https://news.puppy-snuggles.com/23132583/im-pretty-sure-malinois-were-created-with-an-ultra-secret-government-superdog-serum)
+- [Sometimes dogs are better company than people](https://news.puppy-snuggles.com/22615424/sometimes-dogs-are-better-company-than-people)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
