@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy when he was just a small pup😭](https://news.puppy-snuggles.com/39803372/my-boy-when-he-was-just-a-small-pup)
-- [Alfie our shelter pup](https://news.puppy-snuggles.com/32285558/alfie-our-shelter-pup)
-- [I was happily adopted](https://news.puppy-snuggles.com/23205506/i-was-happily-adopted)
-- [I&amp;#039;m pretty sure Malinois were created with an ultra secret government superdog serum.](https://news.puppy-snuggles.com/23132583/im-pretty-sure-malinois-were-created-with-an-ultra-secret-government-superdog-serum)
-- [Sometimes dogs are better company than people](https://news.puppy-snuggles.com/22615424/sometimes-dogs-are-better-company-than-people)
+- [This dog&amp;#039;s sense of balance is so good!](https://news.puppy-snuggles.com/48665177/this-dogs-sense-of-balance-is-so-good)
+- [My doggy always takes my spot as soon as I move out the bed 😂🫶](https://news.puppy-snuggles.com/46995996/my-doggy-always-takes-my-spot-as-soon-as-i-move-out-the-bed)
+- [Diaper of shame at grandmas house 😂](https://news.puppy-snuggles.com/46928644/diaper-of-shame-at-grandmas-house)
+- [The second I tell her not to drink from her play pool](https://news.puppy-snuggles.com/22940099/the-second-i-tell-her-not-to-drink-from-her-play-pool)
+- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
