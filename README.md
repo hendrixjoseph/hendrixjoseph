@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This dog&amp;#039;s sense of balance is so good!](https://news.puppy-snuggles.com/48665177/this-dogs-sense-of-balance-is-so-good)
-- [My doggy always takes my spot as soon as I move out the bed 😂🫶](https://news.puppy-snuggles.com/46995996/my-doggy-always-takes-my-spot-as-soon-as-i-move-out-the-bed)
-- [Diaper of shame at grandmas house 😂](https://news.puppy-snuggles.com/46928644/diaper-of-shame-at-grandmas-house)
-- [The second I tell her not to drink from her play pool](https://news.puppy-snuggles.com/22940099/the-second-i-tell-her-not-to-drink-from-her-play-pool)
-- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
+- [Mama dog disciplines her puppy!](https://news.puppy-snuggles.com/48741515/mama-dog-disciplines-her-puppy)
+- [Lost my best friend](https://news.puppy-snuggles.com/48741510/lost-my-best-friend)
+- [He was so excited for this](https://news.puppy-snuggles.com/48741505/he-was-so-excited-for-this)
+- [Best driver](https://news.puppy-snuggles.com/48741518/best-driver)
+- [Finally got a pic of Copper smiling!](https://news.puppy-snuggles.com/48741509/finally-got-a-pic-of-copper-smiling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
