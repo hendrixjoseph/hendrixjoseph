@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mama dog disciplines her puppy!](https://news.puppy-snuggles.com/48741515/mama-dog-disciplines-her-puppy)
-- [Lost my best friend](https://news.puppy-snuggles.com/48741510/lost-my-best-friend)
-- [He was so excited for this](https://news.puppy-snuggles.com/48741505/he-was-so-excited-for-this)
-- [Best driver](https://news.puppy-snuggles.com/48741518/best-driver)
-- [Finally got a pic of Copper smiling!](https://news.puppy-snuggles.com/48741509/finally-got-a-pic-of-copper-smiling)
+- [Me: i can fix him](https://news.puppy-snuggles.com/47850703/me-i-can-fix-him)
+- [Santa came!!!!](https://news.puppy-snuggles.com/47850709/santa-came)
+- [Always a happy guy](https://news.puppy-snuggles.com/36369024/always-a-happy-guy)
+- [Very lazy day today!](https://news.puppy-snuggles.com/19847898/very-lazy-day-today)
+- [Rescue dogs just love to nap.](https://news.puppy-snuggles.com/17108165/rescue-dogs-just-love-to-nap)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
