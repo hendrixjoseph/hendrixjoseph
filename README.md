@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Me: i can fix him](https://news.puppy-snuggles.com/47850703/me-i-can-fix-him)
-- [Santa came!!!!](https://news.puppy-snuggles.com/47850709/santa-came)
-- [Always a happy guy](https://news.puppy-snuggles.com/36369024/always-a-happy-guy)
-- [Very lazy day today!](https://news.puppy-snuggles.com/19847898/very-lazy-day-today)
-- [Rescue dogs just love to nap.](https://news.puppy-snuggles.com/17108165/rescue-dogs-just-love-to-nap)
+- [The newest member of our family already has us head over heels for his smile !](https://news.puppy-snuggles.com/39872581/the-newest-member-of-our-family-already-has-us-head-over-heels-for-his-smile)
+- [Chilling with a view](https://news.puppy-snuggles.com/16530384/chilling-with-a-view)
+- [We got one of our sold pups back...his momma missed him!](https://news.puppy-snuggles.com/14862110/we-got-one-of-our-sold-pups-backhis-momma-missed-him)
+- [Meet Dingo - he’s got very good hearing](https://news.puppy-snuggles.com/14222672/meet-dingo-hes-got-very-good-hearing)
+- [One serving of hot dog](https://news.puppy-snuggles.com/12485920/one-serving-of-hot-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
