@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The newest member of our family already has us head over heels for his smile !](https://news.puppy-snuggles.com/39872581/the-newest-member-of-our-family-already-has-us-head-over-heels-for-his-smile)
-- [Chilling with a view](https://news.puppy-snuggles.com/16530384/chilling-with-a-view)
-- [We got one of our sold pups back...his momma missed him!](https://news.puppy-snuggles.com/14862110/we-got-one-of-our-sold-pups-backhis-momma-missed-him)
-- [Meet Dingo - he’s got very good hearing](https://news.puppy-snuggles.com/14222672/meet-dingo-hes-got-very-good-hearing)
-- [One serving of hot dog](https://news.puppy-snuggles.com/12485920/one-serving-of-hot-dog)
+- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
+- [Rottis first groomer visit](https://news.puppy-snuggles.com/48859369/rottis-first-groomer-visit)
+- [She is my beautiful dog daughter](https://news.puppy-snuggles.com/48780811/she-is-my-beautiful-dog-daughter)
+- [My Handsome, 13 year old boy](https://news.puppy-snuggles.com/43546473/my-handsome-13-year-old-boy)
+- [The dog brought home for the owner](https://news.puppy-snuggles.com/42669350/the-dog-brought-home-for-the-owner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
