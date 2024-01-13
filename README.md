@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
-- [Rottis first groomer visit](https://news.puppy-snuggles.com/48859369/rottis-first-groomer-visit)
-- [She is my beautiful dog daughter](https://news.puppy-snuggles.com/48780811/she-is-my-beautiful-dog-daughter)
-- [My Handsome, 13 year old boy](https://news.puppy-snuggles.com/43546473/my-handsome-13-year-old-boy)
-- [The dog brought home for the owner](https://news.puppy-snuggles.com/42669350/the-dog-brought-home-for-the-owner)
+- [Morning smiles from the girls ❤️❤️](https://news.puppy-snuggles.com/48977250/morning-smiles-from-the-girls)
+- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 104](https://news.puppy-snuggles.com/48977251/365-days-of-me-amp-pepperoni-day-104)
+- [Patch is 10 today 🥰](https://news.puppy-snuggles.com/34195906/patch-is-10-today)
+- [Elmo having a blast at the dogpark](https://news.puppy-snuggles.com/30751607/elmo-having-a-blast-at-the-dogpark)
+- [One of the last photos taken of my girl Amber. Even in her old age, with a tumor growing in her left eye, she would still smile for me and the rest of the family. she was one in a million](https://news.puppy-snuggles.com/24832381/one-of-the-last-photos-taken-of-my-girl-amber-even-in-her-old-age-with-a-tumor-growing-in-her-left-eye-she-would-still-smile-for-me-and-the-rest-of-the-family-she-was-one-in-a-million)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
