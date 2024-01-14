@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Morning smiles from the girls ❤️❤️](https://news.puppy-snuggles.com/48977250/morning-smiles-from-the-girls)
-- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 104](https://news.puppy-snuggles.com/48977251/365-days-of-me-amp-pepperoni-day-104)
-- [Patch is 10 today 🥰](https://news.puppy-snuggles.com/34195906/patch-is-10-today)
-- [Elmo having a blast at the dogpark](https://news.puppy-snuggles.com/30751607/elmo-having-a-blast-at-the-dogpark)
-- [One of the last photos taken of my girl Amber. Even in her old age, with a tumor growing in her left eye, she would still smile for me and the rest of the family. she was one in a million](https://news.puppy-snuggles.com/24832381/one-of-the-last-photos-taken-of-my-girl-amber-even-in-her-old-age-with-a-tumor-growing-in-her-left-eye-she-would-still-smile-for-me-and-the-rest-of-the-family-she-was-one-in-a-million)
+- [Rest In Peace Scooby. You left us just a couple weeks ago. There has been a hole in my heart since you left. Growing up together, you were my best friend. Always there for me to lean on when I needed you. I’m so glad I was able to be there for you to lean on as you crossed the rainbow bridge ❤️🐾🌈](https://news.puppy-snuggles.com/49054132/rest-in-peace-scooby-you-left-us-just-a-couple-weeks-ago-there-has-been-a-hole-in-my-heart-since-you-left-growing-up-together-you-were-my-best-friend-always-there-for-me-to-lean-on-when-i-needed-you-im-so-glad-i-was-able-to-be-there-for-you-to-lean-on-as-you-crossed-the-rainbow-bridge)
+- [Old man Shadow joined my family today.](https://news.puppy-snuggles.com/49016063/old-man-shadow-joined-my-family-today)
+- [My 14 year old border collie jumped on my bed for the first time in years today :&rpar;](https://news.puppy-snuggles.com/49016065/my-14-year-old-border-collie-jumped-on-my-bed-for-the-first-time-in-years-today)
+- [Give this gentleman a name!](https://news.puppy-snuggles.com/48879600/give-this-gentleman-a-name)
+- [My girl is 11 today!](https://news.puppy-snuggles.com/48188592/my-girl-is-11-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
