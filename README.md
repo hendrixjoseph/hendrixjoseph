@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rest In Peace Scooby. You left us just a couple weeks ago. There has been a hole in my heart since you left. Growing up together, you were my best friend. Always there for me to lean on when I needed you. I’m so glad I was able to be there for you to lean on as you crossed the rainbow bridge ❤️🐾🌈](https://news.puppy-snuggles.com/49054132/rest-in-peace-scooby-you-left-us-just-a-couple-weeks-ago-there-has-been-a-hole-in-my-heart-since-you-left-growing-up-together-you-were-my-best-friend-always-there-for-me-to-lean-on-when-i-needed-you-im-so-glad-i-was-able-to-be-there-for-you-to-lean-on-as-you-crossed-the-rainbow-bridge)
-- [Old man Shadow joined my family today.](https://news.puppy-snuggles.com/49016063/old-man-shadow-joined-my-family-today)
-- [My 14 year old border collie jumped on my bed for the first time in years today :&rpar;](https://news.puppy-snuggles.com/49016065/my-14-year-old-border-collie-jumped-on-my-bed-for-the-first-time-in-years-today)
-- [Give this gentleman a name!](https://news.puppy-snuggles.com/48879600/give-this-gentleman-a-name)
-- [My girl is 11 today!](https://news.puppy-snuggles.com/48188592/my-girl-is-11-today)
+- [WHAT BREED AM I?](https://news.puppy-snuggles.com/27329068/what-breed-am-i)
+- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
+- [found him in the woods, now is a lucky, loved ,bit lazy dog❤️](https://news.puppy-snuggles.com/23205508/found-him-in-the-woods-now-is-a-lucky-loved-bit-lazy-dog)
+- [Adopted over a year ago. The &amp;#039;not allowed on the sofa&amp;#039; rule lasted exactly 2 days.](https://news.puppy-snuggles.com/22170106/adopted-over-a-year-ago-the-not-allowed-on-the-sofa-rule-lasted-exactly-2-days)
+- [Help with Pup&amp;#039;s breed?](https://news.puppy-snuggles.com/21669837/help-with-pups-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
