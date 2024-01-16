@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [WHAT BREED AM I?](https://news.puppy-snuggles.com/27329068/what-breed-am-i)
-- [Here&amp;#039;s my best friend! RIP 12/23/22 11pm](https://news.puppy-snuggles.com/24261023/heres-my-best-friend-rip-122322-11pm)
-- [found him in the woods, now is a lucky, loved ,bit lazy dog❤️](https://news.puppy-snuggles.com/23205508/found-him-in-the-woods-now-is-a-lucky-loved-bit-lazy-dog)
-- [Adopted over a year ago. The &amp;#039;not allowed on the sofa&amp;#039; rule lasted exactly 2 days.](https://news.puppy-snuggles.com/22170106/adopted-over-a-year-ago-the-not-allowed-on-the-sofa-rule-lasted-exactly-2-days)
-- [Help with Pup&amp;#039;s breed?](https://news.puppy-snuggles.com/21669837/help-with-pups-breed)
+- [It’s senior Saturday! Can I see your sweet seniors?](https://news.puppy-snuggles.com/49072199/its-senior-saturday-can-i-see-your-sweet-seniors)
+- [Rest In Peace Scooby. You left us just a couple weeks ago. There has been a hole in my heart since you left. Growing up together, you were my best friend. Always there for me to lean on when I needed you. I’m so glad I was able to be there for you to lean on as you crossed the rainbow bridge ❤️🐾🌈](https://news.puppy-snuggles.com/49054132/rest-in-peace-scooby-you-left-us-just-a-couple-weeks-ago-there-has-been-a-hole-in-my-heart-since-you-left-growing-up-together-you-were-my-best-friend-always-there-for-me-to-lean-on-when-i-needed-you-im-so-glad-i-was-able-to-be-there-for-you-to-lean-on-as-you-crossed-the-rainbow-bridge)
+- [Time to say goodbye](https://news.puppy-snuggles.com/35181463/time-to-say-goodbye)
+- [14 Years Apart](https://news.puppy-snuggles.com/24737646/14-years-apart)
+- [Heimdog, the Guardian of the Bifrost Bridge](https://news.puppy-snuggles.com/24737645/heimdog-the-guardian-of-the-bifrost-bridge)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
