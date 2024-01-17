@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s senior Saturday! Can I see your sweet seniors?](https://news.puppy-snuggles.com/49072199/its-senior-saturday-can-i-see-your-sweet-seniors)
-- [Rest In Peace Scooby. You left us just a couple weeks ago. There has been a hole in my heart since you left. Growing up together, you were my best friend. Always there for me to lean on when I needed you. I’m so glad I was able to be there for you to lean on as you crossed the rainbow bridge ❤️🐾🌈](https://news.puppy-snuggles.com/49054132/rest-in-peace-scooby-you-left-us-just-a-couple-weeks-ago-there-has-been-a-hole-in-my-heart-since-you-left-growing-up-together-you-were-my-best-friend-always-there-for-me-to-lean-on-when-i-needed-you-im-so-glad-i-was-able-to-be-there-for-you-to-lean-on-as-you-crossed-the-rainbow-bridge)
-- [Time to say goodbye](https://news.puppy-snuggles.com/35181463/time-to-say-goodbye)
-- [14 Years Apart](https://news.puppy-snuggles.com/24737646/14-years-apart)
-- [Heimdog, the Guardian of the Bifrost Bridge](https://news.puppy-snuggles.com/24737645/heimdog-the-guardian-of-the-bifrost-bridge)
+- [My boy Donkey ready for the winter](https://news.puppy-snuggles.com/45270764/my-boy-donkey-ready-for-the-winter)
+- [This new soul is awaiting her name, suggestions please :&rpar;](https://news.puppy-snuggles.com/41757417/this-new-soul-is-awaiting-her-name-suggestions-please)
+- [in the name of the PAWther](https://news.puppy-snuggles.com/33175283/in-the-name-of-the-pawther)
+- [Happy Golden Birthday Liza! 13 on May 13](https://news.puppy-snuggles.com/33175279/happy-golden-birthday-liza-13-on-may-13)
+- [She loves laying on top of my head🤦🏼‍♂️](https://news.puppy-snuggles.com/27791112/she-loves-laying-on-top-of-my-head)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
