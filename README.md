@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Donkey ready for the winter](https://news.puppy-snuggles.com/45270764/my-boy-donkey-ready-for-the-winter)
-- [This new soul is awaiting her name, suggestions please :&rpar;](https://news.puppy-snuggles.com/41757417/this-new-soul-is-awaiting-her-name-suggestions-please)
-- [in the name of the PAWther](https://news.puppy-snuggles.com/33175283/in-the-name-of-the-pawther)
-- [Happy Golden Birthday Liza! 13 on May 13](https://news.puppy-snuggles.com/33175279/happy-golden-birthday-liza-13-on-may-13)
-- [She loves laying on top of my head🤦🏼‍♂️](https://news.puppy-snuggles.com/27791112/she-loves-laying-on-top-of-my-head)
+- [Miss Dusty got some bad news at the vet. Thank you SOOO much for your generosity! We will do whatever it takes to get her healthy!](https://news.puppy-snuggles.com/49304177/miss-dusty-got-some-bad-news-at-the-vet-thank-you-sooo-much-for-your-generosity-we-will-do-whatever-it-takes-to-get-her-healthy)
+- [Gotta protecc the toe beans from -24 degree windchill](https://news.puppy-snuggles.com/49264380/gotta-protecc-the-toe-beans-from-24-degree-windchill)
+- [Catrina lived for three years but will be remembered for a lifetime ❤️](https://news.puppy-snuggles.com/49264379/catrina-lived-for-three-years-but-will-be-remembered-for-a-lifetime)
+- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
+- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
