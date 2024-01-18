@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, January 17, 2024](https://www.reddit.com/r/financialindependence/comments/198t5iw/weekly_selfpromotion_thread_wednesday_january_17/kibfxos/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, January 17, 2024](https://www.reddit.com/r/financialindependence/comments/198t5iw/weekly_selfpromotion_thread_wednesday_january_17/ki9z0eq/)
 - [/u/joehx on People who lost 20 pounds in a healthy way how did u guys do it ?](https://www.reddit.com/r/AskReddit/comments/197gucu/people_who_lost_20_pounds_in_a_healthy_way_how/ki0w7fz/)
 - [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/18vqdik/monthly_megathread_discuss_quick_frugal_ideas/khjfbct/)
 - [/u/joehx on How much is your water bill in your town?](https://www.reddit.com/r/Ohio/comments/1918n5m/how_much_is_your_water_bill_in_your_town/kgx1u1x/)
-- [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/18vqdik/monthly_megathread_discuss_quick_frugal_ideas/kgno4la/)
-- [/u/joehx on What are your small frugal plans for the year 2024?](https://www.reddit.com/r/Frugal/comments/18xhtks/what_are_your_small_frugal_plans_for_the_year_2024/kg6be3i/)
 <!-- REDDIT:END -->
