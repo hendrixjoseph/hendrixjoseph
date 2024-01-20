@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [DustyDoll the Workin Dog! And she has a birthday!!](https://news.puppy-snuggles.com/49364679/dustydoll-the-workin-dog-and-she-has-a-birthday)
-- [A Dogs Digital Illustration chart Poster I drew, featuring the current top 25 dog breeds! Hope everyone likes it!](https://news.puppy-snuggles.com/23122457/a-dogs-digital-illustration-chart-poster-i-drew-featuring-the-current-top-25-dog-breeds-hope-everyone-likes-it)
-- [Oh hi, yes I have ears somewhere](https://news.puppy-snuggles.com/22927263/oh-hi-yes-i-have-ears-somewhere)
-- [These eyes!!!](https://news.puppy-snuggles.com/21962525/these-eyes)
-- [I love it here.](https://news.puppy-snuggles.com/21363029/i-love-it-here)
+- [Happy faces!!!](https://news.puppy-snuggles.com/49443273/happy-faces)
+- [Cutest dog ever?](https://news.puppy-snuggles.com/49443277/cutest-dog-ever)
+- [when he came to the sea for the first time in a year!](https://news.puppy-snuggles.com/49443274/when-he-came-to-the-sea-for-the-first-time-in-a-year)
+- [Bought her a chain, now she&amp;#039;s mean muggin me](https://news.puppy-snuggles.com/49443276/bought-her-a-chain-now-shes-mean-muggin-me)
+- [Share pictures of your dog with things in their mouth](https://news.puppy-snuggles.com/49443280/share-pictures-of-your-dog-with-things-in-their-mouth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
