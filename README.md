@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy faces!!!](https://news.puppy-snuggles.com/49443273/happy-faces)
-- [Cutest dog ever?](https://news.puppy-snuggles.com/49443277/cutest-dog-ever)
-- [when he came to the sea for the first time in a year!](https://news.puppy-snuggles.com/49443274/when-he-came-to-the-sea-for-the-first-time-in-a-year)
-- [Bought her a chain, now she&amp;#039;s mean muggin me](https://news.puppy-snuggles.com/49443276/bought-her-a-chain-now-shes-mean-muggin-me)
-- [Share pictures of your dog with things in their mouth](https://news.puppy-snuggles.com/49443280/share-pictures-of-your-dog-with-things-in-their-mouth)
+- [Go away, it&amp;#039;s my place!](https://news.puppy-snuggles.com/49501259/go-away-its-my-place)
+- [Disable Dog Going for a walk First Time](https://news.puppy-snuggles.com/45519777/disable-dog-going-for-a-walk-first-time)
+- [Jaggy and her puppies 😔 Life is already hard for them, the least that I can do is to give them a meal for today.](https://news.puppy-snuggles.com/37881220/jaggy-and-her-puppies-life-is-already-hard-for-them-the-least-that-i-can-do-is-to-give-them-a-meal-for-today)
+- [This is Phoebe, she is a Pitbull Akita mix, is she welcome here?](https://news.puppy-snuggles.com/37881219/this-is-phoebe-she-is-a-pitbull-akita-mix-is-she-welcome-here)
+- [Rest in peace, little Chrissy. Small only in stature, my dad’s sweet yet tough little companion. Tell Ellie we miss her. And apologize to all those poor moles](https://news.puppy-snuggles.com/36506878/rest-in-peace-little-chrissy-small-only-in-stature-my-dads-sweet-yet-tough-little-companion-tell-ellie-we-miss-her-and-apologize-to-all-those-poor-moles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
