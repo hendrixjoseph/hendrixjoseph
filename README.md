@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Go away, it&amp;#039;s my place!](https://news.puppy-snuggles.com/49501259/go-away-its-my-place)
-- [Disable Dog Going for a walk First Time](https://news.puppy-snuggles.com/45519777/disable-dog-going-for-a-walk-first-time)
-- [Jaggy and her puppies 😔 Life is already hard for them, the least that I can do is to give them a meal for today.](https://news.puppy-snuggles.com/37881220/jaggy-and-her-puppies-life-is-already-hard-for-them-the-least-that-i-can-do-is-to-give-them-a-meal-for-today)
-- [This is Phoebe, she is a Pitbull Akita mix, is she welcome here?](https://news.puppy-snuggles.com/37881219/this-is-phoebe-she-is-a-pitbull-akita-mix-is-she-welcome-here)
-- [Rest in peace, little Chrissy. Small only in stature, my dad’s sweet yet tough little companion. Tell Ellie we miss her. And apologize to all those poor moles](https://news.puppy-snuggles.com/36506878/rest-in-peace-little-chrissy-small-only-in-stature-my-dads-sweet-yet-tough-little-companion-tell-ellie-we-miss-her-and-apologize-to-all-those-poor-moles)
+- [My boy Donkey ready for the winter](https://news.puppy-snuggles.com/45270764/my-boy-donkey-ready-for-the-winter)
+- [Pick my dogs Halloween costume!](https://news.puppy-snuggles.com/44102027/pick-my-dogs-halloween-costume)
+- [I always call her fish dog with how much she loves the water](https://news.puppy-snuggles.com/42669354/i-always-call-her-fish-dog-with-how-much-she-loves-the-water)
+- [see my little puppy , what should i name him . give me an advise pls ?](https://news.puppy-snuggles.com/41359045/see-my-little-puppy-what-should-i-name-him-give-me-an-advise-pls)
+- [He may only have one eye but he&amp;#039;s still cute 😍♥️](https://news.puppy-snuggles.com/39963198/he-may-only-have-one-eye-but-hes-still-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
