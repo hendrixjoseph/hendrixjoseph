@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Donkey ready for the winter](https://news.puppy-snuggles.com/45270764/my-boy-donkey-ready-for-the-winter)
-- [Pick my dogs Halloween costume!](https://news.puppy-snuggles.com/44102027/pick-my-dogs-halloween-costume)
-- [I always call her fish dog with how much she loves the water](https://news.puppy-snuggles.com/42669354/i-always-call-her-fish-dog-with-how-much-she-loves-the-water)
-- [see my little puppy , what should i name him . give me an advise pls ?](https://news.puppy-snuggles.com/41359045/see-my-little-puppy-what-should-i-name-him-give-me-an-advise-pls)
-- [He may only have one eye but he&amp;#039;s still cute 😍♥️](https://news.puppy-snuggles.com/39963198/he-may-only-have-one-eye-but-hes-still-cute)
+- [Gone 1 yr today. I miss my HaleyDog.](https://news.puppy-snuggles.com/40414389/gone-1-yr-today-i-miss-my-haleydog)
+- [Koki swims so cute](https://news.puppy-snuggles.com/36155332/koki-swims-so-cute)
+- [She tells jokes…](https://news.puppy-snuggles.com/27363487/she-tells-jokes)
+- [My darlings](https://news.puppy-snuggles.com/17195417/my-darlings)
+- [the good boy, Freddy](https://news.puppy-snuggles.com/15944369/the-good-boy-freddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
