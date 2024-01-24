@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Gone 1 yr today. I miss my HaleyDog.](https://news.puppy-snuggles.com/40414389/gone-1-yr-today-i-miss-my-haleydog)
-- [Koki swims so cute](https://news.puppy-snuggles.com/36155332/koki-swims-so-cute)
-- [She tells jokes…](https://news.puppy-snuggles.com/27363487/she-tells-jokes)
-- [My darlings](https://news.puppy-snuggles.com/17195417/my-darlings)
-- [the good boy, Freddy](https://news.puppy-snuggles.com/15944369/the-good-boy-freddy)
+- [Talk about a wide smile!](https://news.puppy-snuggles.com/47944893/talk-about-a-wide-smile)
+- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
+- [My child](https://news.puppy-snuggles.com/42793045/my-child)
+- [Tired Smile 🤭](https://news.puppy-snuggles.com/36068206/tired-smile)
+- [Billy’s 8th birthday!](https://news.puppy-snuggles.com/23658547/billys-8th-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
