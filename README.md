@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is the most basic thing you are terrible at?](https://www.reddit.com/r/AskReddit/comments/19dordw/what_is_the_most_basic_thing_you_are_terrible_at/kj7jp2p/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of January 22, 2024](https://www.reddit.com/r/personalfinance/comments/19ct3n2/weekday_help_and_victory_thread_for_the_week_of/kj1log5/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, January 17, 2024](https://www.reddit.com/r/financialindependence/comments/198t5iw/weekly_selfpromotion_thread_wednesday_january_17/kibfxos/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, January 17, 2024](https://www.reddit.com/r/financialindependence/comments/198t5iw/weekly_selfpromotion_thread_wednesday_january_17/ki9z0eq/)
 - [/u/joehx on People who lost 20 pounds in a healthy way how did u guys do it ?](https://www.reddit.com/r/AskReddit/comments/197gucu/people_who_lost_20_pounds_in_a_healthy_way_how/ki0w7fz/)
-- [/u/joehx on Monthly megathread: Discuss quick frugal ideas, frugal challenges you&#39;re starting, and share your hauls with others here!](https://www.reddit.com/r/Frugal/comments/18vqdik/monthly_megathread_discuss_quick_frugal_ideas/khjfbct/)
 <!-- REDDIT:END -->
