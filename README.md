@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Talk about a wide smile!](https://news.puppy-snuggles.com/47944893/talk-about-a-wide-smile)
-- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
-- [My child](https://news.puppy-snuggles.com/42793045/my-child)
-- [Tired Smile 🤭](https://news.puppy-snuggles.com/36068206/tired-smile)
-- [Billy’s 8th birthday!](https://news.puppy-snuggles.com/23658547/billys-8th-birthday)
+- [5-month-old greyhound puppy dies after pipe bursts in dog training facility on Long Island](https://news.puppy-snuggles.com/49754615/5-month-old-greyhound-puppy-dies-after-pipe-bursts-in-dog-training-facility-on-long-island)
+- [‘He’s definitely a miracle’: Puppy left for dead now recovering, returning to Cumberland County rescue](https://news.puppy-snuggles.com/49754614/hes-definitely-a-miracle-puppy-left-for-dead-now-recovering-returning-to-cumberland-county-rescue)
+- [This is my 87yr Dad and the light of his life. He cares for my Mum, who has dementia, and this little pup keeps him smiling. Dogs are so beautiful!!](https://news.puppy-snuggles.com/49756195/this-is-my-87yr-dad-and-the-light-of-his-life-he-cares-for-my-mum-who-has-dementia-and-this-little-pup-keeps-him-smiling-dogs-are-so-beautiful)
+- [little bean](https://news.puppy-snuggles.com/49756192/little-bean)
+- [Some pictures of my elderly doggy❤️ isn’t she cute🥰](https://news.puppy-snuggles.com/49756191/some-pictures-of-my-elderly-doggy-isnt-she-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
