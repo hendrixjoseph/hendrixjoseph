@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [5-month-old greyhound puppy dies after pipe bursts in dog training facility on Long Island](https://news.puppy-snuggles.com/49754615/5-month-old-greyhound-puppy-dies-after-pipe-bursts-in-dog-training-facility-on-long-island)
-- [‘He’s definitely a miracle’: Puppy left for dead now recovering, returning to Cumberland County rescue](https://news.puppy-snuggles.com/49754614/hes-definitely-a-miracle-puppy-left-for-dead-now-recovering-returning-to-cumberland-county-rescue)
-- [This is my 87yr Dad and the light of his life. He cares for my Mum, who has dementia, and this little pup keeps him smiling. Dogs are so beautiful!!](https://news.puppy-snuggles.com/49756195/this-is-my-87yr-dad-and-the-light-of-his-life-he-cares-for-my-mum-who-has-dementia-and-this-little-pup-keeps-him-smiling-dogs-are-so-beautiful)
-- [little bean](https://news.puppy-snuggles.com/49756192/little-bean)
-- [Some pictures of my elderly doggy❤️ isn’t she cute🥰](https://news.puppy-snuggles.com/49756191/some-pictures-of-my-elderly-doggy-isnt-she-cute)
+- [One of Four](https://news.puppy-snuggles.com/49821135/one-of-four)
+- [Support hard time;](https://news.puppy-snuggles.com/49821136/support-hard-time)
+- [My wife just sent this to me with no context](https://news.puppy-snuggles.com/49821140/my-wife-just-sent-this-to-me-with-no-context)
+- [This is my dog who is 17. She is very loved.](https://news.puppy-snuggles.com/49821137/this-is-my-dog-who-is-17-she-is-very-loved)
+- [Love the little ear bounce](https://news.puppy-snuggles.com/49821142/love-the-little-ear-bounce)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
