@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One of Four](https://news.puppy-snuggles.com/49821135/one-of-four)
-- [Support hard time;](https://news.puppy-snuggles.com/49821136/support-hard-time)
-- [My wife just sent this to me with no context](https://news.puppy-snuggles.com/49821140/my-wife-just-sent-this-to-me-with-no-context)
-- [This is my dog who is 17. She is very loved.](https://news.puppy-snuggles.com/49821137/this-is-my-dog-who-is-17-she-is-very-loved)
-- [Love the little ear bounce](https://news.puppy-snuggles.com/49821142/love-the-little-ear-bounce)
+- [This is Carl, he likes rainbows 🌈](https://news.puppy-snuggles.com/49884166/this-is-carl-he-likes-rainbows)
+- [Rest in piece, my loyal friend](https://news.puppy-snuggles.com/49884165/rest-in-piece-my-loyal-friend)
+- [when he came to the sea for the first time in a year!](https://news.puppy-snuggles.com/49443274/when-he-came-to-the-sea-for-the-first-time-in-a-year)
+- [Maisy is two years old today!](https://news.puppy-snuggles.com/48977249/maisy-is-two-years-old-today)
+- [Dogs grieve just like humans do](https://news.puppy-snuggles.com/48958410/dogs-grieve-just-like-humans-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
