@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Carl, he likes rainbows 🌈](https://news.puppy-snuggles.com/49884166/this-is-carl-he-likes-rainbows)
-- [Rest in piece, my loyal friend](https://news.puppy-snuggles.com/49884165/rest-in-piece-my-loyal-friend)
-- [when he came to the sea for the first time in a year!](https://news.puppy-snuggles.com/49443274/when-he-came-to-the-sea-for-the-first-time-in-a-year)
-- [Maisy is two years old today!](https://news.puppy-snuggles.com/48977249/maisy-is-two-years-old-today)
-- [Dogs grieve just like humans do](https://news.puppy-snuggles.com/48958410/dogs-grieve-just-like-humans-do)
+- [Adopted this little girl today from the shelter! What should we name her?](https://news.puppy-snuggles.com/49946734/adopted-this-little-girl-today-from-the-shelter-what-should-we-name-her)
+- [Nero 🫶🏼](https://news.puppy-snuggles.com/49946735/nero)
+- [Where Max was, there shall be his memory](https://news.puppy-snuggles.com/49946736/where-max-was-there-shall-be-his-memory)
+- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
+- [Sunny days, sweeping the clouds away](https://news.puppy-snuggles.com/36111956/sunny-days-sweeping-the-clouds-away)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
