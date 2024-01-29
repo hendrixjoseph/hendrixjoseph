@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted this little girl today from the shelter! What should we name her?](https://news.puppy-snuggles.com/49946734/adopted-this-little-girl-today-from-the-shelter-what-should-we-name-her)
-- [Nero 🫶🏼](https://news.puppy-snuggles.com/49946735/nero)
-- [Where Max was, there shall be his memory](https://news.puppy-snuggles.com/49946736/where-max-was-there-shall-be-his-memory)
-- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
-- [Sunny days, sweeping the clouds away](https://news.puppy-snuggles.com/36111956/sunny-days-sweeping-the-clouds-away)
+- [My new puppy Cami ♥️😍🐕 she&amp;#039;s such a sweetheart my heart is melting 😂](https://news.puppy-snuggles.com/49521167/my-new-puppy-cami-shes-such-a-sweetheart-my-heart-is-melting)
+- [What do y‘all call this position?](https://news.puppy-snuggles.com/29793417/what-do-yall-call-this-position)
+- [Can you wish Francesca, Happy 1st Birthday?](https://news.puppy-snuggles.com/24763107/can-you-wish-francesca-happy-1st-birthday)
+- [I’ve made the heartbreaking decision, that I’m gonna have to let this old girl go soon](https://news.puppy-snuggles.com/24019735/ive-made-the-heartbreaking-decision-that-im-gonna-have-to-let-this-old-girl-go-soon)
+- [Our newest Pup, Coco Loco](https://news.puppy-snuggles.com/23196457/our-newest-pup-coco-loco)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
