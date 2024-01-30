@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new puppy Cami ♥️😍🐕 she&amp;#039;s such a sweetheart my heart is melting 😂](https://news.puppy-snuggles.com/49521167/my-new-puppy-cami-shes-such-a-sweetheart-my-heart-is-melting)
-- [What do y‘all call this position?](https://news.puppy-snuggles.com/29793417/what-do-yall-call-this-position)
-- [Can you wish Francesca, Happy 1st Birthday?](https://news.puppy-snuggles.com/24763107/can-you-wish-francesca-happy-1st-birthday)
-- [I’ve made the heartbreaking decision, that I’m gonna have to let this old girl go soon](https://news.puppy-snuggles.com/24019735/ive-made-the-heartbreaking-decision-that-im-gonna-have-to-let-this-old-girl-go-soon)
-- [Our newest Pup, Coco Loco](https://news.puppy-snuggles.com/23196457/our-newest-pup-coco-loco)
+- [Dog entertains baby](https://news.puppy-snuggles.com/48590867/dog-entertains-baby)
+- [Using mamma&amp;#039;s ear as a blanket - Dog](https://news.puppy-snuggles.com/45669749/using-mammas-ear-as-a-blanket-dog)
+- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
+- [What breed is this?](https://news.puppy-snuggles.com/39018389/what-breed-is-this)
+- [Handsome](https://news.puppy-snuggles.com/31219721/handsome)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
