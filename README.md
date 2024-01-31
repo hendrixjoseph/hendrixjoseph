@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog entertains baby](https://news.puppy-snuggles.com/48590867/dog-entertains-baby)
-- [Using mamma&amp;#039;s ear as a blanket - Dog](https://news.puppy-snuggles.com/45669749/using-mammas-ear-as-a-blanket-dog)
-- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
-- [What breed is this?](https://news.puppy-snuggles.com/39018389/what-breed-is-this)
-- [Handsome](https://news.puppy-snuggles.com/31219721/handsome)
+- [Emotional support dogs](https://news.puppy-snuggles.com/50117383/emotional-support-dogs)
+- [Show us your doggies in the sun ☀️](https://news.puppy-snuggles.com/50117389/show-us-your-doggies-in-the-sun)
+- [What kind of dog is he?](https://news.puppy-snuggles.com/50117392/what-kind-of-dog-is-he)
+- [How cute they are?](https://news.puppy-snuggles.com/50117386/how-cute-they-are)
+- [Here we go](https://news.puppy-snuggles.com/50117388/here-we-go)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
