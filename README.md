@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Emotional support dogs](https://news.puppy-snuggles.com/50117383/emotional-support-dogs)
-- [Show us your doggies in the sun ☀️](https://news.puppy-snuggles.com/50117389/show-us-your-doggies-in-the-sun)
-- [What kind of dog is he?](https://news.puppy-snuggles.com/50117392/what-kind-of-dog-is-he)
-- [How cute they are?](https://news.puppy-snuggles.com/50117386/how-cute-they-are)
-- [Here we go](https://news.puppy-snuggles.com/50117388/here-we-go)
+- [Need help with a name for her! I don’t like food based names tho! Please help](https://news.puppy-snuggles.com/50191469/need-help-with-a-name-for-her-i-dont-like-food-based-names-tho-please-help)
+- [His Favorite Toy](https://news.puppy-snuggles.com/50191468/his-favorite-toy)
+- [🐾](https://news.puppy-snuggles.com/50191470/)
+- [My little baby boy, wish dogs stayed as babies forever lol](https://news.puppy-snuggles.com/38507713/my-little-baby-boy-wish-dogs-stayed-as-babies-forever-lol)
+- [Doyle requests praise for his upcoming 13th birthday](https://news.puppy-snuggles.com/22602981/doyle-requests-praise-for-his-upcoming-13th-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
