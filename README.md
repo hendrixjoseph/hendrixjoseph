@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Need help with a name for her! I don’t like food based names tho! Please help](https://news.puppy-snuggles.com/50191469/need-help-with-a-name-for-her-i-dont-like-food-based-names-tho-please-help)
-- [His Favorite Toy](https://news.puppy-snuggles.com/50191468/his-favorite-toy)
-- [🐾](https://news.puppy-snuggles.com/50191470/)
-- [My little baby boy, wish dogs stayed as babies forever lol](https://news.puppy-snuggles.com/38507713/my-little-baby-boy-wish-dogs-stayed-as-babies-forever-lol)
-- [Doyle requests praise for his upcoming 13th birthday](https://news.puppy-snuggles.com/22602981/doyle-requests-praise-for-his-upcoming-13th-birthday)
+- [Hardest goodbye ever ♥️](https://news.puppy-snuggles.com/50238108/hardest-goodbye-ever)
+- [What a smart boy](https://news.puppy-snuggles.com/49072203/what-a-smart-boy)
+- [My freak baby, Bonnie](https://news.puppy-snuggles.com/48665178/my-freak-baby-bonnie)
+- [Lost our boy last thursday](https://news.puppy-snuggles.com/44200284/lost-our-boy-last-thursday)
+- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/42738695/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
