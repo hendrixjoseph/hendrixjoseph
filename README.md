@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hardest goodbye ever ♥️](https://news.puppy-snuggles.com/50238108/hardest-goodbye-ever)
-- [What a smart boy](https://news.puppy-snuggles.com/49072203/what-a-smart-boy)
-- [My freak baby, Bonnie](https://news.puppy-snuggles.com/48665178/my-freak-baby-bonnie)
-- [Lost our boy last thursday](https://news.puppy-snuggles.com/44200284/lost-our-boy-last-thursday)
-- [This is Meatball. He&amp;#039;s going home for the very first time, with a human of his very own.](https://news.puppy-snuggles.com/42738695/this-is-meatball-hes-going-home-for-the-very-first-time-with-a-human-of-his-very-own)
+- [Said our goodbyes to my best friend yesterday. This hurts so much. Just wanted to share him.](https://news.puppy-snuggles.com/48223722/said-our-goodbyes-to-my-best-friend-yesterday-this-hurts-so-much-just-wanted-to-share-him)
+- [She needs a name, suggestions?](https://news.puppy-snuggles.com/28396024/she-needs-a-name-suggestions)
+- [I had promised my 10 year old dog that I would take him to the sea before he left us. Here are photos of him just before we discovered his illness. He left us last year.](https://news.puppy-snuggles.com/24568285/i-had-promised-my-10-year-old-dog-that-i-would-take-him-to-the-sea-before-he-left-us-here-are-photos-of-him-just-before-we-discovered-his-illness-he-left-us-last-year)
+- [The faces you make when you find out you’re being adopted together!](https://news.puppy-snuggles.com/23507450/the-faces-you-make-when-you-find-out-youre-being-adopted-together)
+- [so hard weekend](https://news.puppy-snuggles.com/23242001/so-hard-weekend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
