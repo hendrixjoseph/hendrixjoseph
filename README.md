@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Streaming services: don&#39;t stack, rotate.](https://www.reddit.com/r/Frugal/comments/1ahvdnk/streaming_services_dont_stack_rotate/kossex4/)
+- [/u/joehx on Replacement for Mint?](https://www.reddit.com/r/financialindependence/comments/1ai277l/replacement_for_mint/kosrjzk/)
+- [/u/joehx on Replacement for Mint?](https://www.reddit.com/r/financialindependence/comments/1ai277l/replacement_for_mint/kosl876/)
 - [/u/joehx on Tax Thursday Thread for the week of February 01, 2024](https://www.reddit.com/r/personalfinance/comments/1ag8eyo/tax_thursday_thread_for_the_week_of_february_01/kolc29q/)
 - [/u/joehx on Tax Thursday Thread for the week of February 01, 2024](https://www.reddit.com/r/personalfinance/comments/1ag8eyo/tax_thursday_thread_for_the_week_of_february_01/kolbpx3/)
-- [/u/joehx on Tax Thursday Thread for the week of February 01, 2024](https://www.reddit.com/r/personalfinance/comments/1ag8eyo/tax_thursday_thread_for_the_week_of_february_01/kol54qw/)
-- [/u/joehx on What is a really common abbreviation that almost no one knows the correct meaning of?](https://www.reddit.com/r/AskReddit/comments/19egku2/what_is_a_really_common_abbreviation_that_almost/kjdwd3t/)
-- [/u/joehx on What is a really common abbreviation that almost no one knows the correct meaning of?](https://www.reddit.com/r/AskReddit/comments/19egku2/what_is_a_really_common_abbreviation_that_almost/kjdw2nn/)
 <!-- REDDIT:END -->
