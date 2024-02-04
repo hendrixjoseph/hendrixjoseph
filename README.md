@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said our goodbyes to my best friend yesterday. This hurts so much. Just wanted to share him.](https://news.puppy-snuggles.com/48223722/said-our-goodbyes-to-my-best-friend-yesterday-this-hurts-so-much-just-wanted-to-share-him)
-- [She needs a name, suggestions?](https://news.puppy-snuggles.com/28396024/she-needs-a-name-suggestions)
-- [I had promised my 10 year old dog that I would take him to the sea before he left us. Here are photos of him just before we discovered his illness. He left us last year.](https://news.puppy-snuggles.com/24568285/i-had-promised-my-10-year-old-dog-that-i-would-take-him-to-the-sea-before-he-left-us-here-are-photos-of-him-just-before-we-discovered-his-illness-he-left-us-last-year)
-- [The faces you make when you find out you’re being adopted together!](https://news.puppy-snuggles.com/23507450/the-faces-you-make-when-you-find-out-youre-being-adopted-together)
-- [so hard weekend](https://news.puppy-snuggles.com/23242001/so-hard-weekend)
+- [Adopted this sweet girl and bringing her home on Saturday! Name ideas?](https://news.puppy-snuggles.com/31856505/adopted-this-sweet-girl-and-bringing-her-home-on-saturday-name-ideas)
+- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
+- [Say cheeese! 😁](https://news.puppy-snuggles.com/24545004/say-cheeese)
+- [A couple of pups enjoying their day together](https://news.puppy-snuggles.com/24402196/a-couple-of-pups-enjoying-their-day-together)
+- [Need help identifying my new puppy..!!](https://news.puppy-snuggles.com/23205509/need-help-identifying-my-new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
