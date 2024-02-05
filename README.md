@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted this sweet girl and bringing her home on Saturday! Name ideas?](https://news.puppy-snuggles.com/31856505/adopted-this-sweet-girl-and-bringing-her-home-on-saturday-name-ideas)
-- [My brothers little dog is his whole life, so I made a portrait of the two of them 💜💜](https://news.puppy-snuggles.com/24832384/my-brothers-little-dog-is-his-whole-life-so-i-made-a-portrait-of-the-two-of-them)
-- [Say cheeese! 😁](https://news.puppy-snuggles.com/24545004/say-cheeese)
-- [A couple of pups enjoying their day together](https://news.puppy-snuggles.com/24402196/a-couple-of-pups-enjoying-their-day-together)
-- [Need help identifying my new puppy..!!](https://news.puppy-snuggles.com/23205509/need-help-identifying-my-new-puppy)
+- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
+- [The best thing I&amp;#039;ve seen today.](https://news.puppy-snuggles.com/50238107/the-best-thing-ive-seen-today)
+- [adopted this dog he is 4 months old now.. what do you think is his breed?](https://news.puppy-snuggles.com/23196460/adopted-this-dog-he-is-4-months-old-now-what-do-you-think-is-his-breed)
+- [Catrina want to say thanks to all these special people who helped him afford his chemotheraphy 😊](https://news.puppy-snuggles.com/22994975/catrina-want-to-say-thanks-to-all-these-special-people-who-helped-him-afford-his-chemotheraphy)
+- [The great debate](https://news.puppy-snuggles.com/22978562/the-great-debate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
