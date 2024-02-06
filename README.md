@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
-- [The best thing I&amp;#039;ve seen today.](https://news.puppy-snuggles.com/50238107/the-best-thing-ive-seen-today)
-- [adopted this dog he is 4 months old now.. what do you think is his breed?](https://news.puppy-snuggles.com/23196460/adopted-this-dog-he-is-4-months-old-now-what-do-you-think-is-his-breed)
-- [Catrina want to say thanks to all these special people who helped him afford his chemotheraphy 😊](https://news.puppy-snuggles.com/22994975/catrina-want-to-say-thanks-to-all-these-special-people-who-helped-him-afford-his-chemotheraphy)
-- [The great debate](https://news.puppy-snuggles.com/22978562/the-great-debate)
+- [She was my baby girl, passed away in December I miss her so much](https://news.puppy-snuggles.com/50472109/she-was-my-baby-girl-passed-away-in-december-i-miss-her-so-much)
+- [She&amp;#039;s braver than I am.](https://news.puppy-snuggles.com/50402610/shes-braver-than-i-am)
+- [🐺 Czechoslovakian Wolfdog + Beach Zoomies = 😍](https://news.puppy-snuggles.com/36320243/czechoslovakian-wolfdog-beach-zoomies)
+- [Happy Boys stopped to smell the flowers](https://news.puppy-snuggles.com/35895251/happy-boys-stopped-to-smell-the-flowers)
+- [When your frog loves to show off the newly grown teefs](https://news.puppy-snuggles.com/35581483/when-your-frog-loves-to-show-off-the-newly-grown-teefs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
