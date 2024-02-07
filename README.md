@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She was my baby girl, passed away in December I miss her so much](https://news.puppy-snuggles.com/50472109/she-was-my-baby-girl-passed-away-in-december-i-miss-her-so-much)
-- [She&amp;#039;s braver than I am.](https://news.puppy-snuggles.com/50402610/shes-braver-than-i-am)
-- [🐺 Czechoslovakian Wolfdog + Beach Zoomies = 😍](https://news.puppy-snuggles.com/36320243/czechoslovakian-wolfdog-beach-zoomies)
-- [Happy Boys stopped to smell the flowers](https://news.puppy-snuggles.com/35895251/happy-boys-stopped-to-smell-the-flowers)
-- [When your frog loves to show off the newly grown teefs](https://news.puppy-snuggles.com/35581483/when-your-frog-loves-to-show-off-the-newly-grown-teefs)
+- [When my girl was a baby bean](https://news.puppy-snuggles.com/50514191/when-my-girl-was-a-baby-bean)
+- [My girl Winter 💜](https://news.puppy-snuggles.com/50514192/my-girl-winter)
+- [I lost my best friend of 11 years to cancer yesterday.](https://news.puppy-snuggles.com/50357557/i-lost-my-best-friend-of-11-years-to-cancer-yesterday)
+- [Show me your ‘can’t eat without eyes watching me’ pics 😅](https://news.puppy-snuggles.com/50311994/show-me-your-cant-eat-without-eyes-watching-me-pics)
+- [Adopting this little guy on Saturday. He’s been through a lot but now he finally will have a forever home ❤️🥺](https://news.puppy-snuggles.com/50117384/adopting-this-little-guy-on-saturday-hes-been-through-a-lot-but-now-he-finally-will-have-a-forever-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
