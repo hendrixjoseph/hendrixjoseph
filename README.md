@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When my girl was a baby bean](https://news.puppy-snuggles.com/50514191/when-my-girl-was-a-baby-bean)
-- [My girl Winter 💜](https://news.puppy-snuggles.com/50514192/my-girl-winter)
-- [I lost my best friend of 11 years to cancer yesterday.](https://news.puppy-snuggles.com/50357557/i-lost-my-best-friend-of-11-years-to-cancer-yesterday)
-- [Show me your ‘can’t eat without eyes watching me’ pics 😅](https://news.puppy-snuggles.com/50311994/show-me-your-cant-eat-without-eyes-watching-me-pics)
-- [Adopting this little guy on Saturday. He’s been through a lot but now he finally will have a forever home ❤️🥺](https://news.puppy-snuggles.com/50117384/adopting-this-little-guy-on-saturday-hes-been-through-a-lot-but-now-he-finally-will-have-a-forever-home)
+- [Definitely not lacking in self confidence.](https://news.puppy-snuggles.com/50621294/definitely-not-lacking-in-self-confidence)
+- [What should we name her?](https://news.puppy-snuggles.com/50621295/what-should-we-name-her)
+- [Today we took him from the shelter, he is afraid of people, it feels like he has had a hard life](https://news.puppy-snuggles.com/50381466/today-we-took-him-from-the-shelter-he-is-afraid-of-people-it-feels-like-he-has-had-a-hard-life)
+- [RIP My sweet girl](https://news.puppy-snuggles.com/50263196/rip-my-sweet-girl)
+- [Look at this doofus not a thing behind those eyes](https://news.puppy-snuggles.com/50263202/look-at-this-doofus-not-a-thing-behind-those-eyes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
