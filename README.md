@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Definitely not lacking in self confidence.](https://news.puppy-snuggles.com/50621294/definitely-not-lacking-in-self-confidence)
-- [What should we name her?](https://news.puppy-snuggles.com/50621295/what-should-we-name-her)
-- [Today we took him from the shelter, he is afraid of people, it feels like he has had a hard life](https://news.puppy-snuggles.com/50381466/today-we-took-him-from-the-shelter-he-is-afraid-of-people-it-feels-like-he-has-had-a-hard-life)
-- [RIP My sweet girl](https://news.puppy-snuggles.com/50263196/rip-my-sweet-girl)
-- [Look at this doofus not a thing behind those eyes](https://news.puppy-snuggles.com/50263202/look-at-this-doofus-not-a-thing-behind-those-eyes)
+- [Bella!](https://news.puppy-snuggles.com/50664632/bella)
+- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
+- [They&amp;#039;ve reunited in dog heaven today](https://news.puppy-snuggles.com/50140002/theyve-reunited-in-dog-heaven-today)
+- [Maisy is two years old today!](https://news.puppy-snuggles.com/48977249/maisy-is-two-years-old-today)
+- [It&amp;#039;s always a golden retriever](https://news.puppy-snuggles.com/48898949/its-always-a-golden-retriever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
