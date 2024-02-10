@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bella!](https://news.puppy-snuggles.com/50664632/bella)
-- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
-- [They&amp;#039;ve reunited in dog heaven today](https://news.puppy-snuggles.com/50140002/theyve-reunited-in-dog-heaven-today)
-- [Maisy is two years old today!](https://news.puppy-snuggles.com/48977249/maisy-is-two-years-old-today)
-- [It&amp;#039;s always a golden retriever](https://news.puppy-snuggles.com/48898949/its-always-a-golden-retriever)
+- [This dog can save lives](https://news.puppy-snuggles.com/50736622/this-dog-can-save-lives)
+- [oh my god that&amp;#039;s great](https://news.puppy-snuggles.com/50736619/oh-my-god-thats-great)
+- [Running away from my problems](https://news.puppy-snuggles.com/50736621/running-away-from-my-problems)
+- [Met a new friend at work last month. Now he knows exactly where we keep the treats at the counter. Definitely a top customer.](https://news.puppy-snuggles.com/50736623/met-a-new-friend-at-work-last-month-now-he-knows-exactly-where-we-keep-the-treats-at-the-counter-definitely-a-top-customer)
+- [Long day of being a spoiled brat](https://news.puppy-snuggles.com/50736618/long-day-of-being-a-spoiled-brat)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
