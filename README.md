@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This dog can save lives](https://news.puppy-snuggles.com/50736622/this-dog-can-save-lives)
-- [oh my god that&amp;#039;s great](https://news.puppy-snuggles.com/50736619/oh-my-god-thats-great)
-- [Running away from my problems](https://news.puppy-snuggles.com/50736621/running-away-from-my-problems)
-- [Met a new friend at work last month. Now he knows exactly where we keep the treats at the counter. Definitely a top customer.](https://news.puppy-snuggles.com/50736623/met-a-new-friend-at-work-last-month-now-he-knows-exactly-where-we-keep-the-treats-at-the-counter-definitely-a-top-customer)
-- [Long day of being a spoiled brat](https://news.puppy-snuggles.com/50736618/long-day-of-being-a-spoiled-brat)
+- [Show me your dogs&amp;#039; puppy face.](https://news.puppy-snuggles.com/48059168/show-me-your-dogs-puppy-face)
+- [His smile makes my day.](https://news.puppy-snuggles.com/46818033/his-smile-makes-my-day)
+- [My pup smiles when she sleeps](https://news.puppy-snuggles.com/45987338/my-pup-smiles-when-she-sleeps)
+- [Hey guys](https://news.puppy-snuggles.com/35537321/hey-guys)
+- [Moose being her adorable ahh self](https://news.puppy-snuggles.com/35128067/moose-being-her-adorable-ahh-self)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
