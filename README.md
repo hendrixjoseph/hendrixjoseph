@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your dogs&amp;#039; puppy face.](https://news.puppy-snuggles.com/48059168/show-me-your-dogs-puppy-face)
-- [His smile makes my day.](https://news.puppy-snuggles.com/46818033/his-smile-makes-my-day)
-- [My pup smiles when she sleeps](https://news.puppy-snuggles.com/45987338/my-pup-smiles-when-she-sleeps)
-- [Hey guys](https://news.puppy-snuggles.com/35537321/hey-guys)
-- [Moose being her adorable ahh self](https://news.puppy-snuggles.com/35128067/moose-being-her-adorable-ahh-self)
+- [Happy Saturday from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/50805867/happy-saturday-from-all-our-smiling-puppers-here-at-sara-morocco)
+- [Hopefully Niko’s smile brightens your day as much as it does mine &lpar;:](https://news.puppy-snuggles.com/50736617/hopefully-nikos-smile-brightens-your-day-as-much-as-it-does-mine)
+- [Still puppies to me](https://news.puppy-snuggles.com/41616677/still-puppies-to-me)
+- [ayy](https://news.puppy-snuggles.com/23710054/ayy)
+- [Corbin](https://news.puppy-snuggles.com/23412983/corbin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
