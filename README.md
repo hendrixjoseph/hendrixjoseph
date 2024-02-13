@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Saturday from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/50805867/happy-saturday-from-all-our-smiling-puppers-here-at-sara-morocco)
-- [Hopefully Niko’s smile brightens your day as much as it does mine &lpar;:](https://news.puppy-snuggles.com/50736617/hopefully-nikos-smile-brightens-your-day-as-much-as-it-does-mine)
-- [Still puppies to me](https://news.puppy-snuggles.com/41616677/still-puppies-to-me)
-- [ayy](https://news.puppy-snuggles.com/23710054/ayy)
-- [Corbin](https://news.puppy-snuggles.com/23412983/corbin)
+- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
+- [Just wanted to show my pretty girl](https://news.puppy-snuggles.com/50917718/just-wanted-to-show-my-pretty-girl)
+- [This is my neighbors dog and he comes by every morning to go on walks with me](https://news.puppy-snuggles.com/50917715/this-is-my-neighbors-dog-and-he-comes-by-every-morning-to-go-on-walks-with-me)
+- [Here’s Bailey](https://news.puppy-snuggles.com/50917716/heres-bailey)
+- [Boomer was never allowed inside the house](https://news.puppy-snuggles.com/49204844/boomer-was-never-allowed-inside-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
