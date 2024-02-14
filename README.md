@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
-- [Just wanted to show my pretty girl](https://news.puppy-snuggles.com/50917718/just-wanted-to-show-my-pretty-girl)
-- [This is my neighbors dog and he comes by every morning to go on walks with me](https://news.puppy-snuggles.com/50917715/this-is-my-neighbors-dog-and-he-comes-by-every-morning-to-go-on-walks-with-me)
-- [Here’s Bailey](https://news.puppy-snuggles.com/50917716/heres-bailey)
-- [Boomer was never allowed inside the house](https://news.puppy-snuggles.com/49204844/boomer-was-never-allowed-inside-the-house)
+- [said goodbye to Bella today after the best 15 years I could ask for, please say a prayer for her](https://news.puppy-snuggles.com/50577377/said-goodbye-to-bella-today-after-the-best-15-years-i-could-ask-for-please-say-a-prayer-for-her)
+- [This my beautiful dog. She is 8 years old 💞](https://news.puppy-snuggles.com/49364680/this-my-beautiful-dog-she-is-8-years-old)
+- [I protect you](https://news.puppy-snuggles.com/47944895/i-protect-you)
+- [What is the first thing that comes to your mind when you see this image?](https://news.puppy-snuggles.com/33990564/what-is-the-first-thing-that-comes-to-your-mind-when-you-see-this-image)
+- [My best friend, Kyla, celebrated her 8th birthday today! 🎂](https://news.puppy-snuggles.com/25621292/my-best-friend-kyla-celebrated-her-8th-birthday-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
