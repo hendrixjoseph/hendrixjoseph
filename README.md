@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [said goodbye to Bella today after the best 15 years I could ask for, please say a prayer for her](https://news.puppy-snuggles.com/50577377/said-goodbye-to-bella-today-after-the-best-15-years-i-could-ask-for-please-say-a-prayer-for-her)
-- [This my beautiful dog. She is 8 years old 💞](https://news.puppy-snuggles.com/49364680/this-my-beautiful-dog-she-is-8-years-old)
-- [I protect you](https://news.puppy-snuggles.com/47944895/i-protect-you)
-- [What is the first thing that comes to your mind when you see this image?](https://news.puppy-snuggles.com/33990564/what-is-the-first-thing-that-comes-to-your-mind-when-you-see-this-image)
-- [My best friend, Kyla, celebrated her 8th birthday today! 🎂](https://news.puppy-snuggles.com/25621292/my-best-friend-kyla-celebrated-her-8th-birthday-today)
+- [We&amp;#039;re all smiles when we get a visit from Pop](https://news.puppy-snuggles.com/51034756/were-all-smiles-when-we-get-a-visit-from-pop)
+- [😜](https://news.puppy-snuggles.com/51034755/)
+- [Viewers beware](https://news.puppy-snuggles.com/51034754/viewers-beware)
+- [Heroic dog saved his friend with a tree branch](https://news.puppy-snuggles.com/51034753/heroic-dog-saved-his-friend-with-a-tree-branch)
+- [Smiling puppy](https://news.puppy-snuggles.com/51034757/smiling-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
