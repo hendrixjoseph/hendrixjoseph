@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We&amp;#039;re all smiles when we get a visit from Pop](https://news.puppy-snuggles.com/51034756/were-all-smiles-when-we-get-a-visit-from-pop)
-- [😜](https://news.puppy-snuggles.com/51034755/)
-- [Viewers beware](https://news.puppy-snuggles.com/51034754/viewers-beware)
-- [Heroic dog saved his friend with a tree branch](https://news.puppy-snuggles.com/51034753/heroic-dog-saved-his-friend-with-a-tree-branch)
-- [Smiling puppy](https://news.puppy-snuggles.com/51034757/smiling-puppy)
+- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
+- [Buck says remember to smile!](https://news.puppy-snuggles.com/50849282/buck-says-remember-to-smile)
+- [Today is my sweet girl Momo&amp;#039;s first birthday, and she had a puppy party](https://news.puppy-snuggles.com/49054130/today-is-my-sweet-girl-momos-first-birthday-and-she-had-a-puppy-party)
+- [He doesn&amp;#039;t like leaving the park](https://news.puppy-snuggles.com/45442969/he-doesnt-like-leaving-the-park)
+- [No one explained to Ben that pictures one and two would turn in picture three with Daniel.](https://news.puppy-snuggles.com/45073873/no-one-explained-to-ben-that-pictures-one-and-two-would-turn-in-picture-three-with-daniel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
