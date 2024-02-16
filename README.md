@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Redditors who fucked around and found out, what did you find out?](https://www.reddit.com/r/AskReddit/comments/1argrnq/redditors_who_fucked_around_and_found_out_what/kqleqob/)
+- [/u/joehx on You wake up tomorrow and the Internet is gone. What do you do?](https://www.reddit.com/r/AskReddit/comments/1aqzy2k/you_wake_up_tomorrow_and_the_internet_is_gone/kqjziej/)
+- [/u/joehx on Daily FI discussion thread - Thursday, February 15, 2024](https://www.reddit.com/r/financialindependence/comments/1arc516/daily_fi_discussion_thread_thursday_february_15/kqj9120/)
 - [/u/joehx on Which uncomplicated yet highly efficient life hack surprises you that it isn&#39;t more widely known?](https://www.reddit.com/r/AskReddit/comments/1ak9beq/which_uncomplicated_yet_highly_efficient_life/kp8cump/)
 - [For those that have won sweepstakes or contests, how were you notified that you won?](https://www.reddit.com/r/AskReddit/comments/1akc4ms/for_those_that_have_won_sweepstakes_or_contests/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of February 05, 2024](https://www.reddit.com/r/personalfinance/comments/1ajdvrw/weekday_help_and_victory_thread_for_the_week_of/kp1n7t8/)
-- [/u/joehx on Streaming services: don&#39;t stack, rotate.](https://www.reddit.com/r/Frugal/comments/1ahvdnk/streaming_services_dont_stack_rotate/kossex4/)
-- [/u/joehx on Replacement for Mint?](https://www.reddit.com/r/financialindependence/comments/1ai277l/replacement_for_mint/kosrjzk/)
 <!-- REDDIT:END -->
