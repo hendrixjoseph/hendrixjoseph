@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
-- [Buck says remember to smile!](https://news.puppy-snuggles.com/50849282/buck-says-remember-to-smile)
-- [Today is my sweet girl Momo&amp;#039;s first birthday, and she had a puppy party](https://news.puppy-snuggles.com/49054130/today-is-my-sweet-girl-momos-first-birthday-and-she-had-a-puppy-party)
-- [He doesn&amp;#039;t like leaving the park](https://news.puppy-snuggles.com/45442969/he-doesnt-like-leaving-the-park)
-- [No one explained to Ben that pictures one and two would turn in picture three with Daniel.](https://news.puppy-snuggles.com/45073873/no-one-explained-to-ben-that-pictures-one-and-two-would-turn-in-picture-three-with-daniel)
+- [Smiley boy 😍](https://news.puppy-snuggles.com/51152783/smiley-boy)
+- [Keep my lil man in your thoughts. At the E.R with him. 17 years old. *This photo was 7 years ago *](https://news.puppy-snuggles.com/51152780/keep-my-lil-man-in-your-thoughts-at-the-er-with-him-17-years-old-this-photo-was-7-years-ago)
+- [Happy Gotcha Day to Bubbles](https://news.puppy-snuggles.com/51152781/happy-gotcha-day-to-bubbles)
+- [Do your dogs carefully inspect you when you get home?](https://news.puppy-snuggles.com/51152784/do-your-dogs-carefully-inspect-you-when-you-get-home)
+- [Finally hit 2kg &lpar; has liver disease &rpar;](https://news.puppy-snuggles.com/51152787/finally-hit-2kg-has-liver-disease)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
