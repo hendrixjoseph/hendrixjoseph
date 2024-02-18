@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiley boy 😍](https://news.puppy-snuggles.com/51152783/smiley-boy)
-- [Keep my lil man in your thoughts. At the E.R with him. 17 years old. *This photo was 7 years ago *](https://news.puppy-snuggles.com/51152780/keep-my-lil-man-in-your-thoughts-at-the-er-with-him-17-years-old-this-photo-was-7-years-ago)
-- [Happy Gotcha Day to Bubbles](https://news.puppy-snuggles.com/51152781/happy-gotcha-day-to-bubbles)
-- [Do your dogs carefully inspect you when you get home?](https://news.puppy-snuggles.com/51152784/do-your-dogs-carefully-inspect-you-when-you-get-home)
-- [Finally hit 2kg &lpar; has liver disease &rpar;](https://news.puppy-snuggles.com/51152787/finally-hit-2kg-has-liver-disease)
+- [Boy comforts puppy scared of bath time!](https://news.puppy-snuggles.com/49482931/boy-comforts-puppy-scared-of-bath-time)
+- [Furry love!](https://news.puppy-snuggles.com/49482936/furry-love)
+- [This is an Injustic](https://news.puppy-snuggles.com/49482934/this-is-an-injustic)
+- [Mooooore ball pls!](https://news.puppy-snuggles.com/47682306/mooooore-ball-pls)
+- [smol body, big brain](https://news.puppy-snuggles.com/45270762/smol-body-big-brain)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
