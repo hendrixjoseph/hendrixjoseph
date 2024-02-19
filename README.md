@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Please help what’s my dog breed. They claim Maltese chihuahua](https://news.puppy-snuggles.com/51263822/please-help-whats-my-dog-breed-they-claim-maltese-chihuahua)
 - [Boy comforts puppy scared of bath time!](https://news.puppy-snuggles.com/49482931/boy-comforts-puppy-scared-of-bath-time)
 - [Furry love!](https://news.puppy-snuggles.com/49482936/furry-love)
 - [This is an Injustic](https://news.puppy-snuggles.com/49482934/this-is-an-injustic)
 - [Mooooore ball pls!](https://news.puppy-snuggles.com/47682306/mooooore-ball-pls)
-- [smol body, big brain](https://news.puppy-snuggles.com/45270762/smol-body-big-brain)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
