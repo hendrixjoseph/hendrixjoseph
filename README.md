@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please help what’s my dog breed. They claim Maltese chihuahua](https://news.puppy-snuggles.com/51263822/please-help-whats-my-dog-breed-they-claim-maltese-chihuahua)
-- [Boy comforts puppy scared of bath time!](https://news.puppy-snuggles.com/49482931/boy-comforts-puppy-scared-of-bath-time)
-- [Furry love!](https://news.puppy-snuggles.com/49482936/furry-love)
-- [This is an Injustic](https://news.puppy-snuggles.com/49482934/this-is-an-injustic)
-- [Mooooore ball pls!](https://news.puppy-snuggles.com/47682306/mooooore-ball-pls)
+- [Do your dogs carefully inspect you when you get home?](https://news.puppy-snuggles.com/51152784/do-your-dogs-carefully-inspect-you-when-you-get-home)
+- [Max is not a fan of his new dog shoes.](https://news.puppy-snuggles.com/49714917/max-is-not-a-fan-of-his-new-dog-shoes)
+- [Dolly hopes you&amp;#039;re having a good day](https://news.puppy-snuggles.com/49714916/dolly-hopes-youre-having-a-good-day)
+- [Smiles At Camera](https://news.puppy-snuggles.com/49673798/smiles-at-camera)
+- [LOOK AT HIS SMILE 🥰](https://news.puppy-snuggles.com/49673797/look-at-his-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
