@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do your dogs carefully inspect you when you get home?](https://news.puppy-snuggles.com/51152784/do-your-dogs-carefully-inspect-you-when-you-get-home)
-- [Max is not a fan of his new dog shoes.](https://news.puppy-snuggles.com/49714917/max-is-not-a-fan-of-his-new-dog-shoes)
-- [Dolly hopes you&amp;#039;re having a good day](https://news.puppy-snuggles.com/49714916/dolly-hopes-youre-having-a-good-day)
-- [Smiles At Camera](https://news.puppy-snuggles.com/49673798/smiles-at-camera)
-- [LOOK AT HIS SMILE 🥰](https://news.puppy-snuggles.com/49673797/look-at-his-smile)
+- [Mom language is understood in all species](https://news.puppy-snuggles.com/49072201/mom-language-is-understood-in-all-species)
+- [real freedom](https://news.puppy-snuggles.com/46104113/real-freedom)
+- [Lost our boy last thursday](https://news.puppy-snuggles.com/44200284/lost-our-boy-last-thursday)
+- [Happy Boba!🐶💕](https://news.puppy-snuggles.com/31446355/happy-boba)
+- [My little boy](https://news.puppy-snuggles.com/23374612/my-little-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
