@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mom language is understood in all species](https://news.puppy-snuggles.com/49072201/mom-language-is-understood-in-all-species)
-- [real freedom](https://news.puppy-snuggles.com/46104113/real-freedom)
-- [Lost our boy last thursday](https://news.puppy-snuggles.com/44200284/lost-our-boy-last-thursday)
-- [Happy Boba!🐶💕](https://news.puppy-snuggles.com/31446355/happy-boba)
-- [My little boy](https://news.puppy-snuggles.com/23374612/my-little-boy)
+- [The face he had was...](https://news.puppy-snuggles.com/51449215/the-face-he-had-was)
+- [I keep being told my dog is a different breeds.](https://news.puppy-snuggles.com/51449216/i-keep-being-told-my-dog-is-a-different-breeds)
+- [Oreo my pup, in 2021, she&amp;#039;s grown a lot](https://news.puppy-snuggles.com/35787957/oreo-my-pup-in-2021-shes-grown-a-lot)
+- [Happy 1st Gotcha Day Palat! 🥳](https://news.puppy-snuggles.com/30249581/happy-1st-gotcha-day-palat)
+- [He does this every morning &lpar;OC&rpar;](https://news.puppy-snuggles.com/26856999/he-does-this-every-morning-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
