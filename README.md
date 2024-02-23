@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The face he had was...](https://news.puppy-snuggles.com/51449215/the-face-he-had-was)
-- [I keep being told my dog is a different breeds.](https://news.puppy-snuggles.com/51449216/i-keep-being-told-my-dog-is-a-different-breeds)
-- [Oreo my pup, in 2021, she&amp;#039;s grown a lot](https://news.puppy-snuggles.com/35787957/oreo-my-pup-in-2021-shes-grown-a-lot)
-- [Happy 1st Gotcha Day Palat! 🥳](https://news.puppy-snuggles.com/30249581/happy-1st-gotcha-day-palat)
-- [He does this every morning &lpar;OC&rpar;](https://news.puppy-snuggles.com/26856999/he-does-this-every-morning-oc)
+- [My Puppy Nephew loves the creek 🐾](https://news.puppy-snuggles.com/38856854/my-puppy-nephew-loves-the-creek)
+- [The many faces of Poppy…](https://news.puppy-snuggles.com/38856853/the-many-faces-of-poppy)
+- [What would you do if you were the owner?](https://news.puppy-snuggles.com/38838457/what-would-you-do-if-you-were-the-owner)
+- [Happy on her walks](https://news.puppy-snuggles.com/38820415/happy-on-her-walks)
+- [Dësmønd - My Handsome Son.](https://news.puppy-snuggles.com/38820413/desmond-my-handsome-son)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
