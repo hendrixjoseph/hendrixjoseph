@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Puppy Nephew loves the creek 🐾](https://news.puppy-snuggles.com/38856854/my-puppy-nephew-loves-the-creek)
-- [The many faces of Poppy…](https://news.puppy-snuggles.com/38856853/the-many-faces-of-poppy)
-- [What would you do if you were the owner?](https://news.puppy-snuggles.com/38838457/what-would-you-do-if-you-were-the-owner)
-- [Happy on her walks](https://news.puppy-snuggles.com/38820415/happy-on-her-walks)
-- [Dësmønd - My Handsome Son.](https://news.puppy-snuggles.com/38820413/desmond-my-handsome-son)
+- [How precious a person you must be!](https://news.puppy-snuggles.com/51618677/how-precious-a-person-you-must-be)
+- [Should I report my sister in law&amp;#039;s aggressive dog to animal control?](https://news.puppy-snuggles.com/23750098/should-i-report-my-sister-in-laws-aggressive-dog-to-animal-control)
+- [7 kilograms of happiness](https://news.puppy-snuggles.com/23360374/7-kilograms-of-happiness)
+- [Hannah has been with us for one week, but she has been in our hearts forever. 🥰](https://news.puppy-snuggles.com/22652479/hannah-has-been-with-us-for-one-week-but-she-has-been-in-our-hearts-forever)
+- [Birthday pup!](https://news.puppy-snuggles.com/22510567/birthday-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
