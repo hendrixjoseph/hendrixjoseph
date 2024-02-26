@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How precious a person you must be!](https://news.puppy-snuggles.com/51618677/how-precious-a-person-you-must-be)
-- [Should I report my sister in law&amp;#039;s aggressive dog to animal control?](https://news.puppy-snuggles.com/23750098/should-i-report-my-sister-in-laws-aggressive-dog-to-animal-control)
-- [7 kilograms of happiness](https://news.puppy-snuggles.com/23360374/7-kilograms-of-happiness)
-- [Hannah has been with us for one week, but she has been in our hearts forever. 🥰](https://news.puppy-snuggles.com/22652479/hannah-has-been-with-us-for-one-week-but-she-has-been-in-our-hearts-forever)
-- [Birthday pup!](https://news.puppy-snuggles.com/22510567/birthday-pup)
+- [New Mother, feeling much better after recovery.](https://news.puppy-snuggles.com/51683651/new-mother-feeling-much-better-after-recovery)
+- [Be inspired by Miller](https://news.puppy-snuggles.com/51683655/be-inspired-by-miller)
+- [I had to put down my sweet baby girl. Took her to her favorite place before. Share the last photo of a dear friend.](https://news.puppy-snuggles.com/51683652/i-had-to-put-down-my-sweet-baby-girl-took-her-to-her-favorite-place-before-share-the-last-photo-of-a-dear-friend)
+- [Best friends](https://news.puppy-snuggles.com/51683658/best-friends)
+- [My friend said she has creepy eyes. Is this true?](https://news.puppy-snuggles.com/51683653/my-friend-said-she-has-creepy-eyes-is-this-true)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
