@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Using images for listicles. Is it legal?](https://www.reddit.com/r/Blogging/comments/1aznrj1/using_images_for_listicles_is_it_legal/ks2gb08/)
 - [/u/joehx on What’s the most enraging example of a downgrade sold as an upgrade?](https://www.reddit.com/r/AskReddit/comments/1ayznn0/whats_the_most_enraging_example_of_a_downgrade/krznsgx/)
 - [/u/joehx on What are your favourite lesser known parts of HTML/CSS &lpar;or parts you&#39;re shocked others don&#39;t know about&rpar;?](https://www.reddit.com/r/webdev/comments/1as3l3r/what_are_your_favourite_lesser_known_parts_of/kqp5k1v/)
 - [/u/joehx on Tax Thursday Thread for the week of February 15, 2024](https://www.reddit.com/r/personalfinance/comments/1arcy09/tax_thursday_thread_for_the_week_of_february_15/kqop6wg/)
 - [/u/joehx on Redditors who fucked around and found out, what did you find out?](https://www.reddit.com/r/AskReddit/comments/1argrnq/redditors_who_fucked_around_and_found_out_what/kqleqob/)
-- [/u/joehx on You wake up tomorrow and the Internet is gone. What do you do?](https://www.reddit.com/r/AskReddit/comments/1aqzy2k/you_wake_up_tomorrow_and_the_internet_is_gone/kqjziej/)
 <!-- REDDIT:END -->
