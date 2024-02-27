@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New Mother, feeling much better after recovery.](https://news.puppy-snuggles.com/51683651/new-mother-feeling-much-better-after-recovery)
-- [Be inspired by Miller](https://news.puppy-snuggles.com/51683655/be-inspired-by-miller)
-- [I had to put down my sweet baby girl. Took her to her favorite place before. Share the last photo of a dear friend.](https://news.puppy-snuggles.com/51683652/i-had-to-put-down-my-sweet-baby-girl-took-her-to-her-favorite-place-before-share-the-last-photo-of-a-dear-friend)
-- [Best friends](https://news.puppy-snuggles.com/51683658/best-friends)
-- [My friend said she has creepy eyes. Is this true?](https://news.puppy-snuggles.com/51683653/my-friend-said-she-has-creepy-eyes-is-this-true)
+- [Happy Friday from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/50311995/happy-friday-from-all-our-smiling-puppers-here-at-sara-morocco)
+- [Remember his name, Max. As an animal rescue. We always hope our street rescues have their chance at the life they deserve here at Sara Morocco. &lpar; his story in the comments&rpar; it never gets easier. But we will carry your name with us](https://news.puppy-snuggles.com/50311997/remember-his-name-max-as-an-animal-rescue-we-always-hope-our-street-rescues-have-their-chance-at-the-life-they-deserve-here-at-sara-morocco-his-story-in-the-comments-it-never-gets-easier-but-we-will-carry-your-name-with-us)
+- [They think he is a baby lamb](https://news.puppy-snuggles.com/50311999/they-think-he-is-a-baby-lamb)
+- [Guide Dog Deku recently got me out of a dangerous situation and I am forever grateful to have him by my side](https://news.puppy-snuggles.com/50312000/guide-dog-deku-recently-got-me-out-of-a-dangerous-situation-and-i-am-forever-grateful-to-have-him-by-my-side)
+- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
