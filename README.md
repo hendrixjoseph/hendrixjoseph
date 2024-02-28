@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Friday from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/50311995/happy-friday-from-all-our-smiling-puppers-here-at-sara-morocco)
-- [Remember his name, Max. As an animal rescue. We always hope our street rescues have their chance at the life they deserve here at Sara Morocco. &lpar; his story in the comments&rpar; it never gets easier. But we will carry your name with us](https://news.puppy-snuggles.com/50311997/remember-his-name-max-as-an-animal-rescue-we-always-hope-our-street-rescues-have-their-chance-at-the-life-they-deserve-here-at-sara-morocco-his-story-in-the-comments-it-never-gets-easier-but-we-will-carry-your-name-with-us)
-- [They think he is a baby lamb](https://news.puppy-snuggles.com/50311999/they-think-he-is-a-baby-lamb)
-- [Guide Dog Deku recently got me out of a dangerous situation and I am forever grateful to have him by my side](https://news.puppy-snuggles.com/50312000/guide-dog-deku-recently-got-me-out-of-a-dangerous-situation-and-i-am-forever-grateful-to-have-him-by-my-side)
-- [First days at home](https://news.puppy-snuggles.com/50311996/first-days-at-home)
+- [This lovely guy kept staring at me for treats. Too bad I didn&amp;#039;t get any. So sorry all I could do was giving him a few pat.](https://news.puppy-snuggles.com/51660908/this-lovely-guy-kept-staring-at-me-for-treats-too-bad-i-didnt-get-any-so-sorry-all-i-could-do-was-giving-him-a-few-pat)
+- [Doggo want say something](https://news.puppy-snuggles.com/51660907/doggo-want-say-something)
+- [The three musketeers](https://news.puppy-snuggles.com/51640937/the-three-musketeers)
+- [Today, when we bathed in the sunshine together](https://news.puppy-snuggles.com/51640938/today-when-we-bathed-in-the-sunshine-together)
+- [My sweet old girl snoozing in the sunshine](https://news.puppy-snuggles.com/51640936/my-sweet-old-girl-snoozing-in-the-sunshine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
