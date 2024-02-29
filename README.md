@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This lovely guy kept staring at me for treats. Too bad I didn&amp;#039;t get any. So sorry all I could do was giving him a few pat.](https://news.puppy-snuggles.com/51660908/this-lovely-guy-kept-staring-at-me-for-treats-too-bad-i-didnt-get-any-so-sorry-all-i-could-do-was-giving-him-a-few-pat)
-- [Doggo want say something](https://news.puppy-snuggles.com/51660907/doggo-want-say-something)
-- [The three musketeers](https://news.puppy-snuggles.com/51640937/the-three-musketeers)
-- [Today, when we bathed in the sunshine together](https://news.puppy-snuggles.com/51640938/today-when-we-bathed-in-the-sunshine-together)
-- [My sweet old girl snoozing in the sunshine](https://news.puppy-snuggles.com/51640936/my-sweet-old-girl-snoozing-in-the-sunshine)
+- [Our 2 older rescue dogs. Had them 3 months now.](https://news.puppy-snuggles.com/50381467/our-2-older-rescue-dogs-had-them-3-months-now)
+- [My husband was eating wings and didn’t share.](https://news.puppy-snuggles.com/50334995/my-husband-was-eating-wings-and-didnt-share)
+- [Boba, we were just supposed to foster her, but we fell in love.](https://news.puppy-snuggles.com/46885761/boba-we-were-just-supposed-to-foster-her-but-we-fell-in-love)
+- [RIP Gorgeous](https://news.puppy-snuggles.com/45073869/rip-gorgeous)
+- [Had to say goodbye to one of my beautiful fur babies last week. I just want people to see how adorable she was. She is so missed.](https://news.puppy-snuggles.com/44973422/had-to-say-goodbye-to-one-of-my-beautiful-fur-babies-last-week-i-just-want-people-to-see-how-adorable-she-was-she-is-so-missed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
