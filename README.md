@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our 2 older rescue dogs. Had them 3 months now.](https://news.puppy-snuggles.com/50381467/our-2-older-rescue-dogs-had-them-3-months-now)
-- [My husband was eating wings and didn’t share.](https://news.puppy-snuggles.com/50334995/my-husband-was-eating-wings-and-didnt-share)
-- [Boba, we were just supposed to foster her, but we fell in love.](https://news.puppy-snuggles.com/46885761/boba-we-were-just-supposed-to-foster-her-but-we-fell-in-love)
-- [RIP Gorgeous](https://news.puppy-snuggles.com/45073869/rip-gorgeous)
-- [Had to say goodbye to one of my beautiful fur babies last week. I just want people to see how adorable she was. She is so missed.](https://news.puppy-snuggles.com/44973422/had-to-say-goodbye-to-one-of-my-beautiful-fur-babies-last-week-i-just-want-people-to-see-how-adorable-she-was-she-is-so-missed)
+- [Straydog Downey the road](https://news.puppy-snuggles.com/51929066/straydog-downey-the-road)
+- [I come home from work and tell him how my day went, he:](https://news.puppy-snuggles.com/51929064/i-come-home-from-work-and-tell-him-how-my-day-went-he)
+- [Dexter got disciplined, politely. Now he is pulling this face. I must apologise.](https://news.puppy-snuggles.com/51929065/dexter-got-disciplined-politely-now-he-is-pulling-this-face-i-must-apologise)
+- [Good man!](https://news.puppy-snuggles.com/50451050/good-man)
+- [Hi just lost my best friend just wanted to share some pictures](https://news.puppy-snuggles.com/50451051/hi-just-lost-my-best-friend-just-wanted-to-share-some-pictures)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
