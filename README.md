@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Straydog Downey the road](https://news.puppy-snuggles.com/51929066/straydog-downey-the-road)
-- [I come home from work and tell him how my day went, he:](https://news.puppy-snuggles.com/51929064/i-come-home-from-work-and-tell-him-how-my-day-went-he)
-- [Dexter got disciplined, politely. Now he is pulling this face. I must apologise.](https://news.puppy-snuggles.com/51929065/dexter-got-disciplined-politely-now-he-is-pulling-this-face-i-must-apologise)
-- [Good man!](https://news.puppy-snuggles.com/50451050/good-man)
-- [Hi just lost my best friend just wanted to share some pictures](https://news.puppy-snuggles.com/50451051/hi-just-lost-my-best-friend-just-wanted-to-share-some-pictures)
+- [Please post the goofiest pictures of your dog](https://news.puppy-snuggles.com/51794630/please-post-the-goofiest-pictures-of-your-dog)
+- [Buddy says hi](https://news.puppy-snuggles.com/51728236/buddy-says-hi)
+- [I had to put down my sweet baby girl. Took her to her favorite place before. Share the last photo of a dear friend.](https://news.puppy-snuggles.com/51683652/i-had-to-put-down-my-sweet-baby-girl-took-her-to-her-favorite-place-before-share-the-last-photo-of-a-dear-friend)
+- [OH. Beef](https://news.puppy-snuggles.com/51474332/oh-beef)
+- [The look after zoomies!](https://news.puppy-snuggles.com/50451052/the-look-after-zoomies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
