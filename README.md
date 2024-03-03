@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please post the goofiest pictures of your dog](https://news.puppy-snuggles.com/51794630/please-post-the-goofiest-pictures-of-your-dog)
-- [Buddy says hi](https://news.puppy-snuggles.com/51728236/buddy-says-hi)
-- [I had to put down my sweet baby girl. Took her to her favorite place before. Share the last photo of a dear friend.](https://news.puppy-snuggles.com/51683652/i-had-to-put-down-my-sweet-baby-girl-took-her-to-her-favorite-place-before-share-the-last-photo-of-a-dear-friend)
-- [OH. Beef](https://news.puppy-snuggles.com/51474332/oh-beef)
-- [The look after zoomies!](https://news.puppy-snuggles.com/50451052/the-look-after-zoomies)
+- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
+- [My dog Jack ❤️](https://news.puppy-snuggles.com/16539726/my-dog-jack)
+- [The Birthday boy over the years](https://news.puppy-snuggles.com/16539725/the-birthday-boy-over-the-years)
+- [boop me hooman!](https://news.puppy-snuggles.com/16530387/boop-me-hooman)
+- [American police cynologists handed over bulletproof vests to Ukrainian border guard dogs](https://news.puppy-snuggles.com/16530386/american-police-cynologists-handed-over-bulletproof-vests-to-ukrainian-border-guard-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
