@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Рlау with mе !..](https://news.puppy-snuggles.com/22708090/rlau-with-me)
-- [My dog Jack ❤️](https://news.puppy-snuggles.com/16539726/my-dog-jack)
-- [The Birthday boy over the years](https://news.puppy-snuggles.com/16539725/the-birthday-boy-over-the-years)
-- [boop me hooman!](https://news.puppy-snuggles.com/16530387/boop-me-hooman)
-- [American police cynologists handed over bulletproof vests to Ukrainian border guard dogs](https://news.puppy-snuggles.com/16530386/american-police-cynologists-handed-over-bulletproof-vests-to-ukrainian-border-guard-dogs)
+- [If you rubs I show toothy smiles](https://news.puppy-snuggles.com/51862031/if-you-rubs-i-show-toothy-smiles)
+- [Please post the prettiest pictures of your dog](https://news.puppy-snuggles.com/51862027/please-post-the-prettiest-pictures-of-your-dog)
+- [Dog learns to use the doggy door and she&amp;#039;s very excited!!](https://news.puppy-snuggles.com/51862032/dog-learns-to-use-the-doggy-door-and-shes-very-excited)
+- [Dogs secretly sneak into restricted territorie](https://news.puppy-snuggles.com/51862035/dogs-secretly-sneak-into-restricted-territorie)
+- [New girl Marceline](https://news.puppy-snuggles.com/51749904/new-girl-marceline)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
