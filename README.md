@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [This is Linda :P](https://news.puppy-snuggles.com/52159551/this-is-linda-p)
+- [Good morning](https://news.puppy-snuggles.com/52159550/good-morning)
+- [What a smart dog! Don&amp;#039;t you think?](https://news.puppy-snuggles.com/51995169/what-a-smart-dog-dont-you-think)
 - [If you rubs I show toothy smiles](https://news.puppy-snuggles.com/51862031/if-you-rubs-i-show-toothy-smiles)
 - [Please post the prettiest pictures of your dog](https://news.puppy-snuggles.com/51862027/please-post-the-prettiest-pictures-of-your-dog)
-- [Dog learns to use the doggy door and she&amp;#039;s very excited!!](https://news.puppy-snuggles.com/51862032/dog-learns-to-use-the-doggy-door-and-shes-very-excited)
-- [Dogs secretly sneak into restricted territorie](https://news.puppy-snuggles.com/51862035/dogs-secretly-sneak-into-restricted-territorie)
-- [New girl Marceline](https://news.puppy-snuggles.com/51749904/new-girl-marceline)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
