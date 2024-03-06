@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Linda :P](https://news.puppy-snuggles.com/52159551/this-is-linda-p)
-- [Good morning](https://news.puppy-snuggles.com/52159550/good-morning)
-- [What a smart dog! Don&amp;#039;t you think?](https://news.puppy-snuggles.com/51995169/what-a-smart-dog-dont-you-think)
-- [If you rubs I show toothy smiles](https://news.puppy-snuggles.com/51862031/if-you-rubs-i-show-toothy-smiles)
-- [Please post the prettiest pictures of your dog](https://news.puppy-snuggles.com/51862027/please-post-the-prettiest-pictures-of-your-dog)
+- [Ready for my hugs](https://news.puppy-snuggles.com/52233139/ready-for-my-hugs)
+- [My puppy turned 3 today.](https://news.puppy-snuggles.com/52233138/my-puppy-turned-3-today)
+- [This is auchman. He&amp;#039;s 17 and he&amp;#039;s deaf and visually impaired. He&amp;#039;s still a good Boi tho. :&rpar;](https://news.puppy-snuggles.com/51330953/this-is-auchman-hes-17-and-hes-deaf-and-visually-impaired-hes-still-a-good-boi-tho)
+- [Always has to have a toy in his mouth 🐶](https://news.puppy-snuggles.com/51308703/always-has-to-have-a-toy-in-his-mouth)
+- [He was a stray dog until he was adopted by my friend at 12 year old.](https://news.puppy-snuggles.com/51308699/he-was-a-stray-dog-until-he-was-adopted-by-my-friend-at-12-year-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
