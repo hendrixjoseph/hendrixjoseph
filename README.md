@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ready for my hugs](https://news.puppy-snuggles.com/52233139/ready-for-my-hugs)
-- [My puppy turned 3 today.](https://news.puppy-snuggles.com/52233138/my-puppy-turned-3-today)
-- [This is auchman. He&amp;#039;s 17 and he&amp;#039;s deaf and visually impaired. He&amp;#039;s still a good Boi tho. :&rpar;](https://news.puppy-snuggles.com/51330953/this-is-auchman-hes-17-and-hes-deaf-and-visually-impaired-hes-still-a-good-boi-tho)
-- [Always has to have a toy in his mouth 🐶](https://news.puppy-snuggles.com/51308703/always-has-to-have-a-toy-in-his-mouth)
-- [He was a stray dog until he was adopted by my friend at 12 year old.](https://news.puppy-snuggles.com/51308699/he-was-a-stray-dog-until-he-was-adopted-by-my-friend-at-12-year-old)
+- [I accidentally deleted my last post! Please comment pictures of your pups again so I can draw them during my spare time today.](https://news.puppy-snuggles.com/52290596/i-accidentally-deleted-my-last-post-please-comment-pictures-of-your-pups-again-so-i-can-draw-them-during-my-spare-time-today)
+- [Posing for a picture](https://news.puppy-snuggles.com/52290595/posing-for-a-picture)
+- [Here’s my guy 🥰 he turns 11 in less than 2 weeks 😭](https://news.puppy-snuggles.com/50871160/heres-my-guy-he-turns-11-in-less-than-2-weeks)
+- [My boy Louis showing off for his little lady friend Wilma](https://news.puppy-snuggles.com/50849286/my-boy-louis-showing-off-for-his-little-lady-friend-wilma)
+- [My dog passed away 5 months ago. These are some of my favorite pictures from our time together](https://news.puppy-snuggles.com/50825154/my-dog-passed-away-5-months-ago-these-are-some-of-my-favorite-pictures-from-our-time-together)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
