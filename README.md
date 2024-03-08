@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I accidentally deleted my last post! Please comment pictures of your pups again so I can draw them during my spare time today.](https://news.puppy-snuggles.com/52290596/i-accidentally-deleted-my-last-post-please-comment-pictures-of-your-pups-again-so-i-can-draw-them-during-my-spare-time-today)
-- [Posing for a picture](https://news.puppy-snuggles.com/52290595/posing-for-a-picture)
-- [Here’s my guy 🥰 he turns 11 in less than 2 weeks 😭](https://news.puppy-snuggles.com/50871160/heres-my-guy-he-turns-11-in-less-than-2-weeks)
-- [My boy Louis showing off for his little lady friend Wilma](https://news.puppy-snuggles.com/50849286/my-boy-louis-showing-off-for-his-little-lady-friend-wilma)
-- [My dog passed away 5 months ago. These are some of my favorite pictures from our time together](https://news.puppy-snuggles.com/50825154/my-dog-passed-away-5-months-ago-these-are-some-of-my-favorite-pictures-from-our-time-together)
+- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
+- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
+- [This is my neighbors dog and he comes by every morning to go on walks with me](https://news.puppy-snuggles.com/50917715/this-is-my-neighbors-dog-and-he-comes-by-every-morning-to-go-on-walks-with-me)
+- [Rate my dog](https://news.puppy-snuggles.com/29668079/rate-my-dog)
+- [Queen of the house.. 👑](https://news.puppy-snuggles.com/22916233/queen-of-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
