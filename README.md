@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
-- [my dog&amp;#039;s friend is cute and scary at the same time](https://news.puppy-snuggles.com/50917717/my-dogs-friend-is-cute-and-scary-at-the-same-time)
-- [This is my neighbors dog and he comes by every morning to go on walks with me](https://news.puppy-snuggles.com/50917715/this-is-my-neighbors-dog-and-he-comes-by-every-morning-to-go-on-walks-with-me)
-- [Rate my dog](https://news.puppy-snuggles.com/29668079/rate-my-dog)
-- [Queen of the house.. 👑](https://news.puppy-snuggles.com/22916233/queen-of-the-house)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [My hooligans are guarding the home office environs today](https://news.puppy-snuggles.com/52215270/my-hooligans-are-guarding-the-home-office-environs-today)
+- [What is this ear type called?](https://news.puppy-snuggles.com/52215264/what-is-this-ear-type-called)
+- [The most beautiful cocker spaniel you’ll ever meet. Billy is my world.](https://news.puppy-snuggles.com/51176051/the-most-beautiful-cocker-spaniel-youll-ever-meet-billy-is-my-world)
+- [met some friendly strays on vacation!](https://news.puppy-snuggles.com/43163204/met-some-friendly-strays-on-vacation)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
