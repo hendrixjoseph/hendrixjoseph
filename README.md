@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
-- [Oh to be a happy little Labrador with an orange ball!](https://news.puppy-snuggles.com/52403276/oh-to-be-a-happy-little-labrador-with-an-orange-ball)
-- [Marla says hello!](https://news.puppy-snuggles.com/52403273/marla-says-hello)
-- [Quick nap in Antalya, Turkey](https://news.puppy-snuggles.com/52403278/quick-nap-in-antalya-turkey)
-- [Typical morning things.](https://news.puppy-snuggles.com/52403272/typical-morning-things)
+- [Working at a doggy daycare is so fun!! Thought I’d share some pics of the cute babies I see every day ❤️](https://news.puppy-snuggles.com/52543370/working-at-a-doggy-daycare-is-so-fun-thought-id-share-some-pics-of-the-cute-babies-i-see-every-day)
+- [Roxi and her Rabbit](https://news.puppy-snuggles.com/52543376/roxi-and-her-rabbit)
+- [My handsome boy](https://news.puppy-snuggles.com/52543372/my-handsome-boy)
+- [Kovu’s Smile](https://news.puppy-snuggles.com/52543371/kovus-smile)
+- [Love these days with a beautiful lake!](https://news.puppy-snuggles.com/52543369/love-these-days-with-a-beautiful-lake)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
