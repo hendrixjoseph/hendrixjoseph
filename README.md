@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Working at a doggy daycare is so fun!! Thought I’d share some pics of the cute babies I see every day ❤️](https://news.puppy-snuggles.com/52543370/working-at-a-doggy-daycare-is-so-fun-thought-id-share-some-pics-of-the-cute-babies-i-see-every-day)
 - [Roxi and her Rabbit](https://news.puppy-snuggles.com/52543376/roxi-and-her-rabbit)
 - [My handsome boy](https://news.puppy-snuggles.com/52543372/my-handsome-boy)
 - [Kovu’s Smile](https://news.puppy-snuggles.com/52543371/kovus-smile)
 - [Love these days with a beautiful lake!](https://news.puppy-snuggles.com/52543369/love-these-days-with-a-beautiful-lake)
+- [Show Me Your Pack!](https://news.puppy-snuggles.com/51640930/show-me-your-pack)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
