@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is badly named, and what is a better name for it?](https://www.reddit.com/r/AskReddit/comments/1bc9vz8/what_is_badly_named_and_what_is_a_better_name_for/kuf456e/)
 - [/u/joehx on What is something, as of yet, science has no explanation for?](https://www.reddit.com/r/AskReddit/comments/1b9fd0i/what_is_something_as_of_yet_science_has_no/ktxkwce/)
 - [/u/joehx on Uhhh, is this legit?](https://www.reddit.com/r/Webull/comments/1b93zf6/uhhh_is_this_legit/kttfuwp/)
 - [/u/joehx on What well-known company has a really shit logo in your opinion?](https://www.reddit.com/r/AskReddit/comments/1b76na2/what_wellknown_company_has_a_really_shit_logo_in/ktikfd1/)
 - [/u/joehx on Using images for listicles. Is it legal?](https://www.reddit.com/r/Blogging/comments/1aznrj1/using_images_for_listicles_is_it_legal/ks2gb08/)
-- [/u/joehx on What’s the most enraging example of a downgrade sold as an upgrade?](https://www.reddit.com/r/AskReddit/comments/1ayznn0/whats_the_most_enraging_example_of_a_downgrade/krznsgx/)
 <!-- REDDIT:END -->
