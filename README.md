@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Roxi and her Rabbit](https://news.puppy-snuggles.com/52543376/roxi-and-her-rabbit)
-- [My handsome boy](https://news.puppy-snuggles.com/52543372/my-handsome-boy)
-- [Kovu’s Smile](https://news.puppy-snuggles.com/52543371/kovus-smile)
-- [Love these days with a beautiful lake!](https://news.puppy-snuggles.com/52543369/love-these-days-with-a-beautiful-lake)
-- [Show Me Your Pack!](https://news.puppy-snuggles.com/51640930/show-me-your-pack)
+- [Someone had fun at the dog park today! He wouldn’t get out of my car!](https://news.puppy-snuggles.com/46818032/someone-had-fun-at-the-dog-park-today-he-wouldnt-get-out-of-my-car)
+- [My baby boy crossed the rainbow bridge at almost 19](https://news.puppy-snuggles.com/40829152/my-baby-boy-crossed-the-rainbow-bridge-at-almost-19)
+- [I had to say goodbye to my best friend today](https://news.puppy-snuggles.com/37704876/i-had-to-say-goodbye-to-my-best-friend-today)
+- [How do we feel about gappy smiles? Albie had to have 9 teeth out](https://news.puppy-snuggles.com/30520789/how-do-we-feel-about-gappy-smiles-albie-had-to-have-9-teeth-out)
+- [A battle well fought.](https://news.puppy-snuggles.com/30474737/a-battle-well-fought)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
