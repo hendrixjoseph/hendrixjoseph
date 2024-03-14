@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Someone had fun at the dog park today! He wouldn’t get out of my car!](https://news.puppy-snuggles.com/46818032/someone-had-fun-at-the-dog-park-today-he-wouldnt-get-out-of-my-car)
-- [My baby boy crossed the rainbow bridge at almost 19](https://news.puppy-snuggles.com/40829152/my-baby-boy-crossed-the-rainbow-bridge-at-almost-19)
-- [I had to say goodbye to my best friend today](https://news.puppy-snuggles.com/37704876/i-had-to-say-goodbye-to-my-best-friend-today)
-- [How do we feel about gappy smiles? Albie had to have 9 teeth out](https://news.puppy-snuggles.com/30520789/how-do-we-feel-about-gappy-smiles-albie-had-to-have-9-teeth-out)
-- [A battle well fought.](https://news.puppy-snuggles.com/30474737/a-battle-well-fought)
+- [This guy got kicked out because he only has one eye but he was adopted! I think this is his advantage! Not a disadvantage! I drew his portrait exactly as he is! He seems to like it! Are there any doglovers here? I want to see photos of your dogs and draw more portraits!](https://news.puppy-snuggles.com/52729110/this-guy-got-kicked-out-because-he-only-has-one-eye-but-he-was-adopted-i-think-this-is-his-advantage-not-a-disadvantage-i-drew-his-portrait-exactly-as-he-is-he-seems-to-like-it-are-there-any-doglovers-here-i-want-to-see-photos-of-your-dogs-and-draw-more-portraits)
+- [She definitely makes sick days better](https://news.puppy-snuggles.com/52729102/she-definitely-makes-sick-days-better)
+- [Dogfish!](https://news.puppy-snuggles.com/52729101/dogfish)
+- [Both my boys smiling for scritches 🥰](https://news.puppy-snuggles.com/52729104/both-my-boys-smiling-for-scritches)
+- [I made a collage of my boy, Leonard. I’m calling it the ‘Lennyverse’…](https://news.puppy-snuggles.com/52729109/i-made-a-collage-of-my-boy-leonard-im-calling-it-the-lennyverse)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
