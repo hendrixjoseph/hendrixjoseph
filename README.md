@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This guy got kicked out because he only has one eye but he was adopted! I think this is his advantage! Not a disadvantage! I drew his portrait exactly as he is! He seems to like it! Are there any doglovers here? I want to see photos of your dogs and draw more portraits!](https://news.puppy-snuggles.com/52729110/this-guy-got-kicked-out-because-he-only-has-one-eye-but-he-was-adopted-i-think-this-is-his-advantage-not-a-disadvantage-i-drew-his-portrait-exactly-as-he-is-he-seems-to-like-it-are-there-any-doglovers-here-i-want-to-see-photos-of-your-dogs-and-draw-more-portraits)
-- [She definitely makes sick days better](https://news.puppy-snuggles.com/52729102/she-definitely-makes-sick-days-better)
-- [Dogfish!](https://news.puppy-snuggles.com/52729101/dogfish)
-- [Both my boys smiling for scritches 🥰](https://news.puppy-snuggles.com/52729104/both-my-boys-smiling-for-scritches)
-- [I made a collage of my boy, Leonard. I’m calling it the ‘Lennyverse’…](https://news.puppy-snuggles.com/52729109/i-made-a-collage-of-my-boy-leonard-im-calling-it-the-lennyverse)
+- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
+- [My old boy crossed over this morning](https://news.puppy-snuggles.com/52796106/my-old-boy-crossed-over-this-morning)
+- [Today is a good day](https://news.puppy-snuggles.com/52796104/today-is-a-good-day)
+- [Rest in peace my friend](https://news.puppy-snuggles.com/52796105/rest-in-peace-my-friend)
+- [Heartbroken today, We&amp;#039;re posting these everywhere but losing hope we&amp;#039;ll ever see our baby again.](https://news.puppy-snuggles.com/52796103/heartbroken-today-were-posting-these-everywhere-but-losing-hope-well-ever-see-our-baby-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
