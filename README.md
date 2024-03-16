@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
-- [My old boy crossed over this morning](https://news.puppy-snuggles.com/52796106/my-old-boy-crossed-over-this-morning)
-- [Today is a good day](https://news.puppy-snuggles.com/52796104/today-is-a-good-day)
-- [Rest in peace my friend](https://news.puppy-snuggles.com/52796105/rest-in-peace-my-friend)
-- [Heartbroken today, We&amp;#039;re posting these everywhere but losing hope we&amp;#039;ll ever see our baby again.](https://news.puppy-snuggles.com/52796103/heartbroken-today-were-posting-these-everywhere-but-losing-hope-well-ever-see-our-baby-again)
+- [It’s a full house today and I am in HEAVEN](https://news.puppy-snuggles.com/52845607/its-a-full-house-today-and-i-am-in-heaven)
+- [What type of dog is this?](https://news.puppy-snuggles.com/52595018/what-type-of-dog-is-this)
+- [They all made sure to come check up on their friend](https://news.puppy-snuggles.com/52543367/they-all-made-sure-to-come-check-up-on-their-friend)
+- [Said goodbye to my best friend of 16 years last night](https://news.puppy-snuggles.com/52491985/said-goodbye-to-my-best-friend-of-16-years-last-night)
+- [Heroic dog saved his friend with a tree branch](https://news.puppy-snuggles.com/51034753/heroic-dog-saved-his-friend-with-a-tree-branch)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
