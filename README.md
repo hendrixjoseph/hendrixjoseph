@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s a full house today and I am in HEAVEN](https://news.puppy-snuggles.com/52845607/its-a-full-house-today-and-i-am-in-heaven)
-- [What type of dog is this?](https://news.puppy-snuggles.com/52595018/what-type-of-dog-is-this)
-- [They all made sure to come check up on their friend](https://news.puppy-snuggles.com/52543367/they-all-made-sure-to-come-check-up-on-their-friend)
-- [Said goodbye to my best friend of 16 years last night](https://news.puppy-snuggles.com/52491985/said-goodbye-to-my-best-friend-of-16-years-last-night)
-- [Heroic dog saved his friend with a tree branch](https://news.puppy-snuggles.com/51034753/heroic-dog-saved-his-friend-with-a-tree-branch)
+- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
+- [He got my Moms Dentures](https://news.puppy-snuggles.com/52880373/he-got-my-moms-dentures)
+- [Had to say goodbye to my buddy Dennis Hopper yesterday](https://news.puppy-snuggles.com/52845604/had-to-say-goodbye-to-my-buddy-dennis-hopper-yesterday)
+- [Anyone know why my dogs ear went down?](https://news.puppy-snuggles.com/52829516/anyone-know-why-my-dogs-ear-went-down)
+- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
