@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
-- [He got my Moms Dentures](https://news.puppy-snuggles.com/52880373/he-got-my-moms-dentures)
-- [Had to say goodbye to my buddy Dennis Hopper yesterday](https://news.puppy-snuggles.com/52845604/had-to-say-goodbye-to-my-buddy-dennis-hopper-yesterday)
-- [Anyone know why my dogs ear went down?](https://news.puppy-snuggles.com/52829516/anyone-know-why-my-dogs-ear-went-down)
-- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
+- [just an appreciation post for my dog](https://news.puppy-snuggles.com/45669748/just-an-appreciation-post-for-my-dog)
+- [This is Venom. He can balance a wide variety of objects &lpar;He is a Staffy Bull Terrier&rpar;](https://news.puppy-snuggles.com/26074921/this-is-venom-he-can-balance-a-wide-variety-of-objects-he-is-a-staffy-bull-terrier)
+- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
+- [My Misty, the beddy whippet.](https://news.puppy-snuggles.com/23412984/my-misty-the-beddy-whippet)
+- [Aquadog](https://news.puppy-snuggles.com/23097347/aquadog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
