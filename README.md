@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Equifax Settlement. Received another $5.21 check one year later... and the check bounced](https://www.reddit.com/r/personalfinance/comments/1bgw49f/equifax_settlement_received_another_521_check_one/kvcrj9t/)
+- [/u/joehx on Equifax Settlement. Received another $5.21 check one year later... and the check bounced](https://www.reddit.com/r/personalfinance/comments/1bgw49f/equifax_settlement_received_another_521_check_one/kvci7rx/)
 - [/u/joehx on What fact that you found out about woman shocked the balls off of you?](https://www.reddit.com/r/AskMen/comments/1bejazn/what_fact_that_you_found_out_about_woman_shocked/kuwq5l4/)
 - [/u/joehx on What is badly named, and what is a better name for it?](https://www.reddit.com/r/AskReddit/comments/1bc9vz8/what_is_badly_named_and_what_is_a_better_name_for/kuf456e/)
 - [/u/joehx on What is something, as of yet, science has no explanation for?](https://www.reddit.com/r/AskReddit/comments/1b9fd0i/what_is_something_as_of_yet_science_has_no/ktxkwce/)
-- [/u/joehx on Uhhh, is this legit?](https://www.reddit.com/r/Webull/comments/1b93zf6/uhhh_is_this_legit/kttfuwp/)
-- [/u/joehx on What well-known company has a really shit logo in your opinion?](https://www.reddit.com/r/AskReddit/comments/1b76na2/what_wellknown_company_has_a_really_shit_logo_in/ktikfd1/)
 <!-- REDDIT:END -->
