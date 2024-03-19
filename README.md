@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [just an appreciation post for my dog](https://news.puppy-snuggles.com/45669748/just-an-appreciation-post-for-my-dog)
-- [This is Venom. He can balance a wide variety of objects &lpar;He is a Staffy Bull Terrier&rpar;](https://news.puppy-snuggles.com/26074921/this-is-venom-he-can-balance-a-wide-variety-of-objects-he-is-a-staffy-bull-terrier)
-- [The border collie stare](https://news.puppy-snuggles.com/23644211/the-border-collie-stare)
-- [My Misty, the beddy whippet.](https://news.puppy-snuggles.com/23412984/my-misty-the-beddy-whippet)
-- [Aquadog](https://news.puppy-snuggles.com/23097347/aquadog)
+- [Adopted this guy from the highest kill shelter in LA six months ago. He has the sweetest face.](https://news.puppy-snuggles.com/52990155/adopted-this-guy-from-the-highest-kill-shelter-in-la-six-months-ago-he-has-the-sweetest-face)
+- [The Happiest Wedding Guest](https://news.puppy-snuggles.com/45442962/the-happiest-wedding-guest)
+- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
+- [We will get him in 2weeks. Any name ideas?😁](https://news.puppy-snuggles.com/23730057/we-will-get-him-in-2weeks-any-name-ideas)
+- [Selective hearing at its finest!](https://news.puppy-snuggles.com/23581717/selective-hearing-at-its-finest)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
