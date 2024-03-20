@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted this guy from the highest kill shelter in LA six months ago. He has the sweetest face.](https://news.puppy-snuggles.com/52990155/adopted-this-guy-from-the-highest-kill-shelter-in-la-six-months-ago-he-has-the-sweetest-face)
-- [The Happiest Wedding Guest](https://news.puppy-snuggles.com/45442962/the-happiest-wedding-guest)
-- [My dog likes to judge people🤣](https://news.puppy-snuggles.com/24335908/my-dog-likes-to-judge-people)
-- [We will get him in 2weeks. Any name ideas?😁](https://news.puppy-snuggles.com/23730057/we-will-get-him-in-2weeks-any-name-ideas)
-- [Selective hearing at its finest!](https://news.puppy-snuggles.com/23581717/selective-hearing-at-its-finest)
+- [One year ago today we brought Maddie home from the Sacramento county animal shelter](https://news.puppy-snuggles.com/53109247/one-year-ago-today-we-brought-maddie-home-from-the-sacramento-county-animal-shelter)
+- [RIP Killua, a golden retriever from the Philippines murdered by a thug and placed on a rice sack.](https://news.puppy-snuggles.com/53109246/rip-killua-a-golden-retriever-from-the-philippines-murdered-by-a-thug-and-placed-on-a-rice-sack)
+- [My ray of sunshine](https://news.puppy-snuggles.com/52990157/my-ray-of-sunshine)
+- [She&amp;#039;s such a happy girl and I love her face.](https://news.puppy-snuggles.com/51379000/shes-such-a-happy-girl-and-i-love-her-face)
+- [This is definitely my Dog🐾😆](https://news.puppy-snuggles.com/51379006/this-is-definitely-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
