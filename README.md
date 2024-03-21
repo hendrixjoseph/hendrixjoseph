@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvqkkq6/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvqc5zz/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvq5rr2/)
+- [/u/joehx on Senior Engineers of reddit what do you think about Devin?](https://www.reddit.com/r/computerscience/comments/1bj92nj/senior_engineers_of_reddit_what_do_you_think/kvq1od6/)
 - [An Interesting Thing with TypeScript Partial](https://www.reddit.com/r/u_joehx/comments/1bishrh/an_interesting_thing_with_typescript_partial/)
-- [/u/joehx on [OFFICIAL] Salary Sharing thread for EXPERIENCED DEVS :: March, 2024](https://www.reddit.com/r/cscareerquestions/comments/1bhkmvc/official_salary_sharing_thread_for_experienced/kvf8ra4/)
-- [/u/joehx on Equifax Settlement. Received another $5.21 check one year later... and the check bounced](https://www.reddit.com/r/personalfinance/comments/1bgw49f/equifax_settlement_received_another_521_check_one/kvcrj9t/)
-- [/u/joehx on Equifax Settlement. Received another $5.21 check one year later... and the check bounced](https://www.reddit.com/r/personalfinance/comments/1bgw49f/equifax_settlement_received_another_521_check_one/kvci7rx/)
-- [/u/joehx on What fact that you found out about woman shocked the balls off of you?](https://www.reddit.com/r/AskMen/comments/1bejazn/what_fact_that_you_found_out_about_woman_shocked/kuwq5l4/)
 <!-- REDDIT:END -->
