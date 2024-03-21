@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One year ago today we brought Maddie home from the Sacramento county animal shelter](https://news.puppy-snuggles.com/53109247/one-year-ago-today-we-brought-maddie-home-from-the-sacramento-county-animal-shelter)
-- [RIP Killua, a golden retriever from the Philippines murdered by a thug and placed on a rice sack.](https://news.puppy-snuggles.com/53109246/rip-killua-a-golden-retriever-from-the-philippines-murdered-by-a-thug-and-placed-on-a-rice-sack)
-- [My ray of sunshine](https://news.puppy-snuggles.com/52990157/my-ray-of-sunshine)
-- [She&amp;#039;s such a happy girl and I love her face.](https://news.puppy-snuggles.com/51379000/shes-such-a-happy-girl-and-i-love-her-face)
-- [This is definitely my Dog🐾😆](https://news.puppy-snuggles.com/51379006/this-is-definitely-my-dog)
+- [My baby boy](https://news.puppy-snuggles.com/53183822/my-baby-boy)
+- [I was a terrors](https://news.puppy-snuggles.com/53165082/i-was-a-terrors)
+- [Show me your pups when they’re a puppy, pretty please?](https://news.puppy-snuggles.com/53165084/show-me-your-pups-when-theyre-a-puppy-pretty-please)
+- [My GSD wants to play right? He is only 4 months](https://news.puppy-snuggles.com/53129234/my-gsd-wants-to-play-right-he-is-only-4-months)
+- [9 months of Kirby](https://news.puppy-snuggles.com/52344699/9-months-of-kirby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
