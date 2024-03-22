@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on r/RobinhoodUK Referral link thread](https://www.reddit.com/r/RobinhoodUK/comments/1bjqu16/rrobinhooduk_referral_link_thread/kvvs215/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvqkkq6/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvqc5zz/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvq5rr2/)
 - [/u/joehx on Senior Engineers of reddit what do you think about Devin?](https://www.reddit.com/r/computerscience/comments/1bj92nj/senior_engineers_of_reddit_what_do_you_think/kvq1od6/)
-- [An Interesting Thing with TypeScript Partial](https://www.reddit.com/r/u_joehx/comments/1bishrh/an_interesting_thing_with_typescript_partial/)
 <!-- REDDIT:END -->
