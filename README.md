@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [My sweet stinker turned 14 ❤️🎉](https://news.puppy-snuggles.com/53202404/my-sweet-stinker-turned-14)
 - [My baby boy](https://news.puppy-snuggles.com/53183822/my-baby-boy)
 - [I was a terrors](https://news.puppy-snuggles.com/53165082/i-was-a-terrors)
 - [Show me your pups when they’re a puppy, pretty please?](https://news.puppy-snuggles.com/53165084/show-me-your-pups-when-theyre-a-puppy-pretty-please)
 - [My GSD wants to play right? He is only 4 months](https://news.puppy-snuggles.com/53129234/my-gsd-wants-to-play-right-he-is-only-4-months)
-- [9 months of Kirby](https://news.puppy-snuggles.com/52344699/9-months-of-kirby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
