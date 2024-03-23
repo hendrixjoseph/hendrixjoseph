@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet stinker turned 14 ❤️🎉](https://news.puppy-snuggles.com/53202404/my-sweet-stinker-turned-14)
-- [My baby boy](https://news.puppy-snuggles.com/53183822/my-baby-boy)
-- [I was a terrors](https://news.puppy-snuggles.com/53165082/i-was-a-terrors)
-- [Show me your pups when they’re a puppy, pretty please?](https://news.puppy-snuggles.com/53165084/show-me-your-pups-when-theyre-a-puppy-pretty-please)
-- [My GSD wants to play right? He is only 4 months](https://news.puppy-snuggles.com/53129234/my-gsd-wants-to-play-right-he-is-only-4-months)
+- [Very hot weather but still smiley](https://news.puppy-snuggles.com/53298132/very-hot-weather-but-still-smiley)
+- [9 week pup and 3 year old shepherd](https://news.puppy-snuggles.com/53298134/9-week-pup-and-3-year-old-shepherd)
+- [Jedi Woof](https://news.puppy-snuggles.com/53298138/jedi-woof)
+- [Park day😊](https://news.puppy-snuggles.com/52491987/park-day)
+- [I’m going to miss this beautiful girl every day. Thank you for being with me for almost ten years and on this earth for over thirteen. She brightened everyone’s day.](https://news.puppy-snuggles.com/52403275/im-going-to-miss-this-beautiful-girl-every-day-thank-you-for-being-with-me-for-almost-ten-years-and-on-this-earth-for-over-thirteen-she-brightened-everyones-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
