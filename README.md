@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Friends do have your back no matter the species](https://news.puppy-snuggles.com/53358767/friends-do-have-your-back-no-matter-the-species)
-- [Before euthanasia](https://news.puppy-snuggles.com/53358766/before-euthanasia)
-- [he&amp;#039;s smiling like he&amp;#039;s done something wrong!](https://news.puppy-snuggles.com/53298133/hes-smiling-like-hes-done-something-wrong)
-- [I took this old gal to California and she got to see the ocean for the first time.](https://news.puppy-snuggles.com/51546829/i-took-this-old-gal-to-california-and-she-got-to-see-the-ocean-for-the-first-time)
-- [This owner did not give up on their dog after it had stroke. What a champion!](https://news.puppy-snuggles.com/48294548/this-owner-did-not-give-up-on-their-dog-after-it-had-stroke-what-a-champion)
+- [What kind of dog is this?](https://news.puppy-snuggles.com/53377805/what-kind-of-dog-is-this)
+- [RIP, my Duchess, I will always love you ❤️12/12/2012 - 3/21/2024](https://news.puppy-snuggles.com/53377806/rip-my-duchess-i-will-always-love-you-12122012-3212024)
+- [Snake bite to the face today please pray for my baby 🤍](https://news.puppy-snuggles.com/51569914/snake-bite-to-the-face-today-please-pray-for-my-baby)
+- [They play like this every night after dinner](https://news.puppy-snuggles.com/37000273/they-play-like-this-every-night-after-dinner)
+- [Bringing Home a New Puppy](https://news.puppy-snuggles.com/27876654/bringing-home-a-new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
