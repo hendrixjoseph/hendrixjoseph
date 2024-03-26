@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What kind of dog is this?](https://news.puppy-snuggles.com/53377805/what-kind-of-dog-is-this)
+- [My doggo is 10 years old today](https://news.puppy-snuggles.com/53415169/my-doggo-is-10-years-old-today)
+- [This is Drake and he knows he is very handsome.](https://news.puppy-snuggles.com/53415168/this-is-drake-and-he-knows-he-is-very-handsome)
 - [RIP, my Duchess, I will always love you ❤️12/12/2012 - 3/21/2024](https://news.puppy-snuggles.com/53377806/rip-my-duchess-i-will-always-love-you-12122012-3212024)
-- [Snake bite to the face today please pray for my baby 🤍](https://news.puppy-snuggles.com/51569914/snake-bite-to-the-face-today-please-pray-for-my-baby)
-- [They play like this every night after dinner](https://news.puppy-snuggles.com/37000273/they-play-like-this-every-night-after-dinner)
-- [Bringing Home a New Puppy](https://news.puppy-snuggles.com/27876654/bringing-home-a-new-puppy)
+- [Look at her little teeth!](https://news.puppy-snuggles.com/45519770/look-at-her-little-teeth)
+- [“Excuse me, I see you have opened the peanut butter, may I have some?”](https://news.puppy-snuggles.com/40414385/excuse-me-i-see-you-have-opened-the-peanut-butter-may-i-have-some)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
