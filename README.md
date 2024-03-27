@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My doggo is 10 years old today](https://news.puppy-snuggles.com/53415169/my-doggo-is-10-years-old-today)
-- [This is Drake and he knows he is very handsome.](https://news.puppy-snuggles.com/53415168/this-is-drake-and-he-knows-he-is-very-handsome)
-- [RIP, my Duchess, I will always love you ❤️12/12/2012 - 3/21/2024](https://news.puppy-snuggles.com/53377806/rip-my-duchess-i-will-always-love-you-12122012-3212024)
-- [Look at her little teeth!](https://news.puppy-snuggles.com/45519770/look-at-her-little-teeth)
-- [“Excuse me, I see you have opened the peanut butter, may I have some?”](https://news.puppy-snuggles.com/40414385/excuse-me-i-see-you-have-opened-the-peanut-butter-may-i-have-some)
+- [Share the last photo you took of your pet on your phone in the comments! We&amp;#039;ll go first:](https://news.puppy-snuggles.com/53536622/share-the-last-photo-you-took-of-your-pet-on-your-phone-in-the-comments-well-go-first)
+- [High five? 🐶](https://news.puppy-snuggles.com/53536619/high-five)
+- [This is the ideal body language for them playing right? Bigger dog jumped down to initiate play. These 2 love each other!](https://news.puppy-snuggles.com/53536617/this-is-the-ideal-body-language-for-them-playing-right-bigger-dog-jumped-down-to-initiate-play-these-2-love-each-other)
+- [How can I ever leave the couch with this face 🥺](https://news.puppy-snuggles.com/53536620/how-can-i-ever-leave-the-couch-with-this-face)
+- [The day we told Jack he is a dog](https://news.puppy-snuggles.com/53536618/the-day-we-told-jack-he-is-a-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
