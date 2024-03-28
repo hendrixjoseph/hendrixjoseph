@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Share the last photo you took of your pet on your phone in the comments! We&amp;#039;ll go first:](https://news.puppy-snuggles.com/53536622/share-the-last-photo-you-took-of-your-pet-on-your-phone-in-the-comments-well-go-first)
-- [High five? 🐶](https://news.puppy-snuggles.com/53536619/high-five)
-- [This is the ideal body language for them playing right? Bigger dog jumped down to initiate play. These 2 love each other!](https://news.puppy-snuggles.com/53536617/this-is-the-ideal-body-language-for-them-playing-right-bigger-dog-jumped-down-to-initiate-play-these-2-love-each-other)
-- [How can I ever leave the couch with this face 🥺](https://news.puppy-snuggles.com/53536620/how-can-i-ever-leave-the-couch-with-this-face)
-- [The day we told Jack he is a dog](https://news.puppy-snuggles.com/53536618/the-day-we-told-jack-he-is-a-dog)
+- [Our dog got a dog](https://news.puppy-snuggles.com/53603498/our-dog-got-a-dog)
+- [My sweet little Elka smiling at me this morning ♡ I love this little face so much ♡](https://news.puppy-snuggles.com/53603496/my-sweet-little-elka-smiling-at-me-this-morning-i-love-this-little-face-so-much)
+- [I know you are chasing infinte kangaroos in dog heaven right now. Rest in peace Bindy.](https://news.puppy-snuggles.com/53603495/i-know-you-are-chasing-infinte-kangaroos-in-dog-heaven-right-now-rest-in-peace-bindy)
+- [Separation anxiety first day at home.](https://news.puppy-snuggles.com/53603494/separation-anxiety-first-day-at-home)
+- [My doggo passed away this morning, I need help](https://news.puppy-snuggles.com/53603497/my-doggo-passed-away-this-morning-i-need-help)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
