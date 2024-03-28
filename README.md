@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What did you notice in those &quot;top 1 %&quot; developers which made them successful](https://www.reddit.com/r/cscareerquestions/comments/1bp6hbq/what_did_you_notice_in_those_top_1_developers/kwu6ogb/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, March 27, 2024](https://www.reddit.com/r/financialindependence/comments/1boxczm/weekly_selfpromotion_thread_wednesday_march_27/kwt9tzc/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, March 27, 2024](https://www.reddit.com/r/financialindependence/comments/1boxczm/weekly_selfpromotion_thread_wednesday_march_27/kwsm8c3/)
 - [Record Mapping Strategy for OpenCSV](https://www.reddit.com/r/java/comments/1bnduus/record_mapping_strategy_for_opencsv/)
 - [/u/joehx on What’s up with all these dang car washes opening up!](https://www.reddit.com/r/dayton/comments/1bl3ei2/whats_up_with_all_these_dang_car_washes_opening_up/kw3ew54/)
-- [/u/joehx on To those of you in Ohio who keep posting about speeding tickets. SLOW DOWN! and stop riding peoples bumpers before you kill someone](https://www.reddit.com/r/Ohio/comments/1bl181r/to_those_of_you_in_ohio_who_keep_posting_about/kw3eg3e/)
-- [/u/joehx on r/RobinhoodUK Referral link thread](https://www.reddit.com/r/RobinhoodUK/comments/1bjqu16/rrobinhooduk_referral_link_thread/kvvs215/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of March 18, 2024](https://www.reddit.com/r/personalfinance/comments/1bhnynf/weekday_help_and_victory_thread_for_the_week_of/kvqkkq6/)
 <!-- REDDIT:END -->
