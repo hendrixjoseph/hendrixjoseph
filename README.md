@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on What did you notice in those &quot;top 1 %&quot; developers which made them successful](https://www.reddit.com/r/cscareerquestions/comments/1bp6hbq/what_did_you_notice_in_those_top_1_developers/kwu6ogb/)
-- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, March 27, 2024](https://www.reddit.com/r/financialindependence/comments/1boxczm/weekly_selfpromotion_thread_wednesday_march_27/kwt9tzc/)
-- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, March 27, 2024](https://www.reddit.com/r/financialindependence/comments/1boxczm/weekly_selfpromotion_thread_wednesday_march_27/kwsm8c3/)
-- [Record Mapping Strategy for OpenCSV](https://www.reddit.com/r/java/comments/1bnduus/record_mapping_strategy_for_opencsv/)
-- [/u/joehx on What’s up with all these dang car washes opening up!](https://www.reddit.com/r/dayton/comments/1bl3ei2/whats_up_with_all_these_dang_car_washes_opening_up/kw3ew54/)
+- [/u/joehx on Reducing your electricity bill and removing power leeches](https://www.reddit.com/r/Frugal/comments/1bpin1x/reducing_your_electricity_bill_and_removing_power/kx1cw1y/)
+- [/u/joehx on A swap counts as taxable event?](https://www.reddit.com/r/koinly/comments/1bq6ush/a_swap_counts_as_taxable_event/kx1c9km/)
+- [/u/joehx on Whats a spoken phrase or statement that&#39;s meant to sound genuine/serious, but has lost its value nowadays?](https://www.reddit.com/r/AskReddit/comments/1bpvrgb/whats_a_spoken_phrase_or_statement_thats_meant_to/kx0ybpz/)
+- [/u/joehx on What wallet do you ya&#39;ll use?](https://www.reddit.com/r/CreditCards/comments/1bptojb/what_wallet_do_you_yall_use/kx0uxju/)
+- [/u/joehx on A swap counts as taxable event?](https://www.reddit.com/r/koinly/comments/1bq6ush/a_swap_counts_as_taxable_event/kx0u2q5/)
 <!-- REDDIT:END -->
