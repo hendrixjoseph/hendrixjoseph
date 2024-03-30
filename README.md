@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our dog got a dog](https://news.puppy-snuggles.com/53603498/our-dog-got-a-dog)
-- [My sweet little Elka smiling at me this morning ♡ I love this little face so much ♡](https://news.puppy-snuggles.com/53603496/my-sweet-little-elka-smiling-at-me-this-morning-i-love-this-little-face-so-much)
-- [I know you are chasing infinte kangaroos in dog heaven right now. Rest in peace Bindy.](https://news.puppy-snuggles.com/53603495/i-know-you-are-chasing-infinte-kangaroos-in-dog-heaven-right-now-rest-in-peace-bindy)
-- [Separation anxiety first day at home.](https://news.puppy-snuggles.com/53603494/separation-anxiety-first-day-at-home)
-- [My doggo passed away this morning, I need help](https://news.puppy-snuggles.com/53603497/my-doggo-passed-away-this-morning-i-need-help)
+- [Which dog is guilty?](https://news.puppy-snuggles.com/50049352/which-dog-is-guilty)
+- [My foster &lpar;and adopted&rpar; pup being the happiest girl!](https://news.puppy-snuggles.com/50028807/my-foster-and-adopted-pup-being-the-happiest-girl)
+- [Good boy is hungry](https://news.puppy-snuggles.com/49906706/good-boy-is-hungry)
+- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
+- [We might adopt this baby. He&amp;#039;s very shy, 11 lbs possible chi and doxie mix. What would you name him?](https://news.puppy-snuggles.com/48609575/we-might-adopt-this-baby-hes-very-shy-11-lbs-possible-chi-and-doxie-mix-what-would-you-name-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
