@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Which dog is guilty?](https://news.puppy-snuggles.com/50049352/which-dog-is-guilty)
-- [My foster &lpar;and adopted&rpar; pup being the happiest girl!](https://news.puppy-snuggles.com/50028807/my-foster-and-adopted-pup-being-the-happiest-girl)
-- [Good boy is hungry](https://news.puppy-snuggles.com/49906706/good-boy-is-hungry)
-- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
-- [We might adopt this baby. He&amp;#039;s very shy, 11 lbs possible chi and doxie mix. What would you name him?](https://news.puppy-snuggles.com/48609575/we-might-adopt-this-baby-hes-very-shy-11-lbs-possible-chi-and-doxie-mix-what-would-you-name-him)
+- [Why are dogs so cute?!](https://news.puppy-snuggles.com/52058135/why-are-dogs-so-cute)
+- [Help me get over this day with your happy pups.](https://news.puppy-snuggles.com/52038317/help-me-get-over-this-day-with-your-happy-pups)
+- [It&amp;#039;s not easy getting a normal photo of her](https://news.puppy-snuggles.com/51995170/its-not-easy-getting-a-normal-photo-of-her)
+- [Best friends](https://news.puppy-snuggles.com/51995162/best-friends)
+- [A street dog gets adopted by gas station employees and even gets a uniform.](https://news.puppy-snuggles.com/51330955/a-street-dog-gets-adopted-by-gas-station-employees-and-even-gets-a-uniform)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
