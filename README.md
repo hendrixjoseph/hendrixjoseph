@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What are you using as a keyboard and mouse?](https://www.reddit.com/r/ExperiencedDevs/comments/1bsbobp/what_are_you_using_as_a_keyboard_and_mouse/kxej53f/)
 - [/u/joehx on What&#39;s a rlly dumb question that someone actually asked you?](https://www.reddit.com/r/AskReddit/comments/1brpewz/whats_a_rlly_dumb_question_that_someone_actually/kxbg2wn/)
 - [/u/joehx on What&#39;s a completely harmless secret you keep from your wife/gf?](https://www.reddit.com/r/AskMen/comments/1brk9i8/whats_a_completely_harmless_secret_you_keep_from/kxaqd8b/)
 - [/u/joehx on Whats the easiest way to get dilithium?](https://www.reddit.com/r/StarTrekTimelines/comments/1brim6m/whats_the_easiest_way_to_get_dilithium/kxaf0j2/)
 - [/u/joehx on Whats the easiest way to get dilithium?](https://www.reddit.com/r/StarTrekTimelines/comments/1brim6m/whats_the_easiest_way_to_get_dilithium/kx99zg2/)
-- [/u/joehx on Reducing your electricity bill and removing power leeches](https://www.reddit.com/r/Frugal/comments/1bpin1x/reducing_your_electricity_bill_and_removing_power/kx1cw1y/)
 <!-- REDDIT:END -->
