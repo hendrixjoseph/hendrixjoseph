@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Why are dogs so cute?!](https://news.puppy-snuggles.com/52058135/why-are-dogs-so-cute)
-- [Help me get over this day with your happy pups.](https://news.puppy-snuggles.com/52038317/help-me-get-over-this-day-with-your-happy-pups)
-- [It&amp;#039;s not easy getting a normal photo of her](https://news.puppy-snuggles.com/51995170/its-not-easy-getting-a-normal-photo-of-her)
-- [Best friends](https://news.puppy-snuggles.com/51995162/best-friends)
-- [A street dog gets adopted by gas station employees and even gets a uniform.](https://news.puppy-snuggles.com/51330955/a-street-dog-gets-adopted-by-gas-station-employees-and-even-gets-a-uniform)
+- [Live look at my dog on a long road trip](https://news.puppy-snuggles.com/53853426/live-look-at-my-dog-on-a-long-road-trip)
+- [So, I was on the floor packing boxes for storage and my dog thought it was unacceptable that I wasn’t paying attention to him](https://news.puppy-snuggles.com/53853427/so-i-was-on-the-floor-packing-boxes-for-storage-and-my-dog-thought-it-was-unacceptable-that-i-wasnt-paying-attention-to-him)
+- [Who doesn’t love winter?](https://news.puppy-snuggles.com/53853422/who-doesnt-love-winter)
+- [Happy Easter from Doughy](https://news.puppy-snuggles.com/53853423/happy-easter-from-doughy)
+- [foxy smile](https://news.puppy-snuggles.com/53853424/foxy-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
