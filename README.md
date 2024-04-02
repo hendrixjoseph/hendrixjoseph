@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Live look at my dog on a long road trip](https://news.puppy-snuggles.com/53853426/live-look-at-my-dog-on-a-long-road-trip)
-- [So, I was on the floor packing boxes for storage and my dog thought it was unacceptable that I wasn’t paying attention to him](https://news.puppy-snuggles.com/53853427/so-i-was-on-the-floor-packing-boxes-for-storage-and-my-dog-thought-it-was-unacceptable-that-i-wasnt-paying-attention-to-him)
-- [Who doesn’t love winter?](https://news.puppy-snuggles.com/53853422/who-doesnt-love-winter)
-- [Happy Easter from Doughy](https://news.puppy-snuggles.com/53853423/happy-easter-from-doughy)
-- [foxy smile](https://news.puppy-snuggles.com/53853424/foxy-smile)
+- [Smiles!!!](https://news.puppy-snuggles.com/44398910/smiles)
+- [Police search for suspects after dog, 2 puppies found dead in Myrtle Beach dumpster](https://news.puppy-snuggles.com/23123111/police-search-for-suspects-after-dog-2-puppies-found-dead-in-myrtle-beach-dumpster)
+- [I&amp;#039;ve done it again. met this guy at 6am in the streets, brought him home. meet Bowser.](https://news.puppy-snuggles.com/22522774/ive-done-it-again-met-this-guy-at-6am-in-the-streets-brought-him-home-meet-bowser)
+- [The new member 💕](https://news.puppy-snuggles.com/22340086/the-new-member)
+- [We call him Federrer](https://news.puppy-snuggles.com/22227514/we-call-him-federrer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
