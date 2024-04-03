@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Twitter was rebranded X in July. Almost everything I read still states “On X, formerly known as Twitter,. . . “It’s been 8 months. When will it end?](https://www.reddit.com/r/NoStupidQuestions/comments/1bu0itb/twitter_was_rebranded_x_in_july_almost_everything/kxs8rx1/)
+- [/u/joehx on What is something that most people don&#39;t know?](https://www.reddit.com/r/AskReddit/comments/1btpxjf/what_is_something_that_most_people_dont_know/kxs02le/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of April 01, 2024](https://www.reddit.com/r/personalfinance/comments/1bt0plb/weekday_help_and_victory_thread_for_the_week_of/kxr8zr2/)
 - [/u/joehx on What are you using as a keyboard and mouse?](https://www.reddit.com/r/ExperiencedDevs/comments/1bsbobp/what_are_you_using_as_a_keyboard_and_mouse/kxej53f/)
 - [/u/joehx on What&#39;s a rlly dumb question that someone actually asked you?](https://www.reddit.com/r/AskReddit/comments/1brpewz/whats_a_rlly_dumb_question_that_someone_actually/kxbg2wn/)
-- [/u/joehx on What&#39;s a completely harmless secret you keep from your wife/gf?](https://www.reddit.com/r/AskMen/comments/1brk9i8/whats_a_completely_harmless_secret_you_keep_from/kxaqd8b/)
-- [/u/joehx on Whats the easiest way to get dilithium?](https://www.reddit.com/r/StarTrekTimelines/comments/1brim6m/whats_the_easiest_way_to_get_dilithium/kxaf0j2/)
-- [/u/joehx on Whats the easiest way to get dilithium?](https://www.reddit.com/r/StarTrekTimelines/comments/1brim6m/whats_the_easiest_way_to_get_dilithium/kx99zg2/)
 <!-- REDDIT:END -->
