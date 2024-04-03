@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiles!!!](https://news.puppy-snuggles.com/44398910/smiles)
-- [Police search for suspects after dog, 2 puppies found dead in Myrtle Beach dumpster](https://news.puppy-snuggles.com/23123111/police-search-for-suspects-after-dog-2-puppies-found-dead-in-myrtle-beach-dumpster)
-- [I&amp;#039;ve done it again. met this guy at 6am in the streets, brought him home. meet Bowser.](https://news.puppy-snuggles.com/22522774/ive-done-it-again-met-this-guy-at-6am-in-the-streets-brought-him-home-meet-bowser)
-- [The new member 💕](https://news.puppy-snuggles.com/22340086/the-new-member)
-- [We call him Federrer](https://news.puppy-snuggles.com/22227514/we-call-him-federrer)
+- [Decomposing dog found in backyard of man who called 911 to say he was robbed](https://news.puppy-snuggles.com/53978147/decomposing-dog-found-in-backyard-of-man-who-called-911-to-say-he-was-robbed)
+- [She thinks she&amp;#039;s a small dog. 😩🤣](https://news.puppy-snuggles.com/53973572/she-thinks-shes-a-small-dog)
+- [Whatever i do. Where ever i go](https://news.puppy-snuggles.com/53973571/whatever-i-do-where-ever-i-go)
+- [Look, I found a stick!](https://news.puppy-snuggles.com/53973568/look-i-found-a-stick)
+- [What&amp;#039;s this napping position called?](https://news.puppy-snuggles.com/53973569/whats-this-napping-position-called)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
