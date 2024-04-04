@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Decomposing dog found in backyard of man who called 911 to say he was robbed](https://news.puppy-snuggles.com/53978147/decomposing-dog-found-in-backyard-of-man-who-called-911-to-say-he-was-robbed)
-- [She thinks she&amp;#039;s a small dog. 😩🤣](https://news.puppy-snuggles.com/53973572/she-thinks-shes-a-small-dog)
-- [Whatever i do. Where ever i go](https://news.puppy-snuggles.com/53973571/whatever-i-do-where-ever-i-go)
-- [Look, I found a stick!](https://news.puppy-snuggles.com/53973568/look-i-found-a-stick)
-- [What&amp;#039;s this napping position called?](https://news.puppy-snuggles.com/53973569/whats-this-napping-position-called)
+- [Their Eyes Are Watching Ball](https://news.puppy-snuggles.com/54027695/their-eyes-are-watching-ball)
+- [Copper&amp;#039;s the happiest boy.](https://news.puppy-snuggles.com/53973567/coppers-the-happiest-boy)
+- [I would die for her](https://news.puppy-snuggles.com/52215265/i-would-die-for-her)
+- [Just a good boy taking himself for a walk while it&amp;#039;s raining](https://news.puppy-snuggles.com/40123174/just-a-good-boy-taking-himself-for-a-walk-while-its-raining)
+- [Because who can’t resist this cutie?! Pan is only 14 weeks and an Australian cattle dog/Heeler](https://news.puppy-snuggles.com/32375229/because-who-cant-resist-this-cutie-pan-is-only-14-weeks-and-an-australian-cattle-dogheeler)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
