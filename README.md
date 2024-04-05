@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Tax Thursday Thread for the week of April 04, 2024](https://www.reddit.com/r/personalfinance/comments/1bvk9aq/tax_thursday_thread_for_the_week_of_april_04_2024/ky213es/)
+- [/u/joehx on Tax Thursday Thread for the week of April 04, 2024](https://www.reddit.com/r/personalfinance/comments/1bvk9aq/tax_thursday_thread_for_the_week_of_april_04_2024/ky20hk0/)
+- [/u/joehx on Which MS program would be better?](https://www.reddit.com/r/cscareerquestions/comments/1bvuyhb/which_ms_program_would_be_better/ky1yo4p/)
+- [/u/joehx on What is the most basic thing your terrible at?](https://www.reddit.com/r/AskReddit/comments/1bvplqy/what_is_the_most_basic_thing_your_terrible_at/ky1x4s3/)
 - [/u/joehx on Do you buy shoes online?](https://www.reddit.com/r/ask/comments/1buxb0n/do_you_buy_shoes_online/kxwlf1l/)
-- [/u/joehx on TIL that originally celsius degrees were meant to be reversed with water boiling at zero degrees and freezing at 100](https://www.reddit.com/r/todayilearned/comments/1bua09c/til_that_originally_celsius_degrees_were_meant_to/kxst9uz/)
-- [/u/joehx on What&#39;s your secret productivity hack?](https://www.reddit.com/r/ask/comments/1bucwcx/whats_your_secret_productivity_hack/kxspc9s/)
-- [/u/joehx on What are the pros and cons of living in ohio?](https://www.reddit.com/r/financialindependence/comments/1bugbmb/what_are_the_pros_and_cons_of_living_in_ohio/kxsim8y/)
-- [/u/joehx on Twitter was rebranded X in July. Almost everything I read still states “On X, formerly known as Twitter,. . . “It’s been 8 months. When will it end?](https://www.reddit.com/r/NoStupidQuestions/comments/1bu0itb/twitter_was_rebranded_x_in_july_almost_everything/kxs8rx1/)
 <!-- REDDIT:END -->
