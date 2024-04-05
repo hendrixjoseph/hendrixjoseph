@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Their Eyes Are Watching Ball](https://news.puppy-snuggles.com/54027695/their-eyes-are-watching-ball)
-- [Copper&amp;#039;s the happiest boy.](https://news.puppy-snuggles.com/53973567/coppers-the-happiest-boy)
-- [I would die for her](https://news.puppy-snuggles.com/52215265/i-would-die-for-her)
-- [Just a good boy taking himself for a walk while it&amp;#039;s raining](https://news.puppy-snuggles.com/40123174/just-a-good-boy-taking-himself-for-a-walk-while-its-raining)
-- [Because who can’t resist this cutie?! Pan is only 14 weeks and an Australian cattle dog/Heeler](https://news.puppy-snuggles.com/32375229/because-who-cant-resist-this-cutie-pan-is-only-14-weeks-and-an-australian-cattle-dogheeler)
+- [Before and after of our rescue daisy](https://news.puppy-snuggles.com/53973564/before-and-after-of-our-rescue-daisy)
+- [You give me attention](https://news.puppy-snuggles.com/53878169/you-give-me-attention)
+- [**Update** Dog is allowed back on couch](https://news.puppy-snuggles.com/53787205/update-dog-is-allowed-back-on-couch)
+- [Still not allowed to crochet. My project has now been taken over as his personal blanket. He says he deserves it. He lives a hard life.](https://news.puppy-snuggles.com/53673315/still-not-allowed-to-crochet-my-project-has-now-been-taken-over-as-his-personal-blanket-he-says-he-deserves-it-he-lives-a-hard-life)
+- [Today is my cakeday! Show your dogs in the comments and I’ll draw as many of their colourful portraits as I can!](https://news.puppy-snuggles.com/53165080/today-is-my-cakeday-show-your-dogs-in-the-comments-and-ill-draw-as-many-of-their-colourful-portraits-as-i-can)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
