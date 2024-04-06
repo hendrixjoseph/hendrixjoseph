@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Before and after of our rescue daisy](https://news.puppy-snuggles.com/53973564/before-and-after-of-our-rescue-daisy)
-- [You give me attention](https://news.puppy-snuggles.com/53878169/you-give-me-attention)
-- [**Update** Dog is allowed back on couch](https://news.puppy-snuggles.com/53787205/update-dog-is-allowed-back-on-couch)
-- [Still not allowed to crochet. My project has now been taken over as his personal blanket. He says he deserves it. He lives a hard life.](https://news.puppy-snuggles.com/53673315/still-not-allowed-to-crochet-my-project-has-now-been-taken-over-as-his-personal-blanket-he-says-he-deserves-it-he-lives-a-hard-life)
-- [Today is my cakeday! Show your dogs in the comments and I’ll draw as many of their colourful portraits as I can!](https://news.puppy-snuggles.com/53165080/today-is-my-cakeday-show-your-dogs-in-the-comments-and-ill-draw-as-many-of-their-colourful-portraits-as-i-can)
+- [She&amp;#039;s going to be sad when the grounds keepers plant flowers there.](https://news.puppy-snuggles.com/54149139/shes-going-to-be-sad-when-the-grounds-keepers-plant-flowers-there)
+- [Played UNO on our dog, she did not mind](https://news.puppy-snuggles.com/54027689/played-uno-on-our-dog-she-did-not-mind)
+- [This guy enjoys every day 😊](https://news.puppy-snuggles.com/54027691/this-guy-enjoys-every-day)
+- [Today it&amp;#039;s been a year since I adopted my baby girl. I love you Martha.](https://news.puppy-snuggles.com/54027690/today-its-been-a-year-since-i-adopted-my-baby-girl-i-love-you-martha)
+- [Decomposing dog found in backyard of man who called 911 to say he was robbed](https://news.puppy-snuggles.com/53978147/decomposing-dog-found-in-backyard-of-man-who-called-911-to-say-he-was-robbed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
