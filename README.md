@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on How often do you choose not to wear your wedding ring and why?](https://www.reddit.com/r/ask/comments/1bwl0yp/how_often_do_you_choose_not_to_wear_your_wedding/ky7eg91/)
 - [/u/joehx on Tax Thursday Thread for the week of April 04, 2024](https://www.reddit.com/r/personalfinance/comments/1bvk9aq/tax_thursday_thread_for_the_week_of_april_04_2024/ky213es/)
 - [/u/joehx on Tax Thursday Thread for the week of April 04, 2024](https://www.reddit.com/r/personalfinance/comments/1bvk9aq/tax_thursday_thread_for_the_week_of_april_04_2024/ky20hk0/)
 - [/u/joehx on Which MS program would be better?](https://www.reddit.com/r/cscareerquestions/comments/1bvuyhb/which_ms_program_would_be_better/ky1yo4p/)
 - [/u/joehx on What is the most basic thing your terrible at?](https://www.reddit.com/r/AskReddit/comments/1bvplqy/what_is_the_most_basic_thing_your_terrible_at/ky1x4s3/)
-- [/u/joehx on Do you buy shoes online?](https://www.reddit.com/r/ask/comments/1buxb0n/do_you_buy_shoes_online/kxwlf1l/)
 <!-- REDDIT:END -->
