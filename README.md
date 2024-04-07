@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She&amp;#039;s going to be sad when the grounds keepers plant flowers there.](https://news.puppy-snuggles.com/54149139/shes-going-to-be-sad-when-the-grounds-keepers-plant-flowers-there)
-- [Played UNO on our dog, she did not mind](https://news.puppy-snuggles.com/54027689/played-uno-on-our-dog-she-did-not-mind)
-- [This guy enjoys every day 😊](https://news.puppy-snuggles.com/54027691/this-guy-enjoys-every-day)
-- [Today it&amp;#039;s been a year since I adopted my baby girl. I love you Martha.](https://news.puppy-snuggles.com/54027690/today-its-been-a-year-since-i-adopted-my-baby-girl-i-love-you-martha)
-- [Decomposing dog found in backyard of man who called 911 to say he was robbed](https://news.puppy-snuggles.com/53978147/decomposing-dog-found-in-backyard-of-man-who-called-911-to-say-he-was-robbed)
+- [Aspen my heeler 💜](https://news.puppy-snuggles.com/54149145/aspen-my-heeler)
+- [Let me tell you how happy this makes me...](https://news.puppy-snuggles.com/54149138/let-me-tell-you-how-happy-this-makes-me)
+- [My baby deserves all the treats](https://news.puppy-snuggles.com/54149144/my-baby-deserves-all-the-treats)
+- [Pictures of my dog, after her afternoon at the groomer, a week ago. Her name is Evie. She’s a Jack Russell mix, and very rambunctious.](https://news.puppy-snuggles.com/53973570/pictures-of-my-dog-after-her-afternoon-at-the-groomer-a-week-ago-her-name-is-evie-shes-a-jack-russell-mix-and-very-rambunctious)
+- [Which dogger is cuter](https://news.puppy-snuggles.com/50117385/which-dogger-is-cuter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
