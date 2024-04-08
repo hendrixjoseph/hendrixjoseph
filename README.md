@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Anyone use the same title and brand name for multiple variations of a design?](https://www.reddit.com/r/AmazonMerch/comments/1bxowxn/anyone_use_the_same_title_and_brand_name_for/kyeut1g/)
 - [/u/joehx on Anyone use the same title and brand name for multiple variations of a design?](https://www.reddit.com/r/AmazonMerch/comments/1bxowxn/anyone_use_the_same_title_and_brand_name_for/kye5wx4/)
 - [/u/joehx on Disclosing security issues responsibility and with credit](https://www.reddit.com/r/ExperiencedDevs/comments/1bxc801/disclosing_security_issues_responsibility_and/kydiwj5/)
 - [/u/joehx on Those who work out regularly, what motivates you?](https://www.reddit.com/r/ask/comments/1bxfdx8/those_who_work_out_regularly_what_motivates_you/kydi8yu/)
 - [/u/joehx on Is Inkscape really enough?](https://www.reddit.com/r/Inkscape/comments/1bwz01h/is_inkscape_really_enough/ky9gxex/)
-- [/u/joehx on How often do you choose not to wear your wedding ring and why?](https://www.reddit.com/r/ask/comments/1bwl0yp/how_often_do_you_choose_not_to_wear_your_wedding/ky7eg91/)
 <!-- REDDIT:END -->
