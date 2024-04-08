@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Aspen my heeler 💜](https://news.puppy-snuggles.com/54149145/aspen-my-heeler)
-- [Let me tell you how happy this makes me...](https://news.puppy-snuggles.com/54149138/let-me-tell-you-how-happy-this-makes-me)
-- [My baby deserves all the treats](https://news.puppy-snuggles.com/54149144/my-baby-deserves-all-the-treats)
-- [Pictures of my dog, after her afternoon at the groomer, a week ago. Her name is Evie. She’s a Jack Russell mix, and very rambunctious.](https://news.puppy-snuggles.com/53973570/pictures-of-my-dog-after-her-afternoon-at-the-groomer-a-week-ago-her-name-is-evie-shes-a-jack-russell-mix-and-very-rambunctious)
-- [Which dogger is cuter](https://news.puppy-snuggles.com/50117385/which-dogger-is-cuter)
+- [:&rpar;](https://news.puppy-snuggles.com/54270795/)
+- [Charlie grew up](https://news.puppy-snuggles.com/54270791/charlie-grew-up)
+- [Lets start a thread for all our doggos who passed into God’s eternal pastures. Loved and never forgotten🫶](https://news.puppy-snuggles.com/54270789/lets-start-a-thread-for-all-our-doggos-who-passed-into-gods-eternal-pastures-loved-and-never-forgotten)
+- [Some pet owners are advocating against rabies vaccines. Here&amp;#039;s why rabies is dangerous.](https://news.puppy-snuggles.com/54270790/some-pet-owners-are-advocating-against-rabies-vaccines-heres-why-rabies-is-dangerous)
+- [Happily Ever After Rescue Dogs! Show me yours! I’ll start!](https://news.puppy-snuggles.com/54270796/happily-ever-after-rescue-dogs-show-me-yours-ill-start)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
