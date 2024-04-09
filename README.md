@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [:&rpar;](https://news.puppy-snuggles.com/54270795/)
-- [Charlie grew up](https://news.puppy-snuggles.com/54270791/charlie-grew-up)
+- [These types of photos are the best](https://news.puppy-snuggles.com/54313971/these-types-of-photos-are-the-best)
 - [Lets start a thread for all our doggos who passed into God’s eternal pastures. Loved and never forgotten🫶](https://news.puppy-snuggles.com/54270789/lets-start-a-thread-for-all-our-doggos-who-passed-into-gods-eternal-pastures-loved-and-never-forgotten)
 - [Some pet owners are advocating against rabies vaccines. Here&amp;#039;s why rabies is dangerous.](https://news.puppy-snuggles.com/54270790/some-pet-owners-are-advocating-against-rabies-vaccines-heres-why-rabies-is-dangerous)
-- [Happily Ever After Rescue Dogs! Show me yours! I’ll start!](https://news.puppy-snuggles.com/54270796/happily-ever-after-rescue-dogs-show-me-yours-ill-start)
+- [Phoebe](https://news.puppy-snuggles.com/54270794/phoebe)
+- [My boy that I just adopted!](https://news.puppy-snuggles.com/52543374/my-boy-that-i-just-adopted)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
