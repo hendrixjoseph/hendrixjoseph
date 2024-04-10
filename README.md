@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [These types of photos are the best](https://news.puppy-snuggles.com/54313971/these-types-of-photos-are-the-best)
-- [Lets start a thread for all our doggos who passed into God’s eternal pastures. Loved and never forgotten🫶](https://news.puppy-snuggles.com/54270789/lets-start-a-thread-for-all-our-doggos-who-passed-into-gods-eternal-pastures-loved-and-never-forgotten)
-- [Some pet owners are advocating against rabies vaccines. Here&amp;#039;s why rabies is dangerous.](https://news.puppy-snuggles.com/54270790/some-pet-owners-are-advocating-against-rabies-vaccines-heres-why-rabies-is-dangerous)
-- [Phoebe](https://news.puppy-snuggles.com/54270794/phoebe)
-- [My boy that I just adopted!](https://news.puppy-snuggles.com/52543374/my-boy-that-i-just-adopted)
+- [My dog Isys of 11 years passed suddenly](https://news.puppy-snuggles.com/54358750/my-dog-isys-of-11-years-passed-suddenly)
+- [Sequoia smiles 🙂](https://news.puppy-snuggles.com/54313970/sequoia-smiles)
+- [Happily Ever After Rescue Dogs! Show me yours! I’ll start!](https://news.puppy-snuggles.com/54270796/happily-ever-after-rescue-dogs-show-me-yours-ill-start)
+- [The eyes chico, they never lie](https://news.puppy-snuggles.com/52663220/the-eyes-chico-they-never-lie)
+- [Please help what’s my dog breed. They claim Maltese chihuahua](https://news.puppy-snuggles.com/51263822/please-help-whats-my-dog-breed-they-claim-maltese-chihuahua)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
