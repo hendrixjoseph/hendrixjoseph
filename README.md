@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on How do ya’ll make money in the side ?](https://www.reddit.com/r/AskReddit/comments/1c01yol/how_do_yall_make_money_in_the_side/kytmu5i/)
+- [/u/joehx on Do you think Sheetz is the future of gas stations? If not, why not?](https://www.reddit.com/r/AskReddit/comments/1c01rop/do_you_think_sheetz_is_the_future_of_gas_stations/kytm9ls/)
+- [/u/joehx on How do ya’ll make money in the side ?](https://www.reddit.com/r/AskReddit/comments/1c01yol/how_do_yall_make_money_in_the_side/kytk45w/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of April 08, 2024](https://www.reddit.com/r/personalfinance/comments/1byuzt4/weekday_help_and_victory_thread_for_the_week_of/kynyx5g/)
 - [/u/joehx on Has anyone found a fix for font styles not showing? Whichever one I installed last is what it renders with no style options. It&#39;s the same for several free fonts, but not all. [help]](https://www.reddit.com/r/Inkscape/comments/1bz240g/has_anyone_found_a_fix_for_font_styles_not/kynmnow/)
-- [/u/joehx on Has anyone found a fix for font styles not showing? Whichever one I installed last is what it renders with no style options. It&#39;s the same for several free fonts, but not all. [help]](https://www.reddit.com/r/Inkscape/comments/1bz240g/has_anyone_found_a_fix_for_font_styles_not/kynmhkc/)
-- [/u/joehx on Anyone use the same title and brand name for multiple variations of a design?](https://www.reddit.com/r/AmazonMerch/comments/1bxowxn/anyone_use_the_same_title_and_brand_name_for/kyeut1g/)
-- [/u/joehx on Anyone use the same title and brand name for multiple variations of a design?](https://www.reddit.com/r/AmazonMerch/comments/1bxowxn/anyone_use_the_same_title_and_brand_name_for/kye5wx4/)
 <!-- REDDIT:END -->
