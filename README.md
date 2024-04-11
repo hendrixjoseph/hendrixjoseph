@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog Isys of 11 years passed suddenly](https://news.puppy-snuggles.com/54358750/my-dog-isys-of-11-years-passed-suddenly)
-- [Sequoia smiles 🙂](https://news.puppy-snuggles.com/54313970/sequoia-smiles)
-- [Happily Ever After Rescue Dogs! Show me yours! I’ll start!](https://news.puppy-snuggles.com/54270796/happily-ever-after-rescue-dogs-show-me-yours-ill-start)
-- [The eyes chico, they never lie](https://news.puppy-snuggles.com/52663220/the-eyes-chico-they-never-lie)
-- [Please help what’s my dog breed. They claim Maltese chihuahua](https://news.puppy-snuggles.com/51263822/please-help-whats-my-dog-breed-they-claim-maltese-chihuahua)
+- [Everyone meet Archie ^^](https://news.puppy-snuggles.com/52139610/everyone-meet-archie)
+- [🌈✨ sweet luna](https://news.puppy-snuggles.com/51862028/sweet-luna)
+- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
+- [Parkour](https://news.puppy-snuggles.com/39419567/parkour)
+- [well learned lol](https://news.puppy-snuggles.com/38432197/well-learned-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
