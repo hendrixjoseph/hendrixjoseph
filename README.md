@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s a movie cliché that you actually like ?](https://www.reddit.com/r/AskReddit/comments/1c1ows2/whats_a_movie_cliché_that_you_actually_like/kz4qj21/)
+- [/u/joehx on Can I combine Stoicism with different philosophies?](https://www.reddit.com/r/Stoicism/comments/1c1p0st/can_i_combine_stoicism_with_different_philosophies/kz4qc17/)
+- [/u/joehx on Dealing with bad Catholic theology in grad school?](https://www.reddit.com/r/Catholicism/comments/1c1p3td/dealing_with_bad_catholic_theology_in_grad_school/kz4pt8b/)
+- [/u/joehx on What ordinary task do you struggle with &lpar;not due to a disability&rpar;?](https://www.reddit.com/r/AskReddit/comments/1c1fx9t/what_ordinary_task_do_you_struggle_with_not_due/kz2w2b0/)
 - [/u/joehx on What would you find in Joe Biden’s Google Search history?](https://www.reddit.com/r/AskReddit/comments/1c0kjs4/what_would_you_find_in_joe_bidens_google_search/kywvygd/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 08, 2024](https://www.reddit.com/r/personalfinance/comments/1byuzt4/weekday_help_and_victory_thread_for_the_week_of/kywt9xn/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 08, 2024](https://www.reddit.com/r/personalfinance/comments/1byuzt4/weekday_help_and_victory_thread_for_the_week_of/kywt24m/)
-- [/u/joehx on How do ya’ll make money in the side ?](https://www.reddit.com/r/AskReddit/comments/1c01yol/how_do_yall_make_money_in_the_side/kytmu5i/)
-- [/u/joehx on Do you think Sheetz is the future of gas stations? If not, why not?](https://www.reddit.com/r/AskReddit/comments/1c01rop/do_you_think_sheetz_is_the_future_of_gas_stations/kytm9ls/)
 <!-- REDDIT:END -->
