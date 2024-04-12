@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Everyone meet Archie ^^](https://news.puppy-snuggles.com/52139610/everyone-meet-archie)
-- [🌈✨ sweet luna](https://news.puppy-snuggles.com/51862028/sweet-luna)
-- [Dog&amp;#039;s adorable reaction on owner laying on her bed](https://news.puppy-snuggles.com/45365125/dogs-adorable-reaction-on-owner-laying-on-her-bed)
-- [Parkour](https://news.puppy-snuggles.com/39419567/parkour)
-- [well learned lol](https://news.puppy-snuggles.com/38432197/well-learned-lol)
+- [Boop the snoot](https://news.puppy-snuggles.com/47682308/boop-the-snoot)
+- [Accidently used a filter on doggo and she got a very long snout](https://news.puppy-snuggles.com/46818030/accidently-used-a-filter-on-doggo-and-she-got-a-very-long-snout)
+- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
+- [I just need to accept this is as good a picture as I’m going to get with them. &lpar;Their collars are not for shocking.&rpar;](https://news.puppy-snuggles.com/23048826/i-just-need-to-accept-this-is-as-good-a-picture-as-im-going-to-get-with-them-their-collars-are-not-for-shocking)
+- [Rocco as Chewbacca](https://news.puppy-snuggles.com/22002407/rocco-as-chewbacca)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
