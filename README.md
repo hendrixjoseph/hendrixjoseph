@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on What&#39;s a movie cliché that you actually like ?](https://www.reddit.com/r/AskReddit/comments/1c1ows2/whats_a_movie_cliché_that_you_actually_like/kz4qj21/)
-- [/u/joehx on Can I combine Stoicism with different philosophies?](https://www.reddit.com/r/Stoicism/comments/1c1p0st/can_i_combine_stoicism_with_different_philosophies/kz4qc17/)
-- [/u/joehx on Dealing with bad Catholic theology in grad school?](https://www.reddit.com/r/Catholicism/comments/1c1p3td/dealing_with_bad_catholic_theology_in_grad_school/kz4pt8b/)
-- [/u/joehx on What ordinary task do you struggle with &lpar;not due to a disability&rpar;?](https://www.reddit.com/r/AskReddit/comments/1c1fx9t/what_ordinary_task_do_you_struggle_with_not_due/kz2w2b0/)
-- [/u/joehx on What would you find in Joe Biden’s Google Search history?](https://www.reddit.com/r/AskReddit/comments/1c0kjs4/what_would_you_find_in_joe_bidens_google_search/kywvygd/)
+- [/u/joehx on Robert Half is trash.](https://www.reddit.com/r/recruitinghell/comments/1c2gwx2/robert_half_is_trash/kzazsjx/)
+- [/u/joehx on This was inside the box of a smart NFC ring I bought. Wife says no :&lpar;](https://www.reddit.com/r/homeassistant/comments/1c2d7tg/this_was_inside_the_box_of_a_smart_nfc_ring_i/kzarev3/)
+- [/u/joehx on Latest Pew Poll: 60% of American Catholics Support Abortion](https://www.reddit.com/r/Catholicism/comments/1c2jdbc/latest_pew_poll_60_of_american_catholics_support/kzaqk32/)
+- [/u/joehx on eli5: Why do your thoughts feel in your head? Instead of originating from your left arm, or your chest, or some random part of the body? Why do thoughts specifically come from behind your forehead?](https://www.reddit.com/r/explainlikeimfive/comments/1c29md6/eli5_why_do_your_thoughts_feel_in_your_head/kza25sl/)
+- [/u/joehx on Leaking garbage disposal](https://www.reddit.com/r/HomeImprovement/comments/1c29i2f/leaking_garbage_disposal/kz8h8vj/)
 <!-- REDDIT:END -->
