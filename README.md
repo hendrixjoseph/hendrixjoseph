@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Boop the snoot](https://news.puppy-snuggles.com/47682308/boop-the-snoot)
-- [Accidently used a filter on doggo and she got a very long snout](https://news.puppy-snuggles.com/46818030/accidently-used-a-filter-on-doggo-and-she-got-a-very-long-snout)
-- [we just rescued this corgi mix. any ideas of what he may be mixed with?](https://news.puppy-snuggles.com/24335907/we-just-rescued-this-corgi-mix-any-ideas-of-what-he-may-be-mixed-with)
-- [I just need to accept this is as good a picture as I’m going to get with them. &lpar;Their collars are not for shocking.&rpar;](https://news.puppy-snuggles.com/23048826/i-just-need-to-accept-this-is-as-good-a-picture-as-im-going-to-get-with-them-their-collars-are-not-for-shocking)
-- [Rocco as Chewbacca](https://news.puppy-snuggles.com/22002407/rocco-as-chewbacca)
+- [This good boy saved my life and my children’s lives when my house caught fire in the middle of the night a year ago. He’s definitely allowed on the couch.](https://news.puppy-snuggles.com/34047859/this-good-boy-saved-my-life-and-my-childrens-lives-when-my-house-caught-fire-in-the-middle-of-the-night-a-year-ago-hes-definitely-allowed-on-the-couch)
+- [Whats up with Billy&amp;#039;s ears?](https://news.puppy-snuggles.com/24357837/whats-up-with-billys-ears)
+- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
+- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
+- [Spot the dog](https://news.puppy-snuggles.com/21954429/spot-the-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
