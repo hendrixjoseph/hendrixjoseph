@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This good boy saved my life and my children’s lives when my house caught fire in the middle of the night a year ago. He’s definitely allowed on the couch.](https://news.puppy-snuggles.com/34047859/this-good-boy-saved-my-life-and-my-childrens-lives-when-my-house-caught-fire-in-the-middle-of-the-night-a-year-ago-hes-definitely-allowed-on-the-couch)
-- [Whats up with Billy&amp;#039;s ears?](https://news.puppy-snuggles.com/24357837/whats-up-with-billys-ears)
-- [Dog mauled to death at Buddy’s Dog Den in NYC, lawsuit says](https://news.puppy-snuggles.com/24202112/dog-mauled-to-death-at-buddys-dog-den-in-nyc-lawsuit-says)
-- [Lost my bestest buddy over the weekend. R.I.P. Mr. Poops.](https://news.puppy-snuggles.com/23037449/lost-my-bestest-buddy-over-the-weekend-rip-mr-poops)
-- [Spot the dog](https://news.puppy-snuggles.com/21954429/spot-the-dog)
+- [She is so happy](https://news.puppy-snuggles.com/54535047/she-is-so-happy)
+- [Live look at my dog on a long road trip](https://news.puppy-snuggles.com/53853426/live-look-at-my-dog-on-a-long-road-trip)
+- [This DOG!!!](https://news.puppy-snuggles.com/53673318/this-dog)
+- [Dogs are the best](https://news.puppy-snuggles.com/41506632/dogs-are-the-best)
+- [Which is better: with or without the name?](https://news.puppy-snuggles.com/37812736/which-is-better-with-or-without-the-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
