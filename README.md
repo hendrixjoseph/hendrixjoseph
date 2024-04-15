@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlgzd5/)
+- [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlf8n2/)
+- [/u/joehx on Is there any field in computer science that changed the way you think and enhanced your understanding of how the universe works?](https://www.reddit.com/r/computerscience/comments/1c3wg5u/is_there_any_field_in_computer_science_that/kzjrhgn/)
 - [/u/joehx on State tax refund offset?](https://www.reddit.com/r/dayton/comments/1c3ey1b/state_tax_refund_offset/kzgmhp6/)
 - [/u/joehx on Work 401&lpar;k&rpar; with solo 401&lpar;k&rpar; for side gig limits](https://www.reddit.com/r/personalfinance/comments/1c3d6io/work_401k_with_solo_401k_for_side_gig_limits/kzgeaph/)
-- [/u/joehx on Weekend Help and Victory Thread for the week of April 12, 2024](https://www.reddit.com/r/personalfinance/comments/1c2eauo/weekend_help_and_victory_thread_for_the_week_of/kze06gi/)
-- [/u/joehx on Which grocery store do you usually shop at?](https://www.reddit.com/r/AskReddit/comments/1c32g70/which_grocery_store_do_you_usually_shop_at/kzdxz5o/)
-- [/u/joehx on Robert Half is trash.](https://www.reddit.com/r/recruitinghell/comments/1c2gwx2/robert_half_is_trash/kzazsjx/)
 <!-- REDDIT:END -->
