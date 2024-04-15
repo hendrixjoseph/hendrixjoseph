@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She is so happy](https://news.puppy-snuggles.com/54535047/she-is-so-happy)
-- [Live look at my dog on a long road trip](https://news.puppy-snuggles.com/53853426/live-look-at-my-dog-on-a-long-road-trip)
-- [This DOG!!!](https://news.puppy-snuggles.com/53673318/this-dog)
-- [Dogs are the best](https://news.puppy-snuggles.com/41506632/dogs-are-the-best)
-- [Which is better: with or without the name?](https://news.puppy-snuggles.com/37812736/which-is-better-with-or-without-the-name)
+- [Could you help me identify the breed of my puppy please ? 🐶](https://news.puppy-snuggles.com/54656587/could-you-help-me-identify-the-breed-of-my-puppy-please)
+- [Does anyone else’s dog absolutely hate taking pictures? I took him to a park and tried to take cute pics of him but he was not having it 😂](https://news.puppy-snuggles.com/54656582/does-anyone-elses-dog-absolutely-hate-taking-pictures-i-took-him-to-a-park-and-tried-to-take-cute-pics-of-him-but-he-was-not-having-it)
+- [She’s really trying to steal my man…](https://news.puppy-snuggles.com/54576376/shes-really-trying-to-steal-my-man)
+- [Everyone thinks their dog is the most beautiful](https://news.puppy-snuggles.com/54491436/everyone-thinks-their-dog-is-the-most-beautiful)
+- [In cahoots since the diaper days](https://news.puppy-snuggles.com/53787206/in-cahoots-since-the-diaper-days)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
