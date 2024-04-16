@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What are some potentially life saving tips?](https://www.reddit.com/r/ask/comments/1c4vqio/what_are_some_potentially_life_saving_tips/kzrhii0/)
+- [/u/joehx on What do you believe is unacceptable in a relationship and why?](https://www.reddit.com/r/AskReddit/comments/1c4w4rg/what_do_you_believe_is_unacceptable_in_a/kzqavws/)
+- [/u/joehx on how do you feel receiving birthday wishes copied from the internet?](https://www.reddit.com/r/AskReddit/comments/1c4mct0/how_do_you_feel_receiving_birthday_wishes_copied/kzodbip/)
 - [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlgzd5/)
 - [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlf8n2/)
-- [/u/joehx on Is there any field in computer science that changed the way you think and enhanced your understanding of how the universe works?](https://www.reddit.com/r/computerscience/comments/1c3wg5u/is_there_any_field_in_computer_science_that/kzjrhgn/)
-- [/u/joehx on State tax refund offset?](https://www.reddit.com/r/dayton/comments/1c3ey1b/state_tax_refund_offset/kzgmhp6/)
-- [/u/joehx on Work 401&lpar;k&rpar; with solo 401&lpar;k&rpar; for side gig limits](https://www.reddit.com/r/personalfinance/comments/1c3d6io/work_401k_with_solo_401k_for_side_gig_limits/kzgeaph/)
 <!-- REDDIT:END -->
