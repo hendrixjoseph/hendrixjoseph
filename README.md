@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Could you help me identify the breed of my puppy please ? 🐶](https://news.puppy-snuggles.com/54656587/could-you-help-me-identify-the-breed-of-my-puppy-please)
-- [Does anyone else’s dog absolutely hate taking pictures? I took him to a park and tried to take cute pics of him but he was not having it 😂](https://news.puppy-snuggles.com/54656582/does-anyone-elses-dog-absolutely-hate-taking-pictures-i-took-him-to-a-park-and-tried-to-take-cute-pics-of-him-but-he-was-not-having-it)
-- [She’s really trying to steal my man…](https://news.puppy-snuggles.com/54576376/shes-really-trying-to-steal-my-man)
-- [Everyone thinks their dog is the most beautiful](https://news.puppy-snuggles.com/54491436/everyone-thinks-their-dog-is-the-most-beautiful)
-- [In cahoots since the diaper days](https://news.puppy-snuggles.com/53787206/in-cahoots-since-the-diaper-days)
+- [Goodbye](https://news.puppy-snuggles.com/54698504/goodbye)
+- [Let’s see your favorite picture &lpar;or 2🙄&rpar; of your pup! I’ll start](https://news.puppy-snuggles.com/54656585/lets-see-your-favorite-picture-or-2-of-your-pup-ill-start)
+- [This is Scrappy.](https://news.puppy-snuggles.com/54656584/this-is-scrappy)
+- [Luna loving life](https://news.puppy-snuggles.com/54403811/luna-loving-life)
+- [It&amp;#039;s not working. He still understands even less than I do.](https://news.puppy-snuggles.com/54186486/its-not-working-he-still-understands-even-less-than-i-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
