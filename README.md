@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on What are some potentially life saving tips?](https://www.reddit.com/r/ask/comments/1c4vqio/what_are_some_potentially_life_saving_tips/kzrhii0/)
-- [/u/joehx on What do you believe is unacceptable in a relationship and why?](https://www.reddit.com/r/AskReddit/comments/1c4w4rg/what_do_you_believe_is_unacceptable_in_a/kzqavws/)
-- [/u/joehx on how do you feel receiving birthday wishes copied from the internet?](https://www.reddit.com/r/AskReddit/comments/1c4mct0/how_do_you_feel_receiving_birthday_wishes_copied/kzodbip/)
-- [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlgzd5/)
-- [/u/joehx on Whats a law in Ohio that most people dont know about?](https://www.reddit.com/r/Ohio/comments/1c44puz/whats_a_law_in_ohio_that_most_people_dont_know/kzlf8n2/)
+- [/u/joehx on What LinkedIn learning courses have you really enjoyed?](https://www.reddit.com/r/AskReddit/comments/1c5puqx/what_linkedin_learning_courses_have_you_really/kzvurvi/)
+- [/u/joehx on New to credit card Need help](https://www.reddit.com/r/CreditCards/comments/1c5q92e/new_to_credit_card_need_help/kzvukgl/)
+- [/u/joehx on What causes the controversy surrounding gender-neutral bathrooms, especially considering that single toilets on airplanes or other public transportation are already gender-neutral?](https://www.reddit.com/r/AskReddit/comments/1c5q9qs/what_causes_the_controversy_surrounding/kzvtx54/)
+- [What LinkedIn learning courses have you really enjoyed?](https://www.reddit.com/r/AskReddit/comments/1c5puqx/what_linkedin_learning_courses_have_you_really/)
+- [/u/joehx on Authorized User Question](https://www.reddit.com/r/personalfinance/comments/1c5he0j/authorized_user_question/kzu2d4f/)
 <!-- REDDIT:END -->
