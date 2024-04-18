@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye](https://news.puppy-snuggles.com/54698504/goodbye)
-- [Let’s see your favorite picture &lpar;or 2🙄&rpar; of your pup! I’ll start](https://news.puppy-snuggles.com/54656585/lets-see-your-favorite-picture-or-2-of-your-pup-ill-start)
-- [This is Scrappy.](https://news.puppy-snuggles.com/54656584/this-is-scrappy)
-- [Luna loving life](https://news.puppy-snuggles.com/54403811/luna-loving-life)
-- [It&amp;#039;s not working. He still understands even less than I do.](https://news.puppy-snuggles.com/54186486/its-not-working-he-still-understands-even-less-than-i-do)
+- [I know you are chasing infinte kangaroos in dog heaven right now. Rest in peace Bindy.](https://news.puppy-snuggles.com/53603495/i-know-you-are-chasing-infinte-kangaroos-in-dog-heaven-right-now-rest-in-peace-bindy)
+- [Lost my best friend Moses on Monday 💔 would’ve been 14 this May 🫶🏾](https://news.puppy-snuggles.com/52269487/lost-my-best-friend-moses-on-monday-wouldve-been-14-this-may)
+- [Her face is an art](https://news.puppy-snuggles.com/50577384/her-face-is-an-art)
+- [Lilo Ohana little girl big attitude &amp;amp;amp; TONS of love](https://news.puppy-snuggles.com/22533849/lilo-ohana-little-girl-big-attitude-amp-tons-of-love)
+- [An older lady took this beautiful picture of my dog this morning and was so nice to send it to me &amp;amp;lt;3](https://news.puppy-snuggles.com/21804059/an-older-lady-took-this-beautiful-picture-of-my-dog-this-morning-and-was-so-nice-to-send-it-to-me-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
