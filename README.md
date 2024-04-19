@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is the dumbest thing you&#39;ve ever heard?](https://www.reddit.com/r/AskReddit/comments/1c6yr4n/what_is_the_dumbest_thing_youve_ever_heard/l04vrou/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of April 15, 2024](https://www.reddit.com/r/personalfinance/comments/1c4jc37/weekday_help_and_victory_thread_for_the_week_of/l04tywh/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of April 15, 2024](https://www.reddit.com/r/personalfinance/comments/1c4jc37/weekday_help_and_victory_thread_for_the_week_of/l04tnm1/)
 - [/u/joehx on What LinkedIn learning courses have you really enjoyed?](https://www.reddit.com/r/AskReddit/comments/1c5puqx/what_linkedin_learning_courses_have_you_really/kzvurvi/)
 - [/u/joehx on New to credit card Need help](https://www.reddit.com/r/CreditCards/comments/1c5q92e/new_to_credit_card_need_help/kzvukgl/)
-- [/u/joehx on What causes the controversy surrounding gender-neutral bathrooms, especially considering that single toilets on airplanes or other public transportation are already gender-neutral?](https://www.reddit.com/r/AskReddit/comments/1c5q9qs/what_causes_the_controversy_surrounding/kzvtx54/)
-- [What LinkedIn learning courses have you really enjoyed?](https://www.reddit.com/r/AskReddit/comments/1c5puqx/what_linkedin_learning_courses_have_you_really/)
-- [/u/joehx on Authorized User Question](https://www.reddit.com/r/personalfinance/comments/1c5he0j/authorized_user_question/kzu2d4f/)
 <!-- REDDIT:END -->
