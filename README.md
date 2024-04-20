@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [15 years .. goodbye to my best friend](https://news.puppy-snuggles.com/54869202/15-years-goodbye-to-my-best-friend)
-- [What are these on dogs?? What are they for?](https://news.puppy-snuggles.com/54869205/what-are-these-on-dogs-what-are-they-for)
-- [Wrinkly girl sitting so cute](https://news.puppy-snuggles.com/54118614/wrinkly-girl-sitting-so-cute)
-- [He was always the best boy. Enjoy the long walk mate.](https://news.puppy-snuggles.com/54058662/he-was-always-the-best-boy-enjoy-the-long-walk-mate)
-- [How should I name this good boy?](https://news.puppy-snuggles.com/54027696/how-should-i-name-this-good-boy)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [Why are dogs so cute?!](https://news.puppy-snuggles.com/52058135/why-are-dogs-so-cute)
+- [Self rinsing dog?](https://news.puppy-snuggles.com/46461964/self-rinsing-dog)
+- [What do we call this dog?](https://news.puppy-snuggles.com/43129781/what-do-we-call-this-dog)
+- [What do you think his name is?](https://news.puppy-snuggles.com/42346336/what-do-you-think-his-name-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
