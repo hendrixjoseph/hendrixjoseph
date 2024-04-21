@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
-- [Why are dogs so cute?!](https://news.puppy-snuggles.com/52058135/why-are-dogs-so-cute)
-- [Self rinsing dog?](https://news.puppy-snuggles.com/46461964/self-rinsing-dog)
-- [What do we call this dog?](https://news.puppy-snuggles.com/43129781/what-do-we-call-this-dog)
-- [What do you think his name is?](https://news.puppy-snuggles.com/42346336/what-do-you-think-his-name-is)
+- [Puppy hugs his little brother who&amp;#039;s having a nightmare](https://news.puppy-snuggles.com/54955697/puppy-hugs-his-little-brother-whos-having-a-nightmare)
+- [Every morning she takes my spot when I leave for work, and every morning a put a blanket over her.](https://news.puppy-snuggles.com/54955698/every-morning-she-takes-my-spot-when-i-leave-for-work-and-every-morning-a-put-a-blanket-over-her)
+- [Watching him age like fine wine.](https://news.puppy-snuggles.com/54270798/watching-him-age-like-fine-wine)
+- [Very hot weather but still smiley](https://news.puppy-snuggles.com/53298132/very-hot-weather-but-still-smiley)
+- [Puppy thanks owner for adopting them.](https://news.puppy-snuggles.com/51426428/puppy-thanks-owner-for-adopting-them)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
