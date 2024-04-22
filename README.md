@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy hugs his little brother who&amp;#039;s having a nightmare](https://news.puppy-snuggles.com/54955697/puppy-hugs-his-little-brother-whos-having-a-nightmare)
-- [Every morning she takes my spot when I leave for work, and every morning a put a blanket over her.](https://news.puppy-snuggles.com/54955698/every-morning-she-takes-my-spot-when-i-leave-for-work-and-every-morning-a-put-a-blanket-over-her)
-- [Watching him age like fine wine.](https://news.puppy-snuggles.com/54270798/watching-him-age-like-fine-wine)
-- [Very hot weather but still smiley](https://news.puppy-snuggles.com/53298132/very-hot-weather-but-still-smiley)
-- [Puppy thanks owner for adopting them.](https://news.puppy-snuggles.com/51426428/puppy-thanks-owner-for-adopting-them)
+- [We take selfies - my almost 10 year old baby boy 💝](https://news.puppy-snuggles.com/55073414/we-take-selfies-my-almost-10-year-old-baby-boy)
+- [Give em the sexy look!](https://news.puppy-snuggles.com/55073412/give-em-the-sexy-look)
+- [Immediately after a 2.5 mile walk](https://news.puppy-snuggles.com/55073418/immediately-after-a-25-mile-walk)
+- [Hey. Hi. Hello. This is Peanut. She&amp;#039;s 16.](https://news.puppy-snuggles.com/55073416/hey-hi-hello-this-is-peanut-shes-16)
+- [Progress - 6 months, abandoned Pyr goes from 51lbs to 85 in six months.](https://news.puppy-snuggles.com/55073411/progress-6-months-abandoned-pyr-goes-from-51lbs-to-85-in-six-months)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
