@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We take selfies - my almost 10 year old baby boy 💝](https://news.puppy-snuggles.com/55073414/we-take-selfies-my-almost-10-year-old-baby-boy)
-- [Give em the sexy look!](https://news.puppy-snuggles.com/55073412/give-em-the-sexy-look)
-- [Immediately after a 2.5 mile walk](https://news.puppy-snuggles.com/55073418/immediately-after-a-25-mile-walk)
-- [Hey. Hi. Hello. This is Peanut. She&amp;#039;s 16.](https://news.puppy-snuggles.com/55073416/hey-hi-hello-this-is-peanut-shes-16)
-- [Progress - 6 months, abandoned Pyr goes from 51lbs to 85 in six months.](https://news.puppy-snuggles.com/55073411/progress-6-months-abandoned-pyr-goes-from-51lbs-to-85-in-six-months)
+- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
+- [butt scritches are best](https://news.puppy-snuggles.com/55131864/butt-scritches-are-best)
+- [Where are you Thasa](https://news.puppy-snuggles.com/55131858/where-are-you-thasa)
+- [Taking my girl Coco grocery shopping](https://news.puppy-snuggles.com/55131863/taking-my-girl-coco-grocery-shopping)
+- [When you get your way](https://news.puppy-snuggles.com/55131860/when-you-get-your-way)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
