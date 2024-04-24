@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
-- [butt scritches are best](https://news.puppy-snuggles.com/55131864/butt-scritches-are-best)
-- [Where are you Thasa](https://news.puppy-snuggles.com/55131858/where-are-you-thasa)
-- [Taking my girl Coco grocery shopping](https://news.puppy-snuggles.com/55131863/taking-my-girl-coco-grocery-shopping)
-- [When you get your way](https://news.puppy-snuggles.com/55131860/when-you-get-your-way)
+- [Went on her first puppy play date the other day!](https://news.puppy-snuggles.com/55187703/went-on-her-first-puppy-play-date-the-other-day)
+- [2 smiles for 2x happiness](https://news.puppy-snuggles.com/55187705/2-smiles-for-2x-happiness)
+- [Adopted the goodest 7 year old boy a few months ago. Anyone know what breed/mix he might be?](https://news.puppy-snuggles.com/55187708/adopted-the-goodest-7-year-old-boy-a-few-months-ago-anyone-know-what-breedmix-he-might-be)
+- [Show me all your wet and cold noses](https://news.puppy-snuggles.com/55187710/show-me-all-your-wet-and-cold-noses)
+- [What breed is this stray ?](https://news.puppy-snuggles.com/55187707/what-breed-is-this-stray)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
