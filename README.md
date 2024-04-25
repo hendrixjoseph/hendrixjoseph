@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Went on her first puppy play date the other day!](https://news.puppy-snuggles.com/55187703/went-on-her-first-puppy-play-date-the-other-day)
-- [2 smiles for 2x happiness](https://news.puppy-snuggles.com/55187705/2-smiles-for-2x-happiness)
-- [Adopted the goodest 7 year old boy a few months ago. Anyone know what breed/mix he might be?](https://news.puppy-snuggles.com/55187708/adopted-the-goodest-7-year-old-boy-a-few-months-ago-anyone-know-what-breedmix-he-might-be)
-- [Show me all your wet and cold noses](https://news.puppy-snuggles.com/55187710/show-me-all-your-wet-and-cold-noses)
-- [What breed is this stray ?](https://news.puppy-snuggles.com/55187707/what-breed-is-this-stray)
+- [Waiting for Mama to finish shopping](https://news.puppy-snuggles.com/55073413/waiting-for-mama-to-finish-shopping)
+- [Taking a break after a big day](https://news.puppy-snuggles.com/55073415/taking-a-break-after-a-big-day)
+- [We take selfies - my almost 10 year old baby boy 💝](https://news.puppy-snuggles.com/55073414/we-take-selfies-my-almost-10-year-old-baby-boy)
+- [Hey. Hi. Hello. This is Peanut. She&amp;#039;s 16.](https://news.puppy-snuggles.com/55073416/hey-hi-hello-this-is-peanut-shes-16)
+- [What should I name him?](https://news.puppy-snuggles.com/55073417/what-should-i-name-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
