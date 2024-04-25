@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Is there something wrong with this quote](https://www.reddit.com/r/AmazonMerch/comments/1c922xs/is_there_something_wrong_with_this_quote/l0ivyw6/)
-- [/u/joehx on VP of sales **](https://www.reddit.com/r/recruitinghell/comments/1c7wf9e/vp_of_sales/l0b8mp5/)
-- [/u/joehx on What is the dumbest thing you&#39;ve ever heard?](https://www.reddit.com/r/AskReddit/comments/1c6yr4n/what_is_the_dumbest_thing_youve_ever_heard/l04vrou/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 15, 2024](https://www.reddit.com/r/personalfinance/comments/1c4jc37/weekday_help_and_victory_thread_for_the_week_of/l04tywh/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 15, 2024](https://www.reddit.com/r/personalfinance/comments/1c4jc37/weekday_help_and_victory_thread_for_the_week_of/l04tnm1/)
+- [/u/joehx on Even if money is completely abolished, why would society still not be perfect?](https://www.reddit.com/r/AskReddit/comments/1cc4znt/even_if_money_is_completely_abolished_why_would/l12y86l/)
+- [/u/joehx on Even if money is completely abolished, why would society still not be perfect?](https://www.reddit.com/r/AskReddit/comments/1cc4znt/even_if_money_is_completely_abolished_why_would/l12vdim/)
+- [/u/joehx on First confession went awfully wrong](https://www.reddit.com/r/Catholicism/comments/1cc50sd/first_confession_went_awfully_wrong/l12v3n9/)
+- [/u/joehx on What are some of the oddest ways you’ve seen people eat their food?](https://www.reddit.com/r/ask/comments/1cbww45/what_are_some_of_the_oddest_ways_youve_seen/l12t8l5/)
+- [/u/joehx on what book changed your life?](https://www.reddit.com/r/AskReddit/comments/1cc0bpp/what_book_changed_your_life/l1286bc/)
 <!-- REDDIT:END -->
