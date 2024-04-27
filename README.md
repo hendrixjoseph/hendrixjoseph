@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My spouse is a travel nurse and has been away with our pug for 12 weeks. She sent me this good one. Can’t wait for both to be back next week.](https://news.puppy-snuggles.com/55239500/my-spouse-is-a-travel-nurse-and-has-been-away-with-our-pug-for-12-weeks-she-sent-me-this-good-one-cant-wait-for-both-to-be-back-next-week)
-- [2 smiles for 2x happiness](https://news.puppy-snuggles.com/55187705/2-smiles-for-2x-happiness)
-- [They are very fond of the early sun](https://news.puppy-snuggles.com/55187701/they-are-very-fond-of-the-early-sun)
-- [Sister came by with her dogs, only got pictures of only one though 😕](https://news.puppy-snuggles.com/55131867/sister-came-by-with-her-dogs-only-got-pictures-of-only-one-though)
-- [Immediately after a 2.5 mile walk](https://news.puppy-snuggles.com/55073418/immediately-after-a-25-mile-walk)
+- [This video made me cry, how do you deal with your puppy&amp;#039;s growth? I listen to your testimonies](https://news.puppy-snuggles.com/55363929/this-video-made-me-cry-how-do-you-deal-with-your-puppys-growth-i-listen-to-your-testimonies)
+- [Finally adopted another dog and we could not be happier with how well these two are getting along](https://news.puppy-snuggles.com/55363927/finally-adopted-another-dog-and-we-could-not-be-happier-with-how-well-these-two-are-getting-along)
+- [My Dog Einstein](https://news.puppy-snuggles.com/55363932/my-dog-einstein)
+- [My dog is very happy, friendly and playful! Today is 7 months old](https://news.puppy-snuggles.com/55363931/my-dog-is-very-happy-friendly-and-playful-today-is-7-months-old)
+- [Stunning](https://news.puppy-snuggles.com/55363933/stunning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
