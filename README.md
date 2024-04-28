@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Tell me your kids’ cute mispronunciations!](https://www.reddit.com/r/daddit/comments/1cdlv0x/tell_me_your_kids_cute_mispronunciations/l1d9xb8/)
-- [/u/joehx on What screams “I don&#39;t have social skills”?](https://www.reddit.com/r/AskReddit/comments/1cd16x3/what_screams_i_dont_have_social_skills/l18yiio/)
-- [/u/joehx on Shower tiles and soap holder fell off](https://www.reddit.com/r/DIY/comments/1ccjdzw/shower_tiles_and_soap_holder_fell_off/l18ye8c/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 22, 2024](https://www.reddit.com/r/personalfinance/comments/1ca7s9y/weekday_help_and_victory_thread_for_the_week_of/l1720ky/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of April 22, 2024](https://www.reddit.com/r/personalfinance/comments/1ca7s9y/weekday_help_and_victory_thread_for_the_week_of/l171adj/)
+- [/u/joehx on How are these men making so much money?](https://www.reddit.com/r/AskMen/comments/1ceq15n/how_are_these_men_making_so_much_money/l1k63b1/)
+- [/u/joehx on What toothpaste do you use?](https://www.reddit.com/r/AskReddit/comments/1cehlue/what_toothpaste_do_you_use/l1ik594/)
+- [/u/joehx on What toothpaste do you use?](https://www.reddit.com/r/AskReddit/comments/1cehlue/what_toothpaste_do_you_use/l1ijztj/)
+- [/u/joehx on What toothpaste do you use?](https://www.reddit.com/r/AskReddit/comments/1cehlue/what_toothpaste_do_you_use/l1ijgz7/)
+- [What toothpaste do you use?](https://www.reddit.com/r/AskReddit/comments/1cehlue/what_toothpaste_do_you_use/)
 <!-- REDDIT:END -->
