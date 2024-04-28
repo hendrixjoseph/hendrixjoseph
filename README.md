@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This video made me cry, how do you deal with your puppy&amp;#039;s growth? I listen to your testimonies](https://news.puppy-snuggles.com/55363929/this-video-made-me-cry-how-do-you-deal-with-your-puppys-growth-i-listen-to-your-testimonies)
-- [Finally adopted another dog and we could not be happier with how well these two are getting along](https://news.puppy-snuggles.com/55363927/finally-adopted-another-dog-and-we-could-not-be-happier-with-how-well-these-two-are-getting-along)
-- [My Dog Einstein](https://news.puppy-snuggles.com/55363932/my-dog-einstein)
-- [My dog is very happy, friendly and playful! Today is 7 months old](https://news.puppy-snuggles.com/55363931/my-dog-is-very-happy-friendly-and-playful-today-is-7-months-old)
+- [Don’t worry, I don’t need any personal space](https://news.puppy-snuggles.com/55414437/dont-worry-i-dont-need-any-personal-space)
 - [Stunning](https://news.puppy-snuggles.com/55363933/stunning)
+- [Our puppy to be in 4 weeks.](https://news.puppy-snuggles.com/54088502/our-puppy-to-be-in-4-weeks)
+- [Why does my dog do this?](https://news.puppy-snuggles.com/53474936/why-does-my-dog-do-this)
+- [Maxx says “hey, how you doin?”](https://news.puppy-snuggles.com/51862029/maxx-says-hey-how-you-doin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
