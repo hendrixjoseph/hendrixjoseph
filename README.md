@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Don’t worry, I don’t need any personal space](https://news.puppy-snuggles.com/55414437/dont-worry-i-dont-need-any-personal-space)
-- [Stunning](https://news.puppy-snuggles.com/55363933/stunning)
-- [Our puppy to be in 4 weeks.](https://news.puppy-snuggles.com/54088502/our-puppy-to-be-in-4-weeks)
-- [Why does my dog do this?](https://news.puppy-snuggles.com/53474936/why-does-my-dog-do-this)
-- [Maxx says “hey, how you doin?”](https://news.puppy-snuggles.com/51862029/maxx-says-hey-how-you-doin)
+- [Meet the bane of my life😂](https://news.puppy-snuggles.com/55484883/meet-the-bane-of-my-life)
+- [When the Dog Takes Babysitting Literally haha](https://news.puppy-snuggles.com/55484877/when-the-dog-takes-babysitting-literally-haha)
+- [Sleepy Smile](https://news.puppy-snuggles.com/55484876/sleepy-smile)
+- [Bros before heavenly glows](https://news.puppy-snuggles.com/55484880/bros-before-heavenly-glows)
+- [Can you tell which dog might be possessed?](https://news.puppy-snuggles.com/55484878/can-you-tell-which-dog-might-be-possessed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
