@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What do you think about whether men and women can be friends without love between them?](https://www.reddit.com/r/AskReddit/comments/1cg0jlz/what_do_you_think_about_whether_men_and_women_can/l1siza5/)
+- [/u/joehx on How much do you spend on groceries a month?](https://www.reddit.com/r/Frugal/comments/1cfmruz/how_much_do_you_spend_on_groceries_a_month/l1s6li5/)
+- [/u/joehx on thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/l1s5ekk/)
+- [thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/)
 - [/u/joehx on To Non-smokers, does every smoker smell bad to you?](https://www.reddit.com/r/ask/comments/1cfdbq5/to_nonsmokers_does_every_smoker_smell_bad_to_you/l1otg7b/)
-- [/u/joehx on Question: Can MLM’ers write off product they purchase on their taxes?](https://www.reddit.com/r/antiMLM/comments/1cfduk3/question_can_mlmers_write_off_product_they/l1okraz/)
-- [/u/joehx on What’s the weirdest thing a President has ever done?](https://www.reddit.com/r/AskReddit/comments/1cfa3pq/whats_the_weirdest_thing_a_president_has_ever_done/l1o5ucd/)
-- [/u/joehx on How are these men making so much money?](https://www.reddit.com/r/AskMen/comments/1ceq15n/how_are_these_men_making_so_much_money/l1k63b1/)
-- [/u/joehx on What toothpaste do you use?](https://www.reddit.com/r/AskReddit/comments/1cehlue/what_toothpaste_do_you_use/l1ik594/)
 <!-- REDDIT:END -->
