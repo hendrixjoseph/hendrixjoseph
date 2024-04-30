@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet the bane of my life😂](https://news.puppy-snuggles.com/55484883/meet-the-bane-of-my-life)
-- [When the Dog Takes Babysitting Literally haha](https://news.puppy-snuggles.com/55484877/when-the-dog-takes-babysitting-literally-haha)
-- [Sleepy Smile](https://news.puppy-snuggles.com/55484876/sleepy-smile)
-- [Bros before heavenly glows](https://news.puppy-snuggles.com/55484880/bros-before-heavenly-glows)
-- [Can you tell which dog might be possessed?](https://news.puppy-snuggles.com/55484878/can-you-tell-which-dog-might-be-possessed)
+- [Post pictures of your dogs young vs old](https://news.puppy-snuggles.com/55536614/post-pictures-of-your-dogs-young-vs-old)
+- [Help me name my Bernedoodle](https://news.puppy-snuggles.com/55536615/help-me-name-my-bernedoodle)
+- [Dog tied to dumpster found dead in front of City of Humble Animal Shelter](https://news.puppy-snuggles.com/45981706/dog-tied-to-dumpster-found-dead-in-front-of-city-of-humble-animal-shelter)
+- [An anybody help me identify what kind of puppy this might be? I rescued him today.](https://news.puppy-snuggles.com/24347089/an-anybody-help-me-identify-what-kind-of-puppy-this-might-be-i-rescued-him-today)
+- [I can call this as blessings](https://news.puppy-snuggles.com/23059896/i-can-call-this-as-blessings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
