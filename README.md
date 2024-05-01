@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post pictures of your dogs young vs old](https://news.puppy-snuggles.com/55536614/post-pictures-of-your-dogs-young-vs-old)
-- [Help me name my Bernedoodle](https://news.puppy-snuggles.com/55536615/help-me-name-my-bernedoodle)
-- [Dog tied to dumpster found dead in front of City of Humble Animal Shelter](https://news.puppy-snuggles.com/45981706/dog-tied-to-dumpster-found-dead-in-front-of-city-of-humble-animal-shelter)
-- [An anybody help me identify what kind of puppy this might be? I rescued him today.](https://news.puppy-snuggles.com/24347089/an-anybody-help-me-identify-what-kind-of-puppy-this-might-be-i-rescued-him-today)
-- [I can call this as blessings](https://news.puppy-snuggles.com/23059896/i-can-call-this-as-blessings)
+- [Hello!](https://news.puppy-snuggles.com/55590735/hello)
+- [Post your dog’s best picture and their worst picture.](https://news.puppy-snuggles.com/55590734/post-your-dogs-best-picture-and-their-worst-picture)
+- [Rate my dog&amp;#039;s unicorn cosplay](https://news.puppy-snuggles.com/55590740/rate-my-dogs-unicorn-cosplay)
+- [Guess who has the day off today](https://news.puppy-snuggles.com/55590732/guess-who-has-the-day-off-today)
+- [Just my 3 babies in their pyjamas](https://news.puppy-snuggles.com/55590731/just-my-3-babies-in-their-pyjamas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
