@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is clearly becoming excessive or uncontrollable?](https://www.reddit.com/r/AskReddit/comments/1cgyb2g/what_is_clearly_becoming_excessive_or/l205uz5/)
+- [/u/joehx on Sleuths of Reddit, how would you go about investigating yourself?](https://www.reddit.com/r/AskReddit/comments/1cgz5ma/sleuths_of_reddit_how_would_you_go_about/l1z2fwm/)
+- [/u/joehx on how can i share my referral code](https://www.reddit.com/r/Webull/comments/1cgz7br/how_can_i_share_my_referral_code/l1z1piw/)
+- [/u/joehx on Daily FI discussion thread - Tuesday, April 30, 2024](https://www.reddit.com/r/financialindependence/comments/1cgo941/daily_fi_discussion_thread_tuesday_april_30_2024/l1xje6s/)
 - [/u/joehx on What do you think about whether men and women can be friends without love between them?](https://www.reddit.com/r/AskReddit/comments/1cg0jlz/what_do_you_think_about_whether_men_and_women_can/l1siza5/)
-- [/u/joehx on How much do you spend on groceries a month?](https://www.reddit.com/r/Frugal/comments/1cfmruz/how_much_do_you_spend_on_groceries_a_month/l1s6li5/)
-- [/u/joehx on thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/l1s5ekk/)
-- [thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/)
-- [/u/joehx on To Non-smokers, does every smoker smell bad to you?](https://www.reddit.com/r/ask/comments/1cfdbq5/to_nonsmokers_does_every_smoker_smell_bad_to_you/l1otg7b/)
 <!-- REDDIT:END -->
