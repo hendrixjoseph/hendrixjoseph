@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello!](https://news.puppy-snuggles.com/55590735/hello)
-- [Post your dog’s best picture and their worst picture.](https://news.puppy-snuggles.com/55590734/post-your-dogs-best-picture-and-their-worst-picture)
-- [Rate my dog&amp;#039;s unicorn cosplay](https://news.puppy-snuggles.com/55590740/rate-my-dogs-unicorn-cosplay)
-- [Guess who has the day off today](https://news.puppy-snuggles.com/55590732/guess-who-has-the-day-off-today)
-- [Just my 3 babies in their pyjamas](https://news.puppy-snuggles.com/55590731/just-my-3-babies-in-their-pyjamas)
+- [What breed of dog is this?](https://news.puppy-snuggles.com/55645727/what-breed-of-dog-is-this)
+- [Augustus’s first time on the boat!](https://news.puppy-snuggles.com/55645725/augustuss-first-time-on-the-boat)
+- [Momma Golden Retriever Showing off Her Puppies](https://news.puppy-snuggles.com/55510292/momma-golden-retriever-showing-off-her-puppies)
+- [Truman tore his dew claw playing ball and is now all drugged up!](https://news.puppy-snuggles.com/55314017/truman-tore-his-dew-claw-playing-ball-and-is-now-all-drugged-up)
+- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
