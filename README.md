@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/l2bc3m9/)
+- [/u/joehx on How much is your blog earning per click?](https://www.reddit.com/r/Blogging/comments/1cimbun/how_much_is_your_blog_earning_per_click/l2a3v7d/)
+- [/u/joehx on What movies would you warn people not watch and why?](https://www.reddit.com/r/AskReddit/comments/1cimeew/what_movies_would_you_warn_people_not_watch_and/l2a2l7n/)
 - [/u/joehx on Can someone help me?](https://www.reddit.com/r/ask/comments/1chsfj4/can_someone_help_me/l24jzmv/)
 - [/u/joehx on ELI5: What is the purpose of paying a deductible for insurance companies?](https://www.reddit.com/r/explainlikeimfive/comments/1chsec8/eli5_what_is_the_purpose_of_paying_a_deductible/l24js6o/)
-- [/u/joehx on What is clearly becoming excessive or uncontrollable?](https://www.reddit.com/r/AskReddit/comments/1cgyb2g/what_is_clearly_becoming_excessive_or/l205uz5/)
-- [/u/joehx on Sleuths of Reddit, how would you go about investigating yourself?](https://www.reddit.com/r/AskReddit/comments/1cgz5ma/sleuths_of_reddit_how_would_you_go_about/l1z2fwm/)
-- [/u/joehx on how can i share my referral code](https://www.reddit.com/r/Webull/comments/1cgz7br/how_can_i_share_my_referral_code/l1z1piw/)
 <!-- REDDIT:END -->
