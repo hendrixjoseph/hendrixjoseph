@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed of dog is this?](https://news.puppy-snuggles.com/55645727/what-breed-of-dog-is-this)
-- [Augustus’s first time on the boat!](https://news.puppy-snuggles.com/55645725/augustuss-first-time-on-the-boat)
-- [Momma Golden Retriever Showing off Her Puppies](https://news.puppy-snuggles.com/55510292/momma-golden-retriever-showing-off-her-puppies)
-- [Truman tore his dew claw playing ball and is now all drugged up!](https://news.puppy-snuggles.com/55314017/truman-tore-his-dew-claw-playing-ball-and-is-now-all-drugged-up)
-- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
+- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
+- [Most beautiful dog ever?](https://news.puppy-snuggles.com/55727218/most-beautiful-dog-ever)
+- [My dog is wearing a ski mask](https://news.puppy-snuggles.com/55727220/my-dog-is-wearing-a-ski-mask)
+- [Panda is 1 year old today](https://news.puppy-snuggles.com/55727219/panda-is-1-year-old-today)
+- [She&amp;#039;s so photogenic](https://news.puppy-snuggles.com/55727221/shes-so-photogenic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
