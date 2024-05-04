@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
-- [Most beautiful dog ever?](https://news.puppy-snuggles.com/55727218/most-beautiful-dog-ever)
-- [My dog is wearing a ski mask](https://news.puppy-snuggles.com/55727220/my-dog-is-wearing-a-ski-mask)
-- [Panda is 1 year old today](https://news.puppy-snuggles.com/55727219/panda-is-1-year-old-today)
-- [She&amp;#039;s so photogenic](https://news.puppy-snuggles.com/55727221/shes-so-photogenic)
+- [She smile and she prance.](https://news.puppy-snuggles.com/55784523/she-smile-and-she-prance)
+- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 215](https://news.puppy-snuggles.com/55701357/365-days-of-me-amp-pepperoni-day-215)
+- [She a better parent than most of them out there with real babies](https://news.puppy-snuggles.com/55701356/she-a-better-parent-than-most-of-them-out-there-with-real-babies)
+- [Does this count? 😛](https://news.puppy-snuggles.com/55701358/does-this-count)
+- [Can dogs smile?](https://news.puppy-snuggles.com/55673938/can-dogs-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
