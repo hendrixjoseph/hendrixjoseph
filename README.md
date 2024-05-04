@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on thoughts? should I grow it more?](https://www.reddit.com/r/curlyhair/comments/1cfys5e/thoughts_should_i_grow_it_more/l2bc3m9/)
-- [/u/joehx on How much is your blog earning per click?](https://www.reddit.com/r/Blogging/comments/1cimbun/how_much_is_your_blog_earning_per_click/l2a3v7d/)
-- [/u/joehx on What movies would you warn people not watch and why?](https://www.reddit.com/r/AskReddit/comments/1cimeew/what_movies_would_you_warn_people_not_watch_and/l2a2l7n/)
-- [/u/joehx on Can someone help me?](https://www.reddit.com/r/ask/comments/1chsfj4/can_someone_help_me/l24jzmv/)
-- [/u/joehx on ELI5: What is the purpose of paying a deductible for insurance companies?](https://www.reddit.com/r/explainlikeimfive/comments/1chsec8/eli5_what_is_the_purpose_of_paying_a_deductible/l24js6o/)
+- [/u/joehx on What&#39;s a life hack that all homeowners should know?](https://www.reddit.com/r/homeowners/comments/1cixnoi/whats_a_life_hack_that_all_homeowners_should_know/l2gvfr6/)
+- [/u/joehx on Men of Reddit, what is the primary reason you workout?](https://www.reddit.com/r/AskReddit/comments/1cj941o/men_of_reddit_what_is_the_primary_reason_you/l2g7v6a/)
+- [/u/joehx on Hypothetical scenario - 8% t-bills or vanguard index fund](https://www.reddit.com/r/Fire/comments/1cjblf3/hypothetical_scenario_8_tbills_or_vanguard_index/l2frrtj/)
+- [/u/joehx on Why are there so many second hand Ryobis for sale?](https://www.reddit.com/r/HomeImprovement/comments/1cj9wo1/why_are_there_so_many_second_hand_ryobis_for_sale/l2fd8pt/)
+- [/u/joehx on Would you rather be killed by a man or a bear? If so, why or why not?](https://www.reddit.com/r/AskReddit/comments/1cjbp1k/would_you_rather_be_killed_by_a_man_or_a_bear_if/l2ey5b2/)
 <!-- REDDIT:END -->
