@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2lbdsi/)
+- [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2kmo96/)
 - [/u/joehx on What&#39;s a life hack that all homeowners should know?](https://www.reddit.com/r/homeowners/comments/1cixnoi/whats_a_life_hack_that_all_homeowners_should_know/l2gvfr6/)
 - [/u/joehx on Men of Reddit, what is the primary reason you workout?](https://www.reddit.com/r/AskReddit/comments/1cj941o/men_of_reddit_what_is_the_primary_reason_you/l2g7v6a/)
 - [/u/joehx on Hypothetical scenario - 8% t-bills or vanguard index fund](https://www.reddit.com/r/Fire/comments/1cjblf3/hypothetical_scenario_8_tbills_or_vanguard_index/l2frrtj/)
-- [/u/joehx on Why are there so many second hand Ryobis for sale?](https://www.reddit.com/r/HomeImprovement/comments/1cj9wo1/why_are_there_so_many_second_hand_ryobis_for_sale/l2fd8pt/)
-- [/u/joehx on Would you rather be killed by a man or a bear? If so, why or why not?](https://www.reddit.com/r/AskReddit/comments/1cjbp1k/would_you_rather_be_killed_by_a_man_or_a_bear_if/l2ey5b2/)
 <!-- REDDIT:END -->
