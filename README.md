@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She smile and she prance.](https://news.puppy-snuggles.com/55784523/she-smile-and-she-prance)
-- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 215](https://news.puppy-snuggles.com/55701357/365-days-of-me-amp-pepperoni-day-215)
-- [She a better parent than most of them out there with real babies](https://news.puppy-snuggles.com/55701356/she-a-better-parent-than-most-of-them-out-there-with-real-babies)
-- [Does this count? 😛](https://news.puppy-snuggles.com/55701358/does-this-count)
-- [Can dogs smile?](https://news.puppy-snuggles.com/55673938/can-dogs-smile)
+- [My puppy passed away over 15 years ago, but I still hurts and I miss him so much.](https://news.puppy-snuggles.com/55033944/my-puppy-passed-away-over-15-years-ago-but-i-still-hurts-and-i-miss-him-so-much)
+- [A man gives his dog a camera to make one of the cutest videos you will ever see](https://news.puppy-snuggles.com/37847796/a-man-gives-his-dog-a-camera-to-make-one-of-the-cutest-videos-you-will-ever-see)
+- [18 yrs old, owners decided they didn&amp;#039;t want him. fine..welcome to our family Charlie](https://news.puppy-snuggles.com/27936281/18-yrs-old-owners-decided-they-didnt-want-him-finewelcome-to-our-family-charlie)
+- [10 weeks in, he now learned to climb his gate. now i have to make his gate higher.](https://news.puppy-snuggles.com/24581742/10-weeks-in-he-now-learned-to-climb-his-gate-now-i-have-to-make-his-gate-higher)
+- [The picture of happiness 😍😊—&amp;amp;gt;my two little frenchies who think they are dobermans 🐶🐶🤣🤣](https://news.puppy-snuggles.com/24357839/the-picture-of-happiness-gtmy-two-little-frenchies-who-think-they-are-dobermans)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
