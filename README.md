@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy passed away over 15 years ago, but I still hurts and I miss him so much.](https://news.puppy-snuggles.com/55033944/my-puppy-passed-away-over-15-years-ago-but-i-still-hurts-and-i-miss-him-so-much)
-- [A man gives his dog a camera to make one of the cutest videos you will ever see](https://news.puppy-snuggles.com/37847796/a-man-gives-his-dog-a-camera-to-make-one-of-the-cutest-videos-you-will-ever-see)
-- [18 yrs old, owners decided they didn&amp;#039;t want him. fine..welcome to our family Charlie](https://news.puppy-snuggles.com/27936281/18-yrs-old-owners-decided-they-didnt-want-him-finewelcome-to-our-family-charlie)
-- [10 weeks in, he now learned to climb his gate. now i have to make his gate higher.](https://news.puppy-snuggles.com/24581742/10-weeks-in-he-now-learned-to-climb-his-gate-now-i-have-to-make-his-gate-higher)
-- [The picture of happiness 😍😊—&amp;amp;gt;my two little frenchies who think they are dobermans 🐶🐶🤣🤣](https://news.puppy-snuggles.com/24357839/the-picture-of-happiness-gtmy-two-little-frenchies-who-think-they-are-dobermans)
+- [Bruce happily celebrates National Puppy Day! He is now 5 months old and about 40 lbs.](https://news.puppy-snuggles.com/53358764/bruce-happily-celebrates-national-puppy-day-he-is-now-5-months-old-and-about-40-lbs)
+- [The look of pure love](https://news.puppy-snuggles.com/43599239/the-look-of-pure-love)
+- [Dad I&amp;#039;m not interested in your food :&rpar;&rpar;](https://news.puppy-snuggles.com/42072497/dad-im-not-interested-in-your-food)
+- [Hey who locked the door? I just went out to pee](https://news.puppy-snuggles.com/38245709/hey-who-locked-the-door-i-just-went-out-to-pee)
+- [More sun smiles](https://news.puppy-snuggles.com/36392099/more-sun-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
