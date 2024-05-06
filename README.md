@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on People thirties to fifties what kind of hobbies are you doing these days?](https://www.reddit.com/r/AskMen/comments/1ckzdfh/people_thirties_to_fifties_what_kind_of_hobbies/l2qw8lz/)
 - [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2lbdsi/)
 - [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2kmo96/)
 - [/u/joehx on What&#39;s a life hack that all homeowners should know?](https://www.reddit.com/r/homeowners/comments/1cixnoi/whats_a_life_hack_that_all_homeowners_should_know/l2gvfr6/)
 - [/u/joehx on Men of Reddit, what is the primary reason you workout?](https://www.reddit.com/r/AskReddit/comments/1cj941o/men_of_reddit_what_is_the_primary_reason_you/l2g7v6a/)
-- [/u/joehx on Hypothetical scenario - 8% t-bills or vanguard index fund](https://www.reddit.com/r/Fire/comments/1cjblf3/hypothetical_scenario_8_tbills_or_vanguard_index/l2frrtj/)
 <!-- REDDIT:END -->
