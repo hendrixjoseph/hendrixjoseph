@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bruce happily celebrates National Puppy Day! He is now 5 months old and about 40 lbs.](https://news.puppy-snuggles.com/53358764/bruce-happily-celebrates-national-puppy-day-he-is-now-5-months-old-and-about-40-lbs)
-- [The look of pure love](https://news.puppy-snuggles.com/43599239/the-look-of-pure-love)
-- [Dad I&amp;#039;m not interested in your food :&rpar;&rpar;](https://news.puppy-snuggles.com/42072497/dad-im-not-interested-in-your-food)
-- [Hey who locked the door? I just went out to pee](https://news.puppy-snuggles.com/38245709/hey-who-locked-the-door-i-just-went-out-to-pee)
-- [More sun smiles](https://news.puppy-snuggles.com/36392099/more-sun-smiles)
+- [Haru turned 3 in January, but I look at his puppy pics often.](https://news.puppy-snuggles.com/55891847/haru-turned-3-in-january-but-i-look-at-his-puppy-pics-often)
+- [Finally adopted another dog and we could not be happier with how well these two are getting along](https://news.puppy-snuggles.com/55363927/finally-adopted-another-dog-and-we-could-not-be-happier-with-how-well-these-two-are-getting-along)
+- [They are very fond of the early sun](https://news.puppy-snuggles.com/55187701/they-are-very-fond-of-the-early-sun)
+- [Maternity shot](https://news.puppy-snuggles.com/55106051/maternity-shot)
+- [It&amp;#039;s not working. He still understands even less than I do.](https://news.puppy-snuggles.com/54186486/its-not-working-he-still-understands-even-less-than-i-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
