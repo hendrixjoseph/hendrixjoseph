@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Haru turned 3 in January, but I look at his puppy pics often.](https://news.puppy-snuggles.com/55891847/haru-turned-3-in-january-but-i-look-at-his-puppy-pics-often)
-- [Finally adopted another dog and we could not be happier with how well these two are getting along](https://news.puppy-snuggles.com/55363927/finally-adopted-another-dog-and-we-could-not-be-happier-with-how-well-these-two-are-getting-along)
-- [They are very fond of the early sun](https://news.puppy-snuggles.com/55187701/they-are-very-fond-of-the-early-sun)
-- [Maternity shot](https://news.puppy-snuggles.com/55106051/maternity-shot)
-- [It&amp;#039;s not working. He still understands even less than I do.](https://news.puppy-snuggles.com/54186486/its-not-working-he-still-understands-even-less-than-i-do)
+- [I think he loves the camera](https://news.puppy-snuggles.com/55840308/i-think-he-loves-the-camera)
+- [My 15 yo had to be put down today](https://news.puppy-snuggles.com/53073511/my-15-yo-had-to-be-put-down-today)
+- [Comment the last picture of your dog in your camera roll](https://news.puppy-snuggles.com/51683650/comment-the-last-picture-of-your-dog-in-your-camera-roll)
+- [My buddy Taz](https://news.puppy-snuggles.com/47811248/my-buddy-taz)
+- [the assistant is growing up](https://news.puppy-snuggles.com/46818024/the-assistant-is-growing-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
