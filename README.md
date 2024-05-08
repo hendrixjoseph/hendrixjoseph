@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily Simple Questions Thread - May 07, 2024](https://www.reddit.com/r/Fitness/comments/1cm7cpj/daily_simple_questions_thread_may_07_2024/l2zu0au/)
+- [/u/joehx on BiTcOiN WiLl bE hAcKeD](https://www.reddit.com/r/Bitcoin/comments/1cmbfk1/bitcoin_will_be_hacked/l2z45fq/)
+- [/u/joehx on Daily Simple Questions Thread - May 07, 2024](https://www.reddit.com/r/Fitness/comments/1cm7cpj/daily_simple_questions_thread_may_07_2024/l2z08ld/)
 - [/u/joehx on Trying to grow new hobbies. What are your hobbies, Reddit?](https://www.reddit.com/r/AskReddit/comments/1clrxqa/trying_to_grow_new_hobbies_what_are_your_hobbies/l2vkkui/)
 - [/u/joehx on People thirties to fifties what kind of hobbies are you doing these days?](https://www.reddit.com/r/AskMen/comments/1ckzdfh/people_thirties_to_fifties_what_kind_of_hobbies/l2qw8lz/)
-- [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2lbdsi/)
-- [/u/joehx on What would you think about everyone having to take a basic intelligence test in order to be eligible to vote in your country?](https://www.reddit.com/r/AskReddit/comments/1ck5nt8/what_would_you_think_about_everyone_having_to/l2kmo96/)
-- [/u/joehx on What&#39;s a life hack that all homeowners should know?](https://www.reddit.com/r/homeowners/comments/1cixnoi/whats_a_life_hack_that_all_homeowners_should_know/l2gvfr6/)
 <!-- REDDIT:END -->
