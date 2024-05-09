@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I think he loves the camera](https://news.puppy-snuggles.com/55840308/i-think-he-loves-the-camera)
-- [My 15 yo had to be put down today](https://news.puppy-snuggles.com/53073511/my-15-yo-had-to-be-put-down-today)
-- [Comment the last picture of your dog in your camera roll](https://news.puppy-snuggles.com/51683650/comment-the-last-picture-of-your-dog-in-your-camera-roll)
-- [My buddy Taz](https://news.puppy-snuggles.com/47811248/my-buddy-taz)
-- [the assistant is growing up](https://news.puppy-snuggles.com/46818024/the-assistant-is-growing-up)
+- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56066048/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
+- [Say cheese!](https://news.puppy-snuggles.com/56034476/say-cheese)
+- [Once again I am asking for your cuddles](https://news.puppy-snuggles.com/55784524/once-again-i-am-asking-for-your-cuddles)
+- [Can anyone help id my dog?](https://news.puppy-snuggles.com/55645728/can-anyone-help-id-my-dog)
+- [What breed does this little guy look like?](https://news.puppy-snuggles.com/55645723/what-breed-does-this-little-guy-look-like)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
