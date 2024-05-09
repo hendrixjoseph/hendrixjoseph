@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l35cy8b/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, May 08, 2024](https://www.reddit.com/r/financialindependence/comments/1cn0113/weekly_selfpromotion_thread_wednesday_may_08_2024/l35crxp/)
+- [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l34f568/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of May 06, 2024](https://www.reddit.com/r/personalfinance/comments/1clg7jt/weekday_help_and_victory_thread_for_the_week_of/l34dqwk/)
 - [/u/joehx on Daily Simple Questions Thread - May 07, 2024](https://www.reddit.com/r/Fitness/comments/1cm7cpj/daily_simple_questions_thread_may_07_2024/l2zu0au/)
-- [/u/joehx on BiTcOiN WiLl bE hAcKeD](https://www.reddit.com/r/Bitcoin/comments/1cmbfk1/bitcoin_will_be_hacked/l2z45fq/)
-- [/u/joehx on Daily Simple Questions Thread - May 07, 2024](https://www.reddit.com/r/Fitness/comments/1cm7cpj/daily_simple_questions_thread_may_07_2024/l2z08ld/)
-- [/u/joehx on Trying to grow new hobbies. What are your hobbies, Reddit?](https://www.reddit.com/r/AskReddit/comments/1clrxqa/trying_to_grow_new_hobbies_what_are_your_hobbies/l2vkkui/)
-- [/u/joehx on People thirties to fifties what kind of hobbies are you doing these days?](https://www.reddit.com/r/AskMen/comments/1ckzdfh/people_thirties_to_fifties_what_kind_of_hobbies/l2qw8lz/)
 <!-- REDDIT:END -->
