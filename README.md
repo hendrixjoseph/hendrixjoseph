@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56066048/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
-- [Say cheese!](https://news.puppy-snuggles.com/56034476/say-cheese)
-- [Once again I am asking for your cuddles](https://news.puppy-snuggles.com/55784524/once-again-i-am-asking-for-your-cuddles)
-- [Can anyone help id my dog?](https://news.puppy-snuggles.com/55645728/can-anyone-help-id-my-dog)
-- [What breed does this little guy look like?](https://news.puppy-snuggles.com/55645723/what-breed-does-this-little-guy-look-like)
+- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56174746/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
+- [Hiding the evidence](https://news.puppy-snuggles.com/56150894/hiding-the-evidence)
+- [Isnt he a cutie padootie?](https://news.puppy-snuggles.com/56113718/isnt-he-a-cutie-padootie)
+- [My Hanky boys first birthday is coming up and it’s got me missing back when he was small enough to hold](https://news.puppy-snuggles.com/56113720/my-hanky-boys-first-birthday-is-coming-up-and-its-got-me-missing-back-when-he-was-small-enough-to-hold)
+- [Anyone else&amp;#039;s parents name their dog God Damn It](https://news.puppy-snuggles.com/56072591/anyone-elses-parents-name-their-dog-god-damn-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
