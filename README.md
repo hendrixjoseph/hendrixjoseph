@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Can I change my username on Reddit?](https://www.reddit.com/r/ask/comments/1co6sun/can_i_change_my_username_on_reddit/l3bzu6b/)
+- [/u/joehx on How has TV been changed by The Two Screen Problem?](https://www.reddit.com/r/AskReddit/comments/1co4esy/how_has_tv_been_changed_by_the_two_screen_problem/l3bi6l1/)
 - [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l35cy8b/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, May 08, 2024](https://www.reddit.com/r/financialindependence/comments/1cn0113/weekly_selfpromotion_thread_wednesday_may_08_2024/l35crxp/)
 - [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l34f568/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of May 06, 2024](https://www.reddit.com/r/personalfinance/comments/1clg7jt/weekday_help_and_victory_thread_for_the_week_of/l34dqwk/)
-- [/u/joehx on Daily Simple Questions Thread - May 07, 2024](https://www.reddit.com/r/Fitness/comments/1cm7cpj/daily_simple_questions_thread_may_07_2024/l2zu0au/)
 <!-- REDDIT:END -->
