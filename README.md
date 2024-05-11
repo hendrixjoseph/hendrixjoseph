@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56174746/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
-- [Hiding the evidence](https://news.puppy-snuggles.com/56150894/hiding-the-evidence)
-- [Isnt he a cutie padootie?](https://news.puppy-snuggles.com/56113718/isnt-he-a-cutie-padootie)
-- [My Hanky boys first birthday is coming up and it’s got me missing back when he was small enough to hold](https://news.puppy-snuggles.com/56113720/my-hanky-boys-first-birthday-is-coming-up-and-its-got-me-missing-back-when-he-was-small-enough-to-hold)
-- [Anyone else&amp;#039;s parents name their dog God Damn It](https://news.puppy-snuggles.com/56072591/anyone-elses-parents-name-their-dog-god-damn-it)
+- [Favorite facial expression your dog has made?](https://news.puppy-snuggles.com/56113712/favorite-facial-expression-your-dog-has-made)
+- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
+- [Best guess on breed before DNA test!](https://news.puppy-snuggles.com/54869208/best-guess-on-breed-before-dna-test)
+- [Lost my baby boy two days ago. Just wanted to share that I had a dog his name was Roy and he was my best friend. Rest in peace buddy, I&amp;#039;ll miss you everyday.](https://news.puppy-snuggles.com/52595022/lost-my-baby-boy-two-days-ago-just-wanted-to-share-that-i-had-a-dog-his-name-was-roy-and-he-was-my-best-friend-rest-in-peace-buddy-ill-miss-you-everyday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
