@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Can I change my username on Reddit?](https://www.reddit.com/r/ask/comments/1co6sun/can_i_change_my_username_on_reddit/l3bzu6b/)
-- [/u/joehx on How has TV been changed by The Two Screen Problem?](https://www.reddit.com/r/AskReddit/comments/1co4esy/how_has_tv_been_changed_by_the_two_screen_problem/l3bi6l1/)
-- [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l35cy8b/)
-- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, May 08, 2024](https://www.reddit.com/r/financialindependence/comments/1cn0113/weekly_selfpromotion_thread_wednesday_may_08_2024/l35crxp/)
-- [/u/joehx on Meta ads for merch](https://www.reddit.com/r/AmazonMerch/comments/1cmyw43/meta_ads_for_merch/l34f568/)
+- [/u/joehx on Are there bloggers who do it for the love of writing?](https://www.reddit.com/r/Blogging/comments/1couorn/are_there_bloggers_who_do_it_for_the_love_of/l3gym59/)
+- [/u/joehx on People who fully cured their phone/content addiction, attention span and restored calm, how?](https://www.reddit.com/r/AskReddit/comments/1copsg5/people_who_fully_cured_their_phonecontent/l3fjiux/)
+- [/u/joehx on What’s a common misconception about history that drives you crazy?](https://www.reddit.com/r/ask/comments/1coputw/whats_a_common_misconception_about_history_that/l3fj98c/)
+- [/u/joehx on pre-shower and after-shower hair with no gel](https://www.reddit.com/r/curlyhair/comments/1coovu8/preshower_and_aftershower_hair_with_no_gel/l3fbfvp/)
+- [pre-shower and after-shower hair with no gel](https://www.reddit.com/r/curlyhair/comments/1coovu8/preshower_and_aftershower_hair_with_no_gel/)
 <!-- REDDIT:END -->
