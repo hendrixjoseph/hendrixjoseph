@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Are there bloggers who do it for the love of writing?](https://www.reddit.com/r/Blogging/comments/1couorn/are_there_bloggers_who_do_it_for_the_love_of/l3gym59/)
-- [/u/joehx on People who fully cured their phone/content addiction, attention span and restored calm, how?](https://www.reddit.com/r/AskReddit/comments/1copsg5/people_who_fully_cured_their_phonecontent/l3fjiux/)
-- [/u/joehx on What’s a common misconception about history that drives you crazy?](https://www.reddit.com/r/ask/comments/1coputw/whats_a_common_misconception_about_history_that/l3fj98c/)
-- [/u/joehx on pre-shower and after-shower hair with no gel](https://www.reddit.com/r/curlyhair/comments/1coovu8/preshower_and_aftershower_hair_with_no_gel/l3fbfvp/)
-- [pre-shower and after-shower hair with no gel](https://www.reddit.com/r/curlyhair/comments/1coovu8/preshower_and_aftershower_hair_with_no_gel/)
+- [/u/joehx on What is something you can say &quot;I&#39;m with the boomers on this one&quot; about?](https://www.reddit.com/r/ask/comments/1cpk942/what_is_something_you_can_say_im_with_the_boomers/l3n3oga/)
+- [/u/joehx on Weekend Help and Victory Thread for the week of May 10, 2024](https://www.reddit.com/r/personalfinance/comments/1cp01g4/weekend_help_and_victory_thread_for_the_week_of/l3myzt9/)
+- [/u/joehx on Weekend Help and Victory Thread for the week of May 10, 2024](https://www.reddit.com/r/personalfinance/comments/1cp01g4/weekend_help_and_victory_thread_for_the_week_of/l3muwc6/)
+- [/u/joehx on What are some top fashion tips for guys?](https://www.reddit.com/r/AskReddit/comments/1cpgxno/what_are_some_top_fashion_tips_for_guys/l3mkzi7/)
+- [/u/joehx on What are some top fashion tips for guys?](https://www.reddit.com/r/AskReddit/comments/1cpgxno/what_are_some_top_fashion_tips_for_guys/l3mkicq/)
 <!-- REDDIT:END -->
