@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56174746/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
-- [Favorite facial expression your dog has made?](https://news.puppy-snuggles.com/56113712/favorite-facial-expression-your-dog-has-made)
-- [Pooh says, “Everyday is a picnic when you&amp;#039;re with friends!”](https://news.puppy-snuggles.com/55131861/pooh-says-everyday-is-a-picnic-when-youre-with-friends)
-- [Best guess on breed before DNA test!](https://news.puppy-snuggles.com/54869208/best-guess-on-breed-before-dna-test)
-- [Lost my baby boy two days ago. Just wanted to share that I had a dog his name was Roy and he was my best friend. Rest in peace buddy, I&amp;#039;ll miss you everyday.](https://news.puppy-snuggles.com/52595022/lost-my-baby-boy-two-days-ago-just-wanted-to-share-that-i-had-a-dog-his-name-was-roy-and-he-was-my-best-friend-rest-in-peace-buddy-ill-miss-you-everyday)
+- [In memoriam of my 5 year old German shepherd Simba, the Bestest Boy that ever Bested](https://news.puppy-snuggles.com/56113717/in-memoriam-of-my-5-year-old-german-shepherd-simba-the-bestest-boy-that-ever-bested)
+- [Isnt he a cutie padootie?](https://news.puppy-snuggles.com/56113718/isnt-he-a-cutie-padootie)
+- [Just got a new pup at my dad’s house. What do you think she is? Lanky and pretty skinny despite being well feed. Sweet girl.](https://news.puppy-snuggles.com/56113715/just-got-a-new-pup-at-my-dads-house-what-do-you-think-she-is-lanky-and-pretty-skinny-despite-being-well-feed-sweet-girl)
+- [This is jasper now &lpar;8000 of you helped name him 2 years ago&rpar;](https://news.puppy-snuggles.com/56113716/this-is-jasper-now-8000-of-you-helped-name-him-2-years-ago)
+- [Meet Calvin :&rpar;](https://news.puppy-snuggles.com/56113714/meet-calvin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
