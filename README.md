@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [In memoriam of my 5 year old German shepherd Simba, the Bestest Boy that ever Bested](https://news.puppy-snuggles.com/56113717/in-memoriam-of-my-5-year-old-german-shepherd-simba-the-bestest-boy-that-ever-bested)
-- [Isnt he a cutie padootie?](https://news.puppy-snuggles.com/56113718/isnt-he-a-cutie-padootie)
-- [Just got a new pup at my dad’s house. What do you think she is? Lanky and pretty skinny despite being well feed. Sweet girl.](https://news.puppy-snuggles.com/56113715/just-got-a-new-pup-at-my-dads-house-what-do-you-think-she-is-lanky-and-pretty-skinny-despite-being-well-feed-sweet-girl)
-- [This is jasper now &lpar;8000 of you helped name him 2 years ago&rpar;](https://news.puppy-snuggles.com/56113716/this-is-jasper-now-8000-of-you-helped-name-him-2-years-ago)
-- [Meet Calvin :&rpar;](https://news.puppy-snuggles.com/56113714/meet-calvin)
+- [Work hard, play harder!](https://news.puppy-snuggles.com/56344555/work-hard-play-harder)
+- [Shelter said &amp;amp;quot;lab mix&amp;amp;quot;. Did not expect a horse!](https://news.puppy-snuggles.com/56307778/shelter-said-quotlab-mixquot-did-not-expect-a-horse)
+- [I saw the prettiest stray ever](https://news.puppy-snuggles.com/56307779/i-saw-the-prettiest-stray-ever)
+- [Why do dogs LOVE to chill under curtains?](https://news.puppy-snuggles.com/56289024/why-do-dogs-love-to-chill-under-curtains)
+- [Show me that one photo of your dog you always want to show but never have reason to](https://news.puppy-snuggles.com/56170220/show-me-that-one-photo-of-your-dog-you-always-want-to-show-but-never-have-reason-to)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
