@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Work hard, play harder!](https://news.puppy-snuggles.com/56344555/work-hard-play-harder)
-- [Shelter said &amp;amp;quot;lab mix&amp;amp;quot;. Did not expect a horse!](https://news.puppy-snuggles.com/56307778/shelter-said-quotlab-mixquot-did-not-expect-a-horse)
-- [I saw the prettiest stray ever](https://news.puppy-snuggles.com/56307779/i-saw-the-prettiest-stray-ever)
-- [Why do dogs LOVE to chill under curtains?](https://news.puppy-snuggles.com/56289024/why-do-dogs-love-to-chill-under-curtains)
-- [Show me that one photo of your dog you always want to show but never have reason to](https://news.puppy-snuggles.com/56170220/show-me-that-one-photo-of-your-dog-you-always-want-to-show-but-never-have-reason-to)
+- [Look at this distinguished gentleman...](https://news.puppy-snuggles.com/36485343/look-at-this-distinguished-gentleman)
+- [Happy Boys stopped to smell the flowers](https://news.puppy-snuggles.com/35895251/happy-boys-stopped-to-smell-the-flowers)
+- [Cutest thing in history](https://news.puppy-snuggles.com/24369032/cutest-thing-in-history)
+- [This spoiled brat turned 19 today! I sleep on the floor while he dreams like this. Love him so much&amp;amp;lt;3 Need Help.](https://news.puppy-snuggles.com/23470951/this-spoiled-brat-turned-19-today-i-sleep-on-the-floor-while-he-dreams-like-this-love-him-so-muchlt3-need-help)
+- [Seen a lot of “guess his breed” posts - thought I would join in on the fun. Should I just get a doggy dna kit for Christmas?](https://news.puppy-snuggles.com/22994974/seen-a-lot-of-guess-his-breed-posts-thought-i-would-join-in-on-the-fun-should-i-just-get-a-doggy-dna-kit-for-christmas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
