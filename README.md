@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Get a $100 Amazon Gift Card with purchase of the new Google Pixel 8a &lpar;ends 5/19/2024&rpar;](https://www.reddit.com/r/u_joehx/comments/1cs1kgb/get_a_100_amazon_gift_card_with_purchase_of_the/)
+- [/u/joehx on Google I/o 2024](https://www.reddit.com/r/google/comments/1crxgce/google_io_2024/l41phig/)
+- [/u/joehx on Could being a Karen be a form of chemical warfare?](https://www.reddit.com/r/ask/comments/1cs0jxu/could_being_a_karen_be_a_form_of_chemical_warfare/l41od21/)
+- [/u/joehx on I have a blog about blogs. Share the link to your blog and describe it in one sentence. I&#39;ll put it in my blog.](https://www.reddit.com/r/Blogging/comments/1cr9bpt/i_have_a_blog_about_blogs_share_the_link_to_your/l4005dr/)
 - [/u/joehx on Weekend Help and Victory Thread for the week of May 10, 2024](https://www.reddit.com/r/personalfinance/comments/1cp01g4/weekend_help_and_victory_thread_for_the_week_of/l3sh4zq/)
-- [/u/joehx on I went to Mass in Cincinnati today and almost everyone stood during the Eucharistic Prayer. I’m from Boston and we always kneel. Is this a “thing”?](https://www.reddit.com/r/Catholicism/comments/1cqeda6/i_went_to_mass_in_cincinnati_today_and_almost/l3rvygd/)
-- [/u/joehx on Eli5 Toddlers wearing shoes on wrong feet](https://www.reddit.com/r/explainlikeimfive/comments/1cqj27w/eli5_toddlers_wearing_shoes_on_wrong_feet/l3rv3nc/)
-- [/u/joehx on Why Do Some Consider Enoch As Scripture?](https://www.reddit.com/r/Catholicism/comments/1cqipca/why_do_some_consider_enoch_as_scripture/l3ru5qt/)
-- [/u/joehx on ELI5: Can two businesses have the same name with a one letter difference?](https://www.reddit.com/r/explainlikeimfive/comments/1cqgtk4/eli5_can_two_businesses_have_the_same_name_with_a/l3r9pwn/)
 <!-- REDDIT:END -->
