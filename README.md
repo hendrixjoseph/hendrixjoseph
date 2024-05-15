@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at this distinguished gentleman...](https://news.puppy-snuggles.com/36485343/look-at-this-distinguished-gentleman)
-- [Happy Boys stopped to smell the flowers](https://news.puppy-snuggles.com/35895251/happy-boys-stopped-to-smell-the-flowers)
-- [Cutest thing in history](https://news.puppy-snuggles.com/24369032/cutest-thing-in-history)
-- [This spoiled brat turned 19 today! I sleep on the floor while he dreams like this. Love him so much&amp;amp;lt;3 Need Help.](https://news.puppy-snuggles.com/23470951/this-spoiled-brat-turned-19-today-i-sleep-on-the-floor-while-he-dreams-like-this-love-him-so-muchlt3-need-help)
-- [Seen a lot of “guess his breed” posts - thought I would join in on the fun. Should I just get a doggy dna kit for Christmas?](https://news.puppy-snuggles.com/22994974/seen-a-lot-of-guess-his-breed-posts-thought-i-would-join-in-on-the-fun-should-i-just-get-a-doggy-dna-kit-for-christmas)
+- [Puppy smiles all round](https://news.puppy-snuggles.com/55891851/puppy-smiles-all-round)
+- [Took this picture of my dog after I took her a walk ❤️](https://news.puppy-snuggles.com/42669351/took-this-picture-of-my-dog-after-i-took-her-a-walk)
+- [My happy pack. 😊](https://news.puppy-snuggles.com/40086904/my-happy-pack)
+- [My reason for waking up](https://news.puppy-snuggles.com/25710647/my-reason-for-waking-up)
+- [My fur Neice Fancy](https://news.puppy-snuggles.com/24707129/my-fur-neice-fancy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
