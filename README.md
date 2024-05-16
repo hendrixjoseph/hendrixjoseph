@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Chase Freedom Flex Amazon 5x refund results in only -1x](https://www.reddit.com/r/CreditCards/comments/1csn7xg/chase_freedom_flex_amazon_5x_refund_results_in/l47niwg/)
 - [Get a $100 Amazon Gift Card with purchase of the new Google Pixel 8a &lpar;ends 5/19/2024&rpar;](https://www.reddit.com/r/u_joehx/comments/1cs1kgb/get_a_100_amazon_gift_card_with_purchase_of_the/)
 - [/u/joehx on Google I/o 2024](https://www.reddit.com/r/google/comments/1crxgce/google_io_2024/l41phig/)
 - [/u/joehx on Could being a Karen be a form of chemical warfare?](https://www.reddit.com/r/ask/comments/1cs0jxu/could_being_a_karen_be_a_form_of_chemical_warfare/l41od21/)
 - [/u/joehx on I have a blog about blogs. Share the link to your blog and describe it in one sentence. I&#39;ll put it in my blog.](https://www.reddit.com/r/Blogging/comments/1cr9bpt/i_have_a_blog_about_blogs_share_the_link_to_your/l4005dr/)
-- [/u/joehx on Weekend Help and Victory Thread for the week of May 10, 2024](https://www.reddit.com/r/personalfinance/comments/1cp01g4/weekend_help_and_victory_thread_for_the_week_of/l3sh4zq/)
 <!-- REDDIT:END -->
