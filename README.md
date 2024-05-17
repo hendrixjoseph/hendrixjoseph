@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My beautiful girl](https://news.puppy-snuggles.com/56546746/my-beautiful-girl)
-- [Do your dogs ever strike a funny pose?](https://news.puppy-snuggles.com/56507333/do-your-dogs-ever-strike-a-funny-pose)
-- [When someone posts &amp;amp;quot;what breed is this&amp;amp;quot;](https://news.puppy-snuggles.com/56485159/when-someone-posts-quotwhat-breed-is-thisquot)
-- [Cookie is doin great :&rpar;](https://news.puppy-snuggles.com/56485160/cookie-is-doin-great)
-- [My Hanky boys first birthday is coming up and it’s got me missing back when he was small enough to hold](https://news.puppy-snuggles.com/56113720/my-hanky-boys-first-birthday-is-coming-up-and-its-got-me-missing-back-when-he-was-small-enough-to-hold)
+- [My girls first time in the ocean!](https://news.puppy-snuggles.com/56629146/my-girls-first-time-in-the-ocean)
+- [Show me your snoots.](https://news.puppy-snuggles.com/56629145/show-me-your-snoots)
+- [was offended that I did not treat him to a watermelon](https://news.puppy-snuggles.com/56608336/was-offended-that-i-did-not-treat-him-to-a-watermelon)
+- [He is a very sweet and innocent boy!](https://news.puppy-snuggles.com/56608333/he-is-a-very-sweet-and-innocent-boy)
+- [A pitbull dad and his baby](https://news.puppy-snuggles.com/56485163/a-pitbull-dad-and-his-baby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
