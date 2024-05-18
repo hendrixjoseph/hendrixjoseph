@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Remy graduated her beginner training class this evening 🥹](https://news.puppy-snuggles.com/56650294/remy-graduated-her-beginner-training-class-this-evening)
 - [My girls first time in the ocean!](https://news.puppy-snuggles.com/56629146/my-girls-first-time-in-the-ocean)
-- [Show me your snoots.](https://news.puppy-snuggles.com/56629145/show-me-your-snoots)
-- [was offended that I did not treat him to a watermelon](https://news.puppy-snuggles.com/56608336/was-offended-that-i-did-not-treat-him-to-a-watermelon)
-- [He is a very sweet and innocent boy!](https://news.puppy-snuggles.com/56608333/he-is-a-very-sweet-and-innocent-boy)
-- [A pitbull dad and his baby](https://news.puppy-snuggles.com/56485163/a-pitbull-dad-and-his-baby)
+- [All my happy boys](https://news.puppy-snuggles.com/55590733/all-my-happy-boys)
+- [One year old! 🥳 🎉](https://news.puppy-snuggles.com/55484882/one-year-old)
+- [Sir, can I&amp;#039;ve a short break](https://news.puppy-snuggles.com/54997492/sir-can-ive-a-short-break)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
