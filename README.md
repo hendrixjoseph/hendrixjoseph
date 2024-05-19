@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Remy graduated her beginner training class this evening 🥹](https://news.puppy-snuggles.com/56650294/remy-graduated-her-beginner-training-class-this-evening)
-- [My girls first time in the ocean!](https://news.puppy-snuggles.com/56629146/my-girls-first-time-in-the-ocean)
-- [All my happy boys](https://news.puppy-snuggles.com/55590733/all-my-happy-boys)
-- [One year old! 🥳 🎉](https://news.puppy-snuggles.com/55484882/one-year-old)
-- [Sir, can I&amp;#039;ve a short break](https://news.puppy-snuggles.com/54997492/sir-can-ive-a-short-break)
+- [Sister came by with her dogs, only got pictures of only one though 😕](https://news.puppy-snuggles.com/55131867/sister-came-by-with-her-dogs-only-got-pictures-of-only-one-though)
+- [A street dog gets adopted by gas station employees and even gets a uniform.](https://news.puppy-snuggles.com/51330955/a-street-dog-gets-adopted-by-gas-station-employees-and-even-gets-a-uniform)
+- [It&amp;#039;s been one day and the house is so quiet. She had a long life &lpar;2006 - 2022&rpar;. I love you and will always miss you.](https://news.puppy-snuggles.com/22819247/its-been-one-day-and-the-house-is-so-quiet-she-had-a-long-life-2006-2022-i-love-you-and-will-always-miss-you)
+- [Rescue we are fostering, sleeping with a smile!! Happy to be in loving arms all snuggled up!](https://news.puppy-snuggles.com/18745061/rescue-we-are-fostering-sleeping-with-a-smile-happy-to-be-in-loving-arms-all-snuggled-up)
+- [Had the pleasure of visiting this little beauty today](https://news.puppy-snuggles.com/18735665/had-the-pleasure-of-visiting-this-little-beauty-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
