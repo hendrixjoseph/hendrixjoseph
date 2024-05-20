@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sister came by with her dogs, only got pictures of only one though 😕](https://news.puppy-snuggles.com/55131867/sister-came-by-with-her-dogs-only-got-pictures-of-only-one-though)
-- [A street dog gets adopted by gas station employees and even gets a uniform.](https://news.puppy-snuggles.com/51330955/a-street-dog-gets-adopted-by-gas-station-employees-and-even-gets-a-uniform)
-- [It&amp;#039;s been one day and the house is so quiet. She had a long life &lpar;2006 - 2022&rpar;. I love you and will always miss you.](https://news.puppy-snuggles.com/22819247/its-been-one-day-and-the-house-is-so-quiet-she-had-a-long-life-2006-2022-i-love-you-and-will-always-miss-you)
-- [Rescue we are fostering, sleeping with a smile!! Happy to be in loving arms all snuggled up!](https://news.puppy-snuggles.com/18745061/rescue-we-are-fostering-sleeping-with-a-smile-happy-to-be-in-loving-arms-all-snuggled-up)
-- [Had the pleasure of visiting this little beauty today](https://news.puppy-snuggles.com/18735665/had-the-pleasure-of-visiting-this-little-beauty-today)
+- [I giggle every time he smiles at me, and I say - Hey cheeky](https://news.puppy-snuggles.com/56755298/i-giggle-every-time-he-smiles-at-me-and-i-say-hey-cheeky)
+- [Show me your dog with their friends](https://news.puppy-snuggles.com/56755300/show-me-your-dog-with-their-friends)
+- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
+- [My dogs balls are getting cut off in 2 weeks.](https://news.puppy-snuggles.com/56755297/my-dogs-balls-are-getting-cut-off-in-2-weeks)
+- [was offended that I did not treat him to a watermelon](https://news.puppy-snuggles.com/56608336/was-offended-that-i-did-not-treat-him-to-a-watermelon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
