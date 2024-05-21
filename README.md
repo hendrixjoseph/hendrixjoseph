@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [National Rescue Dog day, let’s see all those lovely rescues!](https://news.puppy-snuggles.com/56878176/national-rescue-dog-day-lets-see-all-those-lovely-rescues)
+- [Said goodbye to my best friend yesterday. Savannah is the first dog to walk around the world and the greatest love I&amp;#039;ll ever know.](https://news.puppy-snuggles.com/56878175/said-goodbye-to-my-best-friend-yesterday-savannah-is-the-first-dog-to-walk-around-the-world-and-the-greatest-love-ill-ever-know)
+- [Just take the dog damn picture already!](https://news.puppy-snuggles.com/56878177/just-take-the-dog-damn-picture-already)
 - [I giggle every time he smiles at me, and I say - Hey cheeky](https://news.puppy-snuggles.com/56755298/i-giggle-every-time-he-smiles-at-me-and-i-say-hey-cheeky)
-- [Show me your dog with their friends](https://news.puppy-snuggles.com/56755300/show-me-your-dog-with-their-friends)
-- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
-- [My dogs balls are getting cut off in 2 weeks.](https://news.puppy-snuggles.com/56755297/my-dogs-balls-are-getting-cut-off-in-2-weeks)
-- [was offended that I did not treat him to a watermelon](https://news.puppy-snuggles.com/56608336/was-offended-that-i-did-not-treat-him-to-a-watermelon)
+- [He’s happy to be groomed. Meet Tomato!!](https://news.puppy-snuggles.com/56733395/hes-happy-to-be-groomed-meet-tomato)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
