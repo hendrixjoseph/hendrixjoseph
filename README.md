@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [National Rescue Dog day, let’s see all those lovely rescues!](https://news.puppy-snuggles.com/56878176/national-rescue-dog-day-lets-see-all-those-lovely-rescues)
 - [Said goodbye to my best friend yesterday. Savannah is the first dog to walk around the world and the greatest love I&amp;#039;ll ever know.](https://news.puppy-snuggles.com/56878175/said-goodbye-to-my-best-friend-yesterday-savannah-is-the-first-dog-to-walk-around-the-world-and-the-greatest-love-ill-ever-know)
 - [Just take the dog damn picture already!](https://news.puppy-snuggles.com/56878177/just-take-the-dog-damn-picture-already)
-- [I giggle every time he smiles at me, and I say - Hey cheeky](https://news.puppy-snuggles.com/56755298/i-giggle-every-time-he-smiles-at-me-and-i-say-hey-cheeky)
-- [He’s happy to be groomed. Meet Tomato!!](https://news.puppy-snuggles.com/56733395/hes-happy-to-be-groomed-meet-tomato)
+- [Luna, my sweet one eared house hippo, is recovering from her surgery so well!](https://news.puppy-snuggles.com/56755299/luna-my-sweet-one-eared-house-hippo-is-recovering-from-her-surgery-so-well)
+- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
+- [love the smell of green grass and nature](https://news.puppy-snuggles.com/56733396/love-the-smell-of-green-grass-and-nature)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
