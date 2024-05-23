@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to my best friend yesterday. Savannah is the first dog to walk around the world and the greatest love I&amp;#039;ll ever know.](https://news.puppy-snuggles.com/56878175/said-goodbye-to-my-best-friend-yesterday-savannah-is-the-first-dog-to-walk-around-the-world-and-the-greatest-love-ill-ever-know)
-- [Just take the dog damn picture already!](https://news.puppy-snuggles.com/56878177/just-take-the-dog-damn-picture-already)
-- [Luna, my sweet one eared house hippo, is recovering from her surgery so well!](https://news.puppy-snuggles.com/56755299/luna-my-sweet-one-eared-house-hippo-is-recovering-from-her-surgery-so-well)
-- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
+- [Wonderful Wolfie &lpar;3yr male&rpar; needs an adopter &lpar;any US state&rpar; or foster to save his life by end of business tomorrow. Let&amp;#039;s save Wolfie together Reddit!](https://news.puppy-snuggles.com/56965572/wonderful-wolfie-3yr-male-needs-an-adopter-any-us-state-or-foster-to-save-his-life-by-end-of-business-tomorrow-lets-save-wolfie-together-reddit)
+- [Do dogs sleep on their backs in the wild, or is this a behavior that has evolved as a result of their association with humans?](https://news.puppy-snuggles.com/56965573/do-dogs-sleep-on-their-backs-in-the-wild-or-is-this-a-behavior-that-has-evolved-as-a-result-of-their-association-with-humans)
+- [Brady is all smiles today](https://news.puppy-snuggles.com/56815959/brady-is-all-smiles-today)
 - [love the smell of green grass and nature](https://news.puppy-snuggles.com/56733396/love-the-smell-of-green-grass-and-nature)
+- [Nicki My little companion waiting for me to go for a walk.](https://news.puppy-snuggles.com/56608335/nicki-my-little-companion-waiting-for-me-to-go-for-a-walk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
