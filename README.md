@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Wonderful Wolfie &lpar;3yr male&rpar; needs an adopter &lpar;any US state&rpar; or foster to save his life by end of business tomorrow. Let&amp;#039;s save Wolfie together Reddit!](https://news.puppy-snuggles.com/56965572/wonderful-wolfie-3yr-male-needs-an-adopter-any-us-state-or-foster-to-save-his-life-by-end-of-business-tomorrow-lets-save-wolfie-together-reddit)
-- [Do dogs sleep on their backs in the wild, or is this a behavior that has evolved as a result of their association with humans?](https://news.puppy-snuggles.com/56965573/do-dogs-sleep-on-their-backs-in-the-wild-or-is-this-a-behavior-that-has-evolved-as-a-result-of-their-association-with-humans)
-- [Brady is all smiles today](https://news.puppy-snuggles.com/56815959/brady-is-all-smiles-today)
-- [love the smell of green grass and nature](https://news.puppy-snuggles.com/56733396/love-the-smell-of-green-grass-and-nature)
-- [Nicki My little companion waiting for me to go for a walk.](https://news.puppy-snuggles.com/56608335/nicki-my-little-companion-waiting-for-me-to-go-for-a-walk)
+- [Celebrated my sons 9th birthday over the weekend🥳💕](https://news.puppy-snuggles.com/11658812/celebrated-my-sons-9th-birthday-over-the-weekend)
+- [aren&amp;#039;t they cute? 🥰](https://news.puppy-snuggles.com/11658811/arent-they-cute)
+- [My doxie just loves to smile for taking pictures! &lpar;not an edited pic&rpar;](https://news.puppy-snuggles.com/11650804/my-doxie-just-loves-to-smile-for-taking-pictures-not-an-edited-pic)
+- [Wanted to show you my old girls&amp;#039; big smile.](https://news.puppy-snuggles.com/11650799/wanted-to-show-you-my-old-girls-big-smile)
+- [This yawn looks like a big smile](https://news.puppy-snuggles.com/11650798/this-yawn-looks-like-a-big-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
