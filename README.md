@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why Would You Not Add a .gitignore File?](https://www.reddit.com/r/git/comments/1cyvpw1/why_would_you_not_add_a_gitignore_file/l5cijkq/)
 - [/u/joehx on If aliens exist, what do you think would be the primary reason they haven&#39;t visited earth yet?](https://www.reddit.com/r/AskReddit/comments/1cxddzt/if_aliens_exist_what_do_you_think_would_be_the/l53gnok/)
 - [/u/joehx on What&#39;s something that made you think you might not be a normal person?](https://www.reddit.com/r/AskMen/comments/1cuyovi/whats_something_that_made_you_think_you_might_not/l4mmmlv/)
 - [What are some really good nonfiction books that AREN&#39;T self-help books?](https://www.reddit.com/r/AskReddit/comments/1ctbyc4/what_are_some_really_good_nonfiction_books_that/)
 - [/u/joehx on Chase Freedom Flex Amazon 5x refund results in only -1x](https://www.reddit.com/r/CreditCards/comments/1csn7xg/chase_freedom_flex_amazon_5x_refund_results_in/l47niwg/)
-- [Get a $100 Amazon Gift Card with purchase of the new Google Pixel 8a &lpar;ends 5/19/2024&rpar;](https://www.reddit.com/r/u_joehx/comments/1cs1kgb/get_a_100_amazon_gift_card_with_purchase_of_the/)
 <!-- REDDIT:END -->
