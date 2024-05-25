@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Celebrated my sons 9th birthday over the weekend🥳💕](https://news.puppy-snuggles.com/11658812/celebrated-my-sons-9th-birthday-over-the-weekend)
-- [aren&amp;#039;t they cute? 🥰](https://news.puppy-snuggles.com/11658811/arent-they-cute)
-- [My doxie just loves to smile for taking pictures! &lpar;not an edited pic&rpar;](https://news.puppy-snuggles.com/11650804/my-doxie-just-loves-to-smile-for-taking-pictures-not-an-edited-pic)
-- [Wanted to show you my old girls&amp;#039; big smile.](https://news.puppy-snuggles.com/11650799/wanted-to-show-you-my-old-girls-big-smile)
-- [This yawn looks like a big smile](https://news.puppy-snuggles.com/11650798/this-yawn-looks-like-a-big-smile)
+- [Dog names. Go!](https://news.puppy-snuggles.com/56231144/dog-names-go)
+- [My dog gave birth](https://news.puppy-snuggles.com/43752750/my-dog-gave-birth)
+- [More and more like a bear now!](https://news.puppy-snuggles.com/43752749/more-and-more-like-a-bear-now)
+- [I just adopted my new baby boy Bruno! 🐶❤️](https://news.puppy-snuggles.com/43752747/i-just-adopted-my-new-baby-boy-bruno)
+- [Update on my little mystery breed butthead. He’s growing fast.](https://news.puppy-snuggles.com/43752752/update-on-my-little-mystery-breed-butthead-hes-growing-fast)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
