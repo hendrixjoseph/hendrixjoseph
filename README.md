@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog names. Go!](https://news.puppy-snuggles.com/56231144/dog-names-go)
-- [My dog gave birth](https://news.puppy-snuggles.com/43752750/my-dog-gave-birth)
-- [More and more like a bear now!](https://news.puppy-snuggles.com/43752749/more-and-more-like-a-bear-now)
-- [I just adopted my new baby boy Bruno! 🐶❤️](https://news.puppy-snuggles.com/43752747/i-just-adopted-my-new-baby-boy-bruno)
-- [Update on my little mystery breed butthead. He’s growing fast.](https://news.puppy-snuggles.com/43752752/update-on-my-little-mystery-breed-butthead-hes-growing-fast)
+- [My old girl &lpar;Stella&rpar; crossed the Rainbow Bridge](https://news.puppy-snuggles.com/57144117/my-old-girl-stella-crossed-the-rainbow-bridge)
+- [Saying goodbye](https://news.puppy-snuggles.com/55239497/saying-goodbye)
+- [What kind of dog do I have?](https://news.puppy-snuggles.com/55239498/what-kind-of-dog-do-i-have)
+- [My dog has always suckled his toys, 8 years old and still at it.](https://news.puppy-snuggles.com/55131866/my-dog-has-always-suckled-his-toys-8-years-old-and-still-at-it)
+- [Show me your sleeping cuddle buddy! 😍](https://news.puppy-snuggles.com/55131859/show-me-your-sleeping-cuddle-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
