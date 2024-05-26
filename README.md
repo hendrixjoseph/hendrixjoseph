@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on If I have a feature branch checked out locally and then I view the same branch in my remote repo and I see differences. How come when I do a git pull it tells me already up to date?](https://www.reddit.com/r/git/comments/1d0knhn/if_i_have_a_feature_branch_checked_out_locally/l5np8ut/)
 - [/u/joehx on Priorities when working in a software company](https://www.reddit.com/r/git/comments/1czdmeq/priorities_when_working_in_a_software_company/l5ikpa1/)
 - [/u/joehx on Why Would You Not Add a .gitignore File?](https://www.reddit.com/r/git/comments/1cyvpw1/why_would_you_not_add_a_gitignore_file/l5gflbb/)
 - [/u/joehx on Why Would You Not Add a .gitignore File?](https://www.reddit.com/r/git/comments/1cyvpw1/why_would_you_not_add_a_gitignore_file/l5cijkq/)
 - [/u/joehx on If aliens exist, what do you think would be the primary reason they haven&#39;t visited earth yet?](https://www.reddit.com/r/AskReddit/comments/1cxddzt/if_aliens_exist_what_do_you_think_would_be_the/l53gnok/)
-- [/u/joehx on What&#39;s something that made you think you might not be a normal person?](https://www.reddit.com/r/AskMen/comments/1cuyovi/whats_something_that_made_you_think_you_might_not/l4mmmlv/)
 <!-- REDDIT:END -->
