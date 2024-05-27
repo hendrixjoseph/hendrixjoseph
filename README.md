@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My old girl &lpar;Stella&rpar; crossed the Rainbow Bridge](https://news.puppy-snuggles.com/57144117/my-old-girl-stella-crossed-the-rainbow-bridge)
-- [Saying goodbye](https://news.puppy-snuggles.com/55239497/saying-goodbye)
-- [What kind of dog do I have?](https://news.puppy-snuggles.com/55239498/what-kind-of-dog-do-i-have)
-- [My dog has always suckled his toys, 8 years old and still at it.](https://news.puppy-snuggles.com/55131866/my-dog-has-always-suckled-his-toys-8-years-old-and-still-at-it)
-- [Show me your sleeping cuddle buddy! 😍](https://news.puppy-snuggles.com/55131859/show-me-your-sleeping-cuddle-buddy)
+- [Show me your dog’s online dating profile picture if doggy dating were to exist](https://news.puppy-snuggles.com/57228474/show-me-your-dogs-online-dating-profile-picture-if-doggy-dating-were-to-exist)
+- [Show me pictures of your dog sleeping with a pillow](https://news.puppy-snuggles.com/57228472/show-me-pictures-of-your-dog-sleeping-with-a-pillow)
+- [It’s the weekend! Our smiling puppers from Sara Morocco](https://news.puppy-snuggles.com/57228473/its-the-weekend-our-smiling-puppers-from-sara-morocco)
+- [Happy BIG 1-0 MAGY! You’re the sweetest old lady ever! &amp;amp;lt;3](https://news.puppy-snuggles.com/57228475/happy-big-1-0-magy-youre-the-sweetest-old-lady-ever-lt3)
+- [This dipshit is turning 17 soon. He has a heart issue, doesn&amp;#039;t hear much and is slowing down, but the &amp;amp;quot;get off my lawn&amp;amp;quot; is too strong. He is afraid of mosquitoes, but wanted to fight a wild boar a few days ago. Bane of many an unwanted rodent. Chemical warfare farts. That&amp;#039;s all, carry on.](https://news.puppy-snuggles.com/57228477/this-dipshit-is-turning-17-soon-he-has-a-heart-issue-doesnt-hear-much-and-is-slowing-down-but-the-quotget-off-my-lawnquot-is-too-strong-he-is-afraid-of-mosquitoes-but-wanted-to-fight-a-wild-boar-a-few-days-ago-bane-of-many-an-unwanted-rodent-chemical-warfare-farts-thats-all-carry-on)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
