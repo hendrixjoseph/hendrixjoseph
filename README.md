@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Boo Trump and Boo Biden. Inspired by yesterday&#39;s dissent, I now want to join the Libertarian Party and vote in 2024. How do I begin?](https://www.reddit.com/r/LibertarianPartyUSA/comments/1d1fxlc/boo_trump_and_boo_biden_inspired_by_yesterdays/l5to86x/)
 - [/u/joehx on Libertarian Party Presidential Prinary Second Round Results](https://www.reddit.com/r/Libertarian/comments/1d1b7zb/libertarian_party_presidential_prinary_second/l5syebb/)
 - [/u/joehx on If I have a feature branch checked out locally and then I view the same branch in my remote repo and I see differences. How come when I do a git pull it tells me already up to date?](https://www.reddit.com/r/git/comments/1d0knhn/if_i_have_a_feature_branch_checked_out_locally/l5np8ut/)
 - [/u/joehx on Priorities when working in a software company](https://www.reddit.com/r/git/comments/1czdmeq/priorities_when_working_in_a_software_company/l5ikpa1/)
 - [/u/joehx on Why Would You Not Add a .gitignore File?](https://www.reddit.com/r/git/comments/1cyvpw1/why_would_you_not_add_a_gitignore_file/l5gflbb/)
-- [/u/joehx on Why Would You Not Add a .gitignore File?](https://www.reddit.com/r/git/comments/1cyvpw1/why_would_you_not_add_a_gitignore_file/l5cijkq/)
 <!-- REDDIT:END -->
