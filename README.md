@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A love that has stood the test of time: the unbreakable bond with my old friend. Every white hair is a precious memory of a life together. This is a smile worth more than a thousand words, old friend of mine!](https://news.puppy-snuggles.com/57185916/a-love-that-has-stood-the-test-of-time-the-unbreakable-bond-with-my-old-friend-every-white-hair-is-a-precious-memory-of-a-life-together-this-is-a-smile-worth-more-than-a-thousand-words-old-friend-of-mine)
-- [Put my Lucy down yesterday](https://news.puppy-snuggles.com/57165290/put-my-lucy-down-yesterday)
-- [Show a picture of your dog’s morning look!](https://news.puppy-snuggles.com/57056403/show-a-picture-of-your-dogs-morning-look)
-- [Loving his trachea treats](https://news.puppy-snuggles.com/57056404/loving-his-trachea-treats)
-- [Could someone help me identify this breed?](https://news.puppy-snuggles.com/56941473/could-someone-help-me-identify-this-breed)
+- [If only love could save you, you would’ve lived forever.](https://news.puppy-snuggles.com/57458635/if-only-love-could-save-you-you-wouldve-lived-forever)
+- [Show me your seniors](https://news.puppy-snuggles.com/57458634/show-me-your-seniors)
+- [What should we name her](https://news.puppy-snuggles.com/57370352/what-should-we-name-her)
+- [Show me pictures of your dog sleeping with a pillow](https://news.puppy-snuggles.com/57228472/show-me-pictures-of-your-dog-sleeping-with-a-pillow)
+- [Daisy Mae says Hi!](https://news.puppy-snuggles.com/57123255/daisy-mae-says-hi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
