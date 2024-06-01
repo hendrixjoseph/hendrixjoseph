@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your dog with their bestie. Any bestie will do! Dog, cat, human, lizard, etc. etc.](https://news.puppy-snuggles.com/57414088/show-me-your-dog-with-their-bestie-any-bestie-will-do-dog-cat-human-lizard-etc-etc)
-- [I’m SOOO hungry, dad!](https://news.puppy-snuggles.com/57370353/im-sooo-hungry-dad)
-- [Post your dog in a funny pose](https://news.puppy-snuggles.com/57370345/post-your-dog-in-a-funny-pose)
+- [My boy✨](https://news.puppy-snuggles.com/57587604/my-boy)
+- [RIP Christmas, we had to put her down today because she couldn’t stand anymore. She was not happy because of it either.](https://news.puppy-snuggles.com/57587605/rip-christmas-we-had-to-put-her-down-today-because-she-couldnt-stand-anymore-she-was-not-happy-because-of-it-either)
+- [What’s your happy-sad dog story?](https://news.puppy-snuggles.com/57587603/whats-your-happy-sad-dog-story)
+- [Show me a picture when your dog was just a widdle pup. 🐾💕](https://news.puppy-snuggles.com/57370356/show-me-a-picture-when-your-dog-was-just-a-widdle-pup)
 - [Show me your dog’s online dating profile picture if doggy dating were to exist](https://news.puppy-snuggles.com/57228474/show-me-your-dogs-online-dating-profile-picture-if-doggy-dating-were-to-exist)
-- [Happy BIG 1-0 MAGY! You’re the sweetest old lady ever! &amp;amp;lt;3](https://news.puppy-snuggles.com/57228475/happy-big-1-0-magy-youre-the-sweetest-old-lady-ever-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
