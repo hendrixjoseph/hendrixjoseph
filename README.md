@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on LPT: If You Want to Remember Someone’s Name, Repeat It Back to Them When You First Meet](https://www.reddit.com/r/LifeProTips/comments/1d3ytup/lpt_if_you_want_to_remember_someones_name_repeat/l6bnm6t/)
-- [/u/joehx on Men, who were picky eaters as a child, how did you overcome this?](https://www.reddit.com/r/AskMen/comments/1d3i8g3/men_who_were_picky_eaters_as_a_child_how_did_you/l69kpmi/)
-- [/u/joehx on ELI5 Aside from environmental factors, how do electric vehicles compare to traditional gasoline-powered ones?](https://www.reddit.com/r/explainlikeimfive/comments/1d3femy/eli5_aside_from_environmental_factors_how_do/l67o6cz/)
-- [/u/joehx on Boo Trump and Boo Biden. Inspired by yesterday&#39;s dissent, I now want to join the Libertarian Party and vote in 2024. How do I begin?](https://www.reddit.com/r/LibertarianPartyUSA/comments/1d1fxlc/boo_trump_and_boo_biden_inspired_by_yesterdays/l5to86x/)
-- [/u/joehx on Libertarian Party Presidential Prinary Second Round Results](https://www.reddit.com/r/Libertarian/comments/1d1b7zb/libertarian_party_presidential_prinary_second/l5syebb/)
+- [/u/joehx on Trying to move away from a Target Date Fund in my Roth IRA. Are there any issues with reallocating this into individual index funds?](https://www.reddit.com/r/financialindependence/comments/1d5y28p/trying_to_move_away_from_a_target_date_fund_in_my/l6oqbhy/)
+- [/u/joehx on What is your funniest poop story?](https://www.reddit.com/r/AskReddit/comments/1d5xfax/what_is_your_funniest_poop_story/l6omm1l/)
+- [/u/joehx on What do you guys think about LGBTQ+?](https://www.reddit.com/r/AskReddit/comments/1d5w6f6/what_do_you_guys_think_about_lgbtq/l6odev2/)
+- [/u/joehx on Am I crazy or is this shady?](https://www.reddit.com/r/legaladvice/comments/1d5w7z3/am_i_crazy_or_is_this_shady/l6od00p/)
+- [/u/joehx on Probability of life starting naturally](https://www.reddit.com/r/Catholicism/comments/1d5vq38/probability_of_life_starting_naturally/l6oc8f4/)
 <!-- REDDIT:END -->
