@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy✨](https://news.puppy-snuggles.com/57587604/my-boy)
-- [RIP Christmas, we had to put her down today because she couldn’t stand anymore. She was not happy because of it either.](https://news.puppy-snuggles.com/57587605/rip-christmas-we-had-to-put-her-down-today-because-she-couldnt-stand-anymore-she-was-not-happy-because-of-it-either)
-- [What’s your happy-sad dog story?](https://news.puppy-snuggles.com/57587603/whats-your-happy-sad-dog-story)
-- [Show me a picture when your dog was just a widdle pup. 🐾💕](https://news.puppy-snuggles.com/57370356/show-me-a-picture-when-your-dog-was-just-a-widdle-pup)
-- [Show me your dog’s online dating profile picture if doggy dating were to exist](https://news.puppy-snuggles.com/57228474/show-me-your-dogs-online-dating-profile-picture-if-doggy-dating-were-to-exist)
+- [One of the best greetings ever!](https://news.puppy-snuggles.com/52912830/one-of-the-best-greetings-ever)
+- [Happy after a walk](https://news.puppy-snuggles.com/42793041/happy-after-a-walk)
+- [a dog-bird haha](https://news.puppy-snuggles.com/39715849/a-dog-bird-haha)
+- [Chillin Chowy 😎](https://news.puppy-snuggles.com/38748554/chillin-chowy)
+- [Diesel wanting to show off his smile. 😁](https://news.puppy-snuggles.com/35787959/diesel-wanting-to-show-off-his-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
