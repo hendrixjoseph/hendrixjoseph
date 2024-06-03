@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One of the best greetings ever!](https://news.puppy-snuggles.com/52912830/one-of-the-best-greetings-ever)
-- [Happy after a walk](https://news.puppy-snuggles.com/42793041/happy-after-a-walk)
-- [a dog-bird haha](https://news.puppy-snuggles.com/39715849/a-dog-bird-haha)
-- [Chillin Chowy 😎](https://news.puppy-snuggles.com/38748554/chillin-chowy)
-- [Diesel wanting to show off his smile. 😁](https://news.puppy-snuggles.com/35787959/diesel-wanting-to-show-off-his-smile)
+- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
+- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
+- [Just picked up my baby!! Name recommendations?](https://news.puppy-snuggles.com/57710186/just-picked-up-my-baby-name-recommendations)
+- [My Minnow](https://news.puppy-snuggles.com/57710190/my-minnow)
+- [Show me your dog photos with a bleps](https://news.puppy-snuggles.com/57710185/show-me-your-dog-photos-with-a-bleps)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
