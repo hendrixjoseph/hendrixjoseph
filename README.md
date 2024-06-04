@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
-- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
-- [Just picked up my baby!! Name recommendations?](https://news.puppy-snuggles.com/57710186/just-picked-up-my-baby-name-recommendations)
-- [My Minnow](https://news.puppy-snuggles.com/57710190/my-minnow)
-- [Show me your dog photos with a bleps](https://news.puppy-snuggles.com/57710185/show-me-your-dog-photos-with-a-bleps)
+- [Melancollie](https://news.puppy-snuggles.com/51176054/melancollie)
+- [The love of this dog is very huge and I can’t take her out of my sight until am gone.I love dogs so much](https://news.puppy-snuggles.com/46564820/the-love-of-this-dog-is-very-huge-and-i-cant-take-her-out-of-my-sight-until-am-gonei-love-dogs-so-much)
+- [My boy saw river for the first time ever](https://news.puppy-snuggles.com/33095892/my-boy-saw-river-for-the-first-time-ever)
+- [Sun bathing](https://news.puppy-snuggles.com/24381600/sun-bathing)
+- [Puppy in the snow.](https://news.puppy-snuggles.com/24347094/puppy-in-the-snow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
