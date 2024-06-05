@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Trying to move away from a Target Date Fund in my Roth IRA. Are there any issues with reallocating this into individual index funds?](https://www.reddit.com/r/financialindependence/comments/1d5y28p/trying_to_move_away_from_a_target_date_fund_in_my/l6oqbhy/)
-- [/u/joehx on What is your funniest poop story?](https://www.reddit.com/r/AskReddit/comments/1d5xfax/what_is_your_funniest_poop_story/l6omm1l/)
-- [/u/joehx on What do you guys think about LGBTQ+?](https://www.reddit.com/r/AskReddit/comments/1d5w6f6/what_do_you_guys_think_about_lgbtq/l6odev2/)
-- [/u/joehx on Am I crazy or is this shady?](https://www.reddit.com/r/legaladvice/comments/1d5w7z3/am_i_crazy_or_is_this_shady/l6od00p/)
-- [/u/joehx on Probability of life starting naturally](https://www.reddit.com/r/Catholicism/comments/1d5vq38/probability_of_life_starting_naturally/l6oc8f4/)
+- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l74bawl/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of June 03, 2024](https://www.reddit.com/r/personalfinance/comments/1d71nie/weekday_help_and_victory_thread_for_the_week_of/l74acyq/)
+- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l748itx/)
+- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l746pht/)
+- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l745x6x/)
 <!-- REDDIT:END -->
