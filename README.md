@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [May 2024 Book Reading List](https://www.joehxblog.com/may-2024-book-reading-list/)
 - [May 2024 Blog Statistics](https://www.joehxblog.com/may-2024-blog-statistics/)
 - [Get a $100 Amazon Gift Card with purchase of the new Google Pixel 8a &lpar;ends 5/19/2024&rpar;](https://www.joehxblog.com/one-hundred-dollar-amazon-gift-card-with-purchase-of-a-google-pixel-8a/)
 - [April 2024 Book Reading List](https://www.joehxblog.com/april-2024-book-reading-list/)
 - [Don&#39;t Automate Your Rituals](https://www.joehxblog.com/dont-automate-your-rituals/)
-- [How I Increased My Android Phone&#39;s Battery Life After a Grueling 14-Mile Race](https://www.joehxblog.com/how-i-increased-my-android-phones-battery-life-after-a-grueling-14-mile-race/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
