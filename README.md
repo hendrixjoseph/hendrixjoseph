@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Melancollie](https://news.puppy-snuggles.com/51176054/melancollie)
-- [The love of this dog is very huge and I can’t take her out of my sight until am gone.I love dogs so much](https://news.puppy-snuggles.com/46564820/the-love-of-this-dog-is-very-huge-and-i-cant-take-her-out-of-my-sight-until-am-gonei-love-dogs-so-much)
-- [My boy saw river for the first time ever](https://news.puppy-snuggles.com/33095892/my-boy-saw-river-for-the-first-time-ever)
-- [Sun bathing](https://news.puppy-snuggles.com/24381600/sun-bathing)
-- [Puppy in the snow.](https://news.puppy-snuggles.com/24347094/puppy-in-the-snow)
+- [Big smile 😍](https://news.puppy-snuggles.com/50073050/big-smile)
+- [Dog sitting Willow](https://news.puppy-snuggles.com/37881221/dog-sitting-willow)
+- [More pictures of the good boy](https://news.puppy-snuggles.com/36574049/more-pictures-of-the-good-boy)
+- [Hello from Bailey!](https://news.puppy-snuggles.com/34843638/hello-from-bailey)
+- [Rate my the doggo](https://news.puppy-snuggles.com/33175278/rate-my-the-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
