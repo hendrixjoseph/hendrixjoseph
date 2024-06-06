@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big smile 😍](https://news.puppy-snuggles.com/50073050/big-smile)
-- [Dog sitting Willow](https://news.puppy-snuggles.com/37881221/dog-sitting-willow)
-- [More pictures of the good boy](https://news.puppy-snuggles.com/36574049/more-pictures-of-the-good-boy)
-- [Hello from Bailey!](https://news.puppy-snuggles.com/34843638/hello-from-bailey)
-- [Rate my the doggo](https://news.puppy-snuggles.com/33175278/rate-my-the-doggo)
+- [Willow is a cutie](https://news.puppy-snuggles.com/57901560/willow-is-a-cutie)
+- [What type of dog is this](https://news.puppy-snuggles.com/57843631/what-type-of-dog-is-this)
+- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
+- [Just picked up my baby!! Name recommendations?](https://news.puppy-snuggles.com/57710186/just-picked-up-my-baby-name-recommendations)
+- [I was told to post my Winnie girl here. The joy on her face after romping in the mud!](https://news.puppy-snuggles.com/56289022/i-was-told-to-post-my-winnie-girl-here-the-joy-on-her-face-after-romping-in-the-mud)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
