@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on what if… buy and sell?](https://www.reddit.com/r/ask/comments/1d8yet8/what_if_buy_and_sell/l79qgxk/)
+- [/u/joehx on What type of chocolate is used in Forrest Gump?](https://www.reddit.com/r/AskReddit/comments/1d8yayq/what_type_of_chocolate_is_used_in_forrest_gump/l79o8oz/)
+- [/u/joehx on Is Black Hat SEO a Sin](https://www.reddit.com/r/Catholicism/comments/1d8ybw1/is_black_hat_seo_a_sin/l79nzba/)
+- [/u/joehx on what if… buy and sell?](https://www.reddit.com/r/ask/comments/1d8yet8/what_if_buy_and_sell/l79n67y/)
 - [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l74bawl/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of June 03, 2024](https://www.reddit.com/r/personalfinance/comments/1d71nie/weekday_help_and_victory_thread_for_the_week_of/l74acyq/)
-- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l748itx/)
-- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l746pht/)
-- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l745x6x/)
 <!-- REDDIT:END -->
