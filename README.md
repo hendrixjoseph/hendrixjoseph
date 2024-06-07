@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Willow is a cutie](https://news.puppy-snuggles.com/57901560/willow-is-a-cutie)
-- [What type of dog is this](https://news.puppy-snuggles.com/57843631/what-type-of-dog-is-this)
-- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
-- [Just picked up my baby!! Name recommendations?](https://news.puppy-snuggles.com/57710186/just-picked-up-my-baby-name-recommendations)
-- [I was told to post my Winnie girl here. The joy on her face after romping in the mud!](https://news.puppy-snuggles.com/56289022/i-was-told-to-post-my-winnie-girl-here-the-joy-on-her-face-after-romping-in-the-mud)
+- [Just put my best friend down](https://news.puppy-snuggles.com/57959002/just-put-my-best-friend-down)
+- [Police search for suspects after dog, 2 puppies found dead in Myrtle Beach dumpster](https://news.puppy-snuggles.com/23123111/police-search-for-suspects-after-dog-2-puppies-found-dead-in-myrtle-beach-dumpster)
+- [My big baby neighbor dog Maya. She loves some attention.](https://news.puppy-snuggles.com/23108630/my-big-baby-neighbor-dog-maya-she-loves-some-attention)
+- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
+- [Poor pooch! Swollen right eye!](https://news.puppy-snuggles.com/23013861/poor-pooch-swollen-right-eye)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
