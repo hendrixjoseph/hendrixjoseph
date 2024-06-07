@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Google Timeline for Web Maps Will Be Going Away](https://www.reddit.com/r/u_joehx/comments/1d9s6ud/google_timeline_for_web_maps_will_be_going_away/)
+- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l7dojqv/)
+- [/u/joehx on What is something small you can start doing today to better yourself?](https://www.reddit.com/r/AskReddit/comments/1d96t7l/what_is_something_small_you_can_start_doing_today/l7b7j6i/)
 - [/u/joehx on what if… buy and sell?](https://www.reddit.com/r/ask/comments/1d8yet8/what_if_buy_and_sell/l79qgxk/)
 - [/u/joehx on What type of chocolate is used in Forrest Gump?](https://www.reddit.com/r/AskReddit/comments/1d8yayq/what_type_of_chocolate_is_used_in_forrest_gump/l79o8oz/)
-- [/u/joehx on Is Black Hat SEO a Sin](https://www.reddit.com/r/Catholicism/comments/1d8ybw1/is_black_hat_seo_a_sin/l79nzba/)
-- [/u/joehx on what if… buy and sell?](https://www.reddit.com/r/ask/comments/1d8yet8/what_if_buy_and_sell/l79n67y/)
-- [/u/joehx on Chase FFlex Q2 rewards anomaly](https://www.reddit.com/r/CreditCards/comments/1d86k4p/chase_fflex_q2_rewards_anomaly/l74bawl/)
 <!-- REDDIT:END -->
