@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just put my best friend down](https://news.puppy-snuggles.com/57959002/just-put-my-best-friend-down)
-- [Police search for suspects after dog, 2 puppies found dead in Myrtle Beach dumpster](https://news.puppy-snuggles.com/23123111/police-search-for-suspects-after-dog-2-puppies-found-dead-in-myrtle-beach-dumpster)
-- [My big baby neighbor dog Maya. She loves some attention.](https://news.puppy-snuggles.com/23108630/my-big-baby-neighbor-dog-maya-she-loves-some-attention)
-- [Eazy sharing her blanket with pupper Ragnar.](https://news.puppy-snuggles.com/23059899/eazy-sharing-her-blanket-with-pupper-ragnar)
-- [Poor pooch! Swollen right eye!](https://news.puppy-snuggles.com/23013861/poor-pooch-swollen-right-eye)
+- [What type of dog is this](https://news.puppy-snuggles.com/57843631/what-type-of-dog-is-this)
+- [little bean](https://news.puppy-snuggles.com/49756192/little-bean)
+- [Some pictures of my elderly doggy❤️ isn’t she cute🥰](https://news.puppy-snuggles.com/49756191/some-pictures-of-my-elderly-doggy-isnt-she-cute)
+- [Don&amp;#039;t joke with me like that](https://news.puppy-snuggles.com/49756193/dont-joke-with-me-like-that)
+- [The love of this dog is very huge and I can’t take her out of my sight until am gone.I love dogs so much](https://news.puppy-snuggles.com/46564820/the-love-of-this-dog-is-very-huge-and-i-cant-take-her-out-of-my-sight-until-am-gonei-love-dogs-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
