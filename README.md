@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What type of dog is this](https://news.puppy-snuggles.com/57843631/what-type-of-dog-is-this)
-- [little bean](https://news.puppy-snuggles.com/49756192/little-bean)
-- [Some pictures of my elderly doggy❤️ isn’t she cute🥰](https://news.puppy-snuggles.com/49756191/some-pictures-of-my-elderly-doggy-isnt-she-cute)
-- [Don&amp;#039;t joke with me like that](https://news.puppy-snuggles.com/49756193/dont-joke-with-me-like-that)
-- [The love of this dog is very huge and I can’t take her out of my sight until am gone.I love dogs so much](https://news.puppy-snuggles.com/46564820/the-love-of-this-dog-is-very-huge-and-i-cant-take-her-out-of-my-sight-until-am-gonei-love-dogs-so-much)
+- [CHEEEEESE 😝😛😂💖](https://news.puppy-snuggles.com/58093971/cheeeeese)
+- [Scarry](https://news.puppy-snuggles.com/58018763/scarry)
+- [Today, my buddy and I celebrated our 100th walk together. We walked every day for at least 2 hours. It was hard at the beginning, but now I love our time together. We have never felt better. I think he&amp;#039;s convinced we are training for something big.](https://news.puppy-snuggles.com/57901562/today-my-buddy-and-i-celebrated-our-100th-walk-together-we-walked-every-day-for-at-least-2-hours-it-was-hard-at-the-beginning-but-now-i-love-our-time-together-we-have-never-felt-better-i-think-hes-convinced-we-are-training-for-something-big)
+- [Freya had the best day at her doggy party 😁](https://news.puppy-snuggles.com/55784518/freya-had-the-best-day-at-her-doggy-party)
+- [I wanna see your doggos with their favorite toys](https://news.puppy-snuggles.com/55484875/i-wanna-see-your-doggos-with-their-favorite-toys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
