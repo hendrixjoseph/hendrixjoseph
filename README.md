@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [CHEEEEESE 😝😛😂💖](https://news.puppy-snuggles.com/58093971/cheeeeese)
-- [Scarry](https://news.puppy-snuggles.com/58018763/scarry)
-- [Today, my buddy and I celebrated our 100th walk together. We walked every day for at least 2 hours. It was hard at the beginning, but now I love our time together. We have never felt better. I think he&amp;#039;s convinced we are training for something big.](https://news.puppy-snuggles.com/57901562/today-my-buddy-and-i-celebrated-our-100th-walk-together-we-walked-every-day-for-at-least-2-hours-it-was-hard-at-the-beginning-but-now-i-love-our-time-together-we-have-never-felt-better-i-think-hes-convinced-we-are-training-for-something-big)
-- [Freya had the best day at her doggy party 😁](https://news.puppy-snuggles.com/55784518/freya-had-the-best-day-at-her-doggy-party)
-- [I wanna see your doggos with their favorite toys](https://news.puppy-snuggles.com/55484875/i-wanna-see-your-doggos-with-their-favorite-toys)
+- [Goodbye my sweet girl](https://news.puppy-snuggles.com/58172717/goodbye-my-sweet-girl)
+- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
+- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
+- [Help me name her](https://news.puppy-snuggles.com/56013777/help-me-name-her)
+- [2 years ago today I found my best friend](https://news.puppy-snuggles.com/49714911/2-years-ago-today-i-found-my-best-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
