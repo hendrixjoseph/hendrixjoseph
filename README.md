@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is an outdoor activity that you would recommend for someone to try?](https://www.reddit.com/r/AskReddit/comments/1dcznxv/what_is_an_outdoor_activity_that_you_would/l81fau6/)
+- [/u/joehx on What&#39;s your story behind the girl who didn&#39;t like you when she first met you and then became interested in you?](https://www.reddit.com/r/AskMen/comments/1dcnb3j/whats_your_story_behind_the_girl_who_didnt_like/l7yy5h9/)
+- [/u/joehx on What do you think is better: Pride Month or Men&#39;s Mental Health Month? Why do you think so?](https://www.reddit.com/r/AskReddit/comments/1dcndft/what_do_you_think_is_better_pride_month_or_mens/l7yxq9n/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of June 10, 2024](https://www.reddit.com/r/personalfinance/comments/1dcirax/weekday_help_and_victory_thread_for_the_week_of/l7ydg9x/)
 - [/u/joehx on What&#39;s the weirdest red flag you&#39;ve had in a relationship?](https://www.reddit.com/r/ask/comments/1dbcig3/whats_the_weirdest_red_flag_youve_had_in_a/l7qu1a7/)
-- [/u/joehx on Terminated from my last role. Hireright background check for the new employer](https://www.reddit.com/r/recruitinghell/comments/1db8xao/terminated_from_my_last_role_hireright_background/l7pkdhn/)
-- [/u/joehx on Even if a soft inquiry does not effect your credit score, will it still effect the probability that another company will accept your application?](https://www.reddit.com/r/CreditCards/comments/1db9bns/even_if_a_soft_inquiry_does_not_effect_your/l7pillp/)
-- [/u/joehx on Do I have to return item that cashier forgot to ring up](https://www.reddit.com/r/Catholicism/comments/1dar1t3/do_i_have_to_return_item_that_cashier_forgot_to/l7mclk9/)
-- [/u/joehx on Do I have to return item that cashier forgot to ring up](https://www.reddit.com/r/Catholicism/comments/1dar1t3/do_i_have_to_return_item_that_cashier_forgot_to/l7m6p54/)
 <!-- REDDIT:END -->
