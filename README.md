@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye my sweet girl](https://news.puppy-snuggles.com/58172717/goodbye-my-sweet-girl)
-- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
-- [I love car rides!](https://news.puppy-snuggles.com/57710187/i-love-car-rides)
-- [Help me name her](https://news.puppy-snuggles.com/56013777/help-me-name-her)
-- [2 years ago today I found my best friend](https://news.puppy-snuggles.com/49714911/2-years-ago-today-i-found-my-best-friend)
+- [This is the face Bessie makes when you scratch her lower back.](https://news.puppy-snuggles.com/58152389/this-is-the-face-bessie-makes-when-you-scratch-her-lower-back)
+- [Lil Miz Boots](https://news.puppy-snuggles.com/57123258/lil-miz-boots)
+- [National Rescue Dog day, let’s see all those lovely rescues!](https://news.puppy-snuggles.com/56878176/national-rescue-dog-day-lets-see-all-those-lovely-rescues)
+- [Just wanted to share our new boy!](https://news.puppy-snuggles.com/55840306/just-wanted-to-share-our-new-boy)
+- [look at that smile 🥲 say hi Reese !!!](https://news.puppy-snuggles.com/55414438/look-at-that-smile-say-hi-reese)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
