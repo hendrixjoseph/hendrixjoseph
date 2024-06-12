@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is the face Bessie makes when you scratch her lower back.](https://news.puppy-snuggles.com/58152389/this-is-the-face-bessie-makes-when-you-scratch-her-lower-back)
-- [Lil Miz Boots](https://news.puppy-snuggles.com/57123258/lil-miz-boots)
-- [National Rescue Dog day, let’s see all those lovely rescues!](https://news.puppy-snuggles.com/56878176/national-rescue-dog-day-lets-see-all-those-lovely-rescues)
-- [Just wanted to share our new boy!](https://news.puppy-snuggles.com/55840306/just-wanted-to-share-our-new-boy)
-- [look at that smile 🥲 say hi Reese !!!](https://news.puppy-snuggles.com/55414438/look-at-that-smile-say-hi-reese)
+- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
+- [Two other Halloween costumes…my handsome Harvey 😂](https://news.puppy-snuggles.com/58284171/two-other-halloween-costumesmy-handsome-harvey)
+- [My buddy crossed the Rainbow Bridge today.](https://news.puppy-snuggles.com/58284170/my-buddy-crossed-the-rainbow-bridge-today)
+- [Show me your dogs during or after bath time lol 😂](https://news.puppy-snuggles.com/58018762/show-me-your-dogs-during-or-after-bath-time-lol)
+- [My little Dolly.](https://news.puppy-snuggles.com/57766363/my-little-dolly)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
