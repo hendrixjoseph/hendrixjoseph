@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Just memories proposed by my phone this morning. That old baby girl has been gone for 2 months now](https://news.puppy-snuggles.com/58355542/just-memories-proposed-by-my-phone-this-morning-that-old-baby-girl-has-been-gone-for-2-months-now)
 - [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
-- [Two other Halloween costumes…my handsome Harvey 😂](https://news.puppy-snuggles.com/58284171/two-other-halloween-costumesmy-handsome-harvey)
-- [My buddy crossed the Rainbow Bridge today.](https://news.puppy-snuggles.com/58284170/my-buddy-crossed-the-rainbow-bridge-today)
-- [Show me your dogs during or after bath time lol 😂](https://news.puppy-snuggles.com/58018762/show-me-your-dogs-during-or-after-bath-time-lol)
-- [My little Dolly.](https://news.puppy-snuggles.com/57766363/my-little-dolly)
+- [What dog breed could this be?](https://news.puppy-snuggles.com/58284174/what-dog-breed-could-this-be)
+- [A together forever tribute to my first dog &amp;amp;amp; best friend.](https://news.puppy-snuggles.com/58093973/a-together-forever-tribute-to-my-first-dog-amp-best-friend)
+- [I thought I was incapable of crying until he passed away yesterday.](https://news.puppy-snuggles.com/55562384/i-thought-i-was-incapable-of-crying-until-he-passed-away-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
