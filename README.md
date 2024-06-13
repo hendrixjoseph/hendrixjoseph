@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why do I want to work here?](https://www.reddit.com/r/recruitinghell/comments/1ddx4yx/why_do_i_want_to_work_here/l8cdp8d/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, June 12, 2024](https://www.reddit.com/r/financialindependence/comments/1de24zc/weekly_selfpromotion_thread_wednesday_june_12_2024/l8bngzp/)
 - [JoeHx &lpar;me&rpar; on Gumroad](https://www.reddit.com/r/u_joehx/comments/1ddoca0/joehx_me_on_gumroad/)
 - [/u/joehx on What is an outdoor activity that you would recommend for someone to try?](https://www.reddit.com/r/AskReddit/comments/1dcznxv/what_is_an_outdoor_activity_that_you_would/l81fau6/)
 - [/u/joehx on What&#39;s your story behind the girl who didn&#39;t like you when she first met you and then became interested in you?](https://www.reddit.com/r/AskMen/comments/1dcnb3j/whats_your_story_behind_the_girl_who_didnt_like/l7yy5h9/)
-- [/u/joehx on What do you think is better: Pride Month or Men&#39;s Mental Health Month? Why do you think so?](https://www.reddit.com/r/AskReddit/comments/1dcndft/what_do_you_think_is_better_pride_month_or_mens/l7yxq9n/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of June 10, 2024](https://www.reddit.com/r/personalfinance/comments/1dcirax/weekday_help_and_victory_thread_for_the_week_of/l7ydg9x/)
 <!-- REDDIT:END -->
