@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just memories proposed by my phone this morning. That old baby girl has been gone for 2 months now](https://news.puppy-snuggles.com/58355542/just-memories-proposed-by-my-phone-this-morning-that-old-baby-girl-has-been-gone-for-2-months-now)
-- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
-- [What dog breed could this be?](https://news.puppy-snuggles.com/58284174/what-dog-breed-could-this-be)
-- [A together forever tribute to my first dog &amp;amp;amp; best friend.](https://news.puppy-snuggles.com/58093973/a-together-forever-tribute-to-my-first-dog-amp-best-friend)
-- [I thought I was incapable of crying until he passed away yesterday.](https://news.puppy-snuggles.com/55562384/i-thought-i-was-incapable-of-crying-until-he-passed-away-yesterday)
+- [Show me your sleepy puppers ♡](https://news.puppy-snuggles.com/58423825/show-me-your-sleepy-puppers)
+- [Teeeeefys](https://news.puppy-snuggles.com/58372636/teeeeefys)
+- [Show me your puppy dog eyes](https://news.puppy-snuggles.com/58372634/show-me-your-puppy-dog-eyes)
+- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
+- [What are these on dogs?? What are they for?](https://news.puppy-snuggles.com/54869205/what-are-these-on-dogs-what-are-they-for)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
