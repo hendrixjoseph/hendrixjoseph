@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Is Electrum safe?](https://www.reddit.com/r/litecoin/comments/1dg2yc3/is_electrum_safe/l8nehd6/)
+- [/u/joehx on Just got this text from my sister…This is for sure an MLM no? She has fallen prey to this kind of stuff before.](https://www.reddit.com/r/antiMLM/comments/1dg2y5k/just_got_this_text_from_my_sisterthis_is_for_sure/l8nda6y/)
+- [/u/joehx on Daily FI discussion thread - Friday, June 14, 2024](https://www.reddit.com/r/financialindependence/comments/1dfmfj1/daily_fi_discussion_thread_friday_june_14_2024/l8nci5d/)
 - [/u/joehx on Why do I want to work here?](https://www.reddit.com/r/recruitinghell/comments/1ddx4yx/why_do_i_want_to_work_here/l8cdp8d/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, June 12, 2024](https://www.reddit.com/r/financialindependence/comments/1de24zc/weekly_selfpromotion_thread_wednesday_june_12_2024/l8bngzp/)
-- [JoeHx &lpar;me&rpar; on Gumroad](https://www.reddit.com/r/u_joehx/comments/1ddoca0/joehx_me_on_gumroad/)
-- [/u/joehx on What is an outdoor activity that you would recommend for someone to try?](https://www.reddit.com/r/AskReddit/comments/1dcznxv/what_is_an_outdoor_activity_that_you_would/l81fau6/)
-- [/u/joehx on What&#39;s your story behind the girl who didn&#39;t like you when she first met you and then became interested in you?](https://www.reddit.com/r/AskMen/comments/1dcnb3j/whats_your_story_behind_the_girl_who_didnt_like/l7yy5h9/)
 <!-- REDDIT:END -->
