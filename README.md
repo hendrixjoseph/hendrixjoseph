@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your sleepy puppers ♡](https://news.puppy-snuggles.com/58423825/show-me-your-sleepy-puppers)
-- [Teeeeefys](https://news.puppy-snuggles.com/58372636/teeeeefys)
-- [Show me your puppy dog eyes](https://news.puppy-snuggles.com/58372634/show-me-your-puppy-dog-eyes)
-- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
-- [What are these on dogs?? What are they for?](https://news.puppy-snuggles.com/54869205/what-are-these-on-dogs-what-are-they-for)
+- [Keep or change his name?](https://news.puppy-snuggles.com/58037034/keep-or-change-his-name)
+- [Found him on the street. What should I call him?](https://news.puppy-snuggles.com/58018759/found-him-on-the-street-what-should-i-call-him)
+- [I wanna see pics of the first time you met your pup...](https://news.puppy-snuggles.com/56965575/i-wanna-see-pics-of-the-first-time-you-met-your-pup)
+- [Post your dog’s silliest facial expressions](https://news.puppy-snuggles.com/56289020/post-your-dogs-silliest-facial-expressions)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
