@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Keep or change his name?](https://news.puppy-snuggles.com/58037034/keep-or-change-his-name)
-- [Found him on the street. What should I call him?](https://news.puppy-snuggles.com/58018759/found-him-on-the-street-what-should-i-call-him)
-- [I wanna see pics of the first time you met your pup...](https://news.puppy-snuggles.com/56965575/i-wanna-see-pics-of-the-first-time-you-met-your-pup)
-- [Post your dog’s silliest facial expressions](https://news.puppy-snuggles.com/56289020/post-your-dogs-silliest-facial-expressions)
-- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [What&amp;#039;s breed is my dog?](https://news.puppy-snuggles.com/58549095/whats-breed-is-my-dog)
+- [Post your picture of your dog sleeping](https://news.puppy-snuggles.com/58549096/post-your-picture-of-your-dog-sleeping)
+- [What dog breed could this be?](https://news.puppy-snuggles.com/58284174/what-dog-breed-could-this-be)
+- [The face she makes when she knows she&amp;#039;s been caught causing mischief](https://news.puppy-snuggles.com/56231145/the-face-she-makes-when-she-knows-shes-been-caught-causing-mischief)
+- [I took this picture of my dog and I thought it looked familiar, and then I realized…. 😂😂😂](https://news.puppy-snuggles.com/54576371/i-took-this-picture-of-my-dog-and-i-thought-it-looked-familiar-and-then-i-realized)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
