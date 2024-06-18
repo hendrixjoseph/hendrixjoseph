@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What&amp;#039;s breed is my dog?](https://news.puppy-snuggles.com/58549095/whats-breed-is-my-dog)
-- [Post your picture of your dog sleeping](https://news.puppy-snuggles.com/58549096/post-your-picture-of-your-dog-sleeping)
-- [What dog breed could this be?](https://news.puppy-snuggles.com/58284174/what-dog-breed-could-this-be)
-- [The face she makes when she knows she&amp;#039;s been caught causing mischief](https://news.puppy-snuggles.com/56231145/the-face-she-makes-when-she-knows-shes-been-caught-causing-mischief)
-- [I took this picture of my dog and I thought it looked familiar, and then I realized…. 😂😂😂](https://news.puppy-snuggles.com/54576371/i-took-this-picture-of-my-dog-and-i-thought-it-looked-familiar-and-then-i-realized)
+- [Post your dogs funniest pic](https://news.puppy-snuggles.com/58685205/post-your-dogs-funniest-pic)
+- [This is Button she is so playful and loves to snuggle, she doesn’t smile very much so this is very special](https://news.puppy-snuggles.com/58685207/this-is-button-she-is-so-playful-and-loves-to-snuggle-she-doesnt-smile-very-much-so-this-is-very-special)
+- [Let’s see those tongue photos](https://news.puppy-snuggles.com/58668017/lets-see-those-tongue-photos)
+- [pup from work- german shep or no?](https://news.puppy-snuggles.com/58618933/pup-from-work-german-shep-or-no)
+- [My puppy turned 3 today.](https://news.puppy-snuggles.com/52233138/my-puppy-turned-3-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
