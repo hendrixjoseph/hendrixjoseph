@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Is Electrum safe?](https://www.reddit.com/r/litecoin/comments/1dg2yc3/is_electrum_safe/l8nehd6/)
-- [/u/joehx on Just got this text from my sister…This is for sure an MLM no? She has fallen prey to this kind of stuff before.](https://www.reddit.com/r/antiMLM/comments/1dg2y5k/just_got_this_text_from_my_sisterthis_is_for_sure/l8nda6y/)
-- [/u/joehx on Daily FI discussion thread - Friday, June 14, 2024](https://www.reddit.com/r/financialindependence/comments/1dfmfj1/daily_fi_discussion_thread_friday_june_14_2024/l8nci5d/)
-- [/u/joehx on Why do I want to work here?](https://www.reddit.com/r/recruitinghell/comments/1ddx4yx/why_do_i_want_to_work_here/l8cdp8d/)
-- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, June 12, 2024](https://www.reddit.com/r/financialindependence/comments/1de24zc/weekly_selfpromotion_thread_wednesday_june_12_2024/l8bngzp/)
+- [/u/joehx on How to find early stage startups as a software engineer](https://www.reddit.com/r/startups/comments/1de79dz/how_to_find_early_stage_startups_as_a_software/l8zser8/)
+- [/u/joehx on What’s the most life-changing book you’ve read that cost less than $20?](https://www.reddit.com/r/AskReddit/comments/1dhf5iu/whats_the_most_lifechanging_book_youve_read_that/l8wid39/)
+- [/u/joehx on What made you realize that you can&#39;t act like a child anymore?](https://www.reddit.com/r/AskReddit/comments/1dhf7lc/what_made_you_realize_that_you_cant_act_like_a/l8whuu0/)
+- [/u/joehx on Daily FI discussion thread - Sunday, June 16, 2024](https://www.reddit.com/r/financialindependence/comments/1dh3jwl/daily_fi_discussion_thread_sunday_june_16_2024/l8w1hdy/)
+- [/u/joehx on What common practice is actually scam that most people will not recognize?](https://www.reddit.com/r/AskReddit/comments/1dgrtnn/what_common_practice_is_actually_scam_that_most/l8ssjm6/)
 <!-- REDDIT:END -->
