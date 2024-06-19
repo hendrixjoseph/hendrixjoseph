@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on ELI5: Why do some struggle to tell left from right?](https://www.reddit.com/r/explainlikeimfive/comments/1dj3rgh/eli5_why_do_some_struggle_to_tell_left_from_right/l989q7h/)
 - [/u/joehx on How to find early stage startups as a software engineer](https://www.reddit.com/r/startups/comments/1de79dz/how_to_find_early_stage_startups_as_a_software/l8zser8/)
 - [/u/joehx on What’s the most life-changing book you’ve read that cost less than $20?](https://www.reddit.com/r/AskReddit/comments/1dhf5iu/whats_the_most_lifechanging_book_youve_read_that/l8wid39/)
 - [/u/joehx on What made you realize that you can&#39;t act like a child anymore?](https://www.reddit.com/r/AskReddit/comments/1dhf7lc/what_made_you_realize_that_you_cant_act_like_a/l8whuu0/)
 - [/u/joehx on Daily FI discussion thread - Sunday, June 16, 2024](https://www.reddit.com/r/financialindependence/comments/1dh3jwl/daily_fi_discussion_thread_sunday_june_16_2024/l8w1hdy/)
-- [/u/joehx on What common practice is actually scam that most people will not recognize?](https://www.reddit.com/r/AskReddit/comments/1dgrtnn/what_common_practice_is_actually_scam_that_most/l8ssjm6/)
 <!-- REDDIT:END -->
