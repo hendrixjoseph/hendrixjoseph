@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why am I not receiving gold from awards , as I have received awards on my multiple posts but gold is not getting credited to my account ?](https://www.reddit.com/r/ask/comments/1djk7oi/why_am_i_not_receiving_gold_from_awards_as_i_have/l9b94e1/)
 - [/u/joehx on ELI5: Why do some struggle to tell left from right?](https://www.reddit.com/r/explainlikeimfive/comments/1dj3rgh/eli5_why_do_some_struggle_to_tell_left_from_right/l989q7h/)
 - [/u/joehx on How to find early stage startups as a software engineer](https://www.reddit.com/r/startups/comments/1de79dz/how_to_find_early_stage_startups_as_a_software/l8zser8/)
 - [/u/joehx on What’s the most life-changing book you’ve read that cost less than $20?](https://www.reddit.com/r/AskReddit/comments/1dhf5iu/whats_the_most_lifechanging_book_youve_read_that/l8wid39/)
 - [/u/joehx on What made you realize that you can&#39;t act like a child anymore?](https://www.reddit.com/r/AskReddit/comments/1dhf7lc/what_made_you_realize_that_you_cant_act_like_a/l8whuu0/)
-- [/u/joehx on Daily FI discussion thread - Sunday, June 16, 2024](https://www.reddit.com/r/financialindependence/comments/1dh3jwl/daily_fi_discussion_thread_sunday_june_16_2024/l8w1hdy/)
 <!-- REDDIT:END -->
