@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s a full house today and I am in HEAVEN](https://news.puppy-snuggles.com/52845607/its-a-full-house-today-and-i-am-in-heaven)
-- [Had to say goodbye to Ben today. Wanted to show everyone what a good boy he was.](https://news.puppy-snuggles.com/48822532/had-to-say-goodbye-to-ben-today-wanted-to-show-everyone-what-a-good-boy-he-was)
-- [She really likes hiking.](https://news.puppy-snuggles.com/40617897/she-really-likes-hiking)
-- [People let me tell you bout my best friend](https://news.puppy-snuggles.com/40414387/people-let-me-tell-you-bout-my-best-friend)
-- [POV: you are trying to have dinner](https://news.puppy-snuggles.com/24531941/pov-you-are-trying-to-have-dinner)
+- [Owner of Florida dog training facility arrested for animal cruelty: report](https://news.puppy-snuggles.com/58826656/owner-of-florida-dog-training-facility-arrested-for-animal-cruelty-report)
+- [Post your dogs funniest pic](https://news.puppy-snuggles.com/58685205/post-your-dogs-funniest-pic)
+- [Let’s see those tongue photos](https://news.puppy-snuggles.com/58668017/lets-see-those-tongue-photos)
+- [My sweet little Charlie.](https://news.puppy-snuggles.com/57545082/my-sweet-little-charlie)
+- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
