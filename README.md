@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Owner of Florida dog training facility arrested for animal cruelty: report](https://news.puppy-snuggles.com/58826656/owner-of-florida-dog-training-facility-arrested-for-animal-cruelty-report)
-- [Post your dogs funniest pic](https://news.puppy-snuggles.com/58685205/post-your-dogs-funniest-pic)
+- [Belle says to have a great day!](https://news.puppy-snuggles.com/58788224/belle-says-to-have-a-great-day)
+- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
 - [Let’s see those tongue photos](https://news.puppy-snuggles.com/58668017/lets-see-those-tongue-photos)
-- [My sweet little Charlie.](https://news.puppy-snuggles.com/57545082/my-sweet-little-charlie)
-- [Odin&amp;#039;s first month at home](https://news.puppy-snuggles.com/55727222/odins-first-month-at-home)
+- [Guesses on my new rescue?](https://news.puppy-snuggles.com/58037037/guesses-on-my-new-rescue)
+- [Let’s see pics of your angry, pouty, or guilty dogs.](https://news.puppy-snuggles.com/57959000/lets-see-pics-of-your-angry-pouty-or-guilty-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
