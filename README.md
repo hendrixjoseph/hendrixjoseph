@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Belle says to have a great day!](https://news.puppy-snuggles.com/58788224/belle-says-to-have-a-great-day)
-- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
+- [My wife&amp;#039;s Wiener Pit](https://news.puppy-snuggles.com/58890074/my-wifes-wiener-pit)
+- [This is Kita. She the closest thing I have to a child.](https://news.puppy-snuggles.com/58752781/this-is-kita-she-the-closest-thing-i-have-to-a-child)
+- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
 - [Let’s see those tongue photos](https://news.puppy-snuggles.com/58668017/lets-see-those-tongue-photos)
-- [Guesses on my new rescue?](https://news.puppy-snuggles.com/58037037/guesses-on-my-new-rescue)
-- [Let’s see pics of your angry, pouty, or guilty dogs.](https://news.puppy-snuggles.com/57959000/lets-see-pics-of-your-angry-pouty-or-guilty-dogs)
+- [Rocky turns 3 months old today 🥰❤️](https://news.puppy-snuggles.com/58668018/rocky-turns-3-months-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
