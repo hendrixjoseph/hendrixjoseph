@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s the worst way to start a conversation?](https://www.reddit.com/r/AskReddit/comments/1dle30h/whats_the_worst_way_to_start_a_conversation/l9o55o2/)
+- [/u/joehx on What is your best everyday hack that makes your life easier?](https://www.reddit.com/r/AskReddit/comments/1dl4clb/what_is_your_best_everyday_hack_that_makes_your/l9o44h5/)
+- [/u/joehx on Free Ice Cream at Kroger](https://www.reddit.com/r/freebies/comments/1dkeywr/free_ice_cream_at_kroger/l9nqmqv/)
+- [testing a referral link for my book The Ultimate Cybersecurity Word Search Puzzle Book](https://www.reddit.com/r/u_joehx/comments/1dl52j5/testing_a_referral_link_for_my_book_the_ultimate/)
 - [/u/joehx on Free Ice Cream at Kroger](https://www.reddit.com/r/freebies/comments/1dkeywr/free_ice_cream_at_kroger/l9i1z02/)
-- [/u/joehx on Slurs Content Policy](https://www.reddit.com/r/AmazonMerch/comments/1dkfp2d/slurs_content_policy/l9hplqt/)
-- [/u/joehx on Free Ice Cream at Kroger](https://www.reddit.com/r/freebies/comments/1dkeywr/free_ice_cream_at_kroger/l9hpba7/)
-- [Free Ice Cream at Kroger](https://www.reddit.com/r/freebies/comments/1dkeywr/free_ice_cream_at_kroger/)
-- [/u/joehx on Which keyboard do you use?](https://www.reddit.com/r/computerscience/comments/1djy4tw/which_keyboard_do_you_use/l9e8ta1/)
 <!-- REDDIT:END -->
