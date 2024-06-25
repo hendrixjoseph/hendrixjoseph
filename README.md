@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Girl!](https://news.puppy-snuggles.com/58803463/happy-girl)
-- [Belle says to have a great day!](https://news.puppy-snuggles.com/58788224/belle-says-to-have-a-great-day)
-- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
-- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
-- [Rocky turns 3 months old today 🥰❤️](https://news.puppy-snuggles.com/58668018/rocky-turns-3-months-old-today)
+- [A love that has stood the test of time: the unbreakable bond with my old friend. Every white hair is a precious memory of a life together. This is a smile worth more than a thousand words, old friend of mine!](https://news.puppy-snuggles.com/57185916/a-love-that-has-stood-the-test-of-time-the-unbreakable-bond-with-my-old-friend-every-white-hair-is-a-precious-memory-of-a-life-together-this-is-a-smile-worth-more-than-a-thousand-words-old-friend-of-mine)
+- [Today is my birthday, I know I&amp;#039;m very sick but no one ever blessed me!](https://news.puppy-snuggles.com/36889217/today-is-my-birthday-i-know-im-very-sick-but-no-one-ever-blessed-me)
+- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
+- [When you sleepz but want treatz](https://news.puppy-snuggles.com/20312140/when-you-sleepz-but-want-treatz)
+- [YOU BROUGHT ME TO THE BEACH!?!?!?!](https://news.puppy-snuggles.com/20312134/you-brought-me-to-the-beach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
