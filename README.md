@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A love that has stood the test of time: the unbreakable bond with my old friend. Every white hair is a precious memory of a life together. This is a smile worth more than a thousand words, old friend of mine!](https://news.puppy-snuggles.com/57185916/a-love-that-has-stood-the-test-of-time-the-unbreakable-bond-with-my-old-friend-every-white-hair-is-a-precious-memory-of-a-life-together-this-is-a-smile-worth-more-than-a-thousand-words-old-friend-of-mine)
+- [Phoenix man arrested on suspicion of beating German shepherd puppy to death](https://news.puppy-snuggles.com/59285081/phoenix-man-arrested-on-suspicion-of-beating-german-shepherd-puppy-to-death)
+- [My new job has an office doggo!](https://news.puppy-snuggles.com/59283214/my-new-job-has-an-office-doggo)
+- [Just bestie things❤️](https://news.puppy-snuggles.com/58618929/just-bestie-things)
 - [Today is my birthday, I know I&amp;#039;m very sick but no one ever blessed me!](https://news.puppy-snuggles.com/36889217/today-is-my-birthday-i-know-im-very-sick-but-no-one-ever-blessed-me)
-- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
-- [When you sleepz but want treatz](https://news.puppy-snuggles.com/20312140/when-you-sleepz-but-want-treatz)
-- [YOU BROUGHT ME TO THE BEACH!?!?!?!](https://news.puppy-snuggles.com/20312134/you-brought-me-to-the-beach)
+- [Weekeeeend...Puff is very happy &lpar;OC&rpar;](https://news.puppy-snuggles.com/25781570/weekeeeendpuff-is-very-happy-oc)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
