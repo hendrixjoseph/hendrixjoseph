@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Phoenix man arrested on suspicion of beating German shepherd puppy to death](https://news.puppy-snuggles.com/59285081/phoenix-man-arrested-on-suspicion-of-beating-german-shepherd-puppy-to-death)
-- [My new job has an office doggo!](https://news.puppy-snuggles.com/59283214/my-new-job-has-an-office-doggo)
-- [Just bestie things❤️](https://news.puppy-snuggles.com/58618929/just-bestie-things)
-- [Today is my birthday, I know I&amp;#039;m very sick but no one ever blessed me!](https://news.puppy-snuggles.com/36889217/today-is-my-birthday-i-know-im-very-sick-but-no-one-ever-blessed-me)
-- [Weekeeeend...Puff is very happy &lpar;OC&rpar;](https://news.puppy-snuggles.com/25781570/weekeeeendpuff-is-very-happy-oc)
+- [Ideas on the breed of this dumpster puppy?](https://news.puppy-snuggles.com/58514431/ideas-on-the-breed-of-this-dumpster-puppy)
+- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
+- [Do dogs sleep on their backs in the wild, or is this a behavior that has evolved as a result of their association with humans?](https://news.puppy-snuggles.com/56965573/do-dogs-sleep-on-their-backs-in-the-wild-or-is-this-a-behavior-that-has-evolved-as-a-result-of-their-association-with-humans)
+- [Don&amp;#039;t guess the breed, just look at my cute dog](https://news.puppy-snuggles.com/56424043/dont-guess-the-breed-just-look-at-my-cute-dog)
+- [She’s really trying to steal my man…](https://news.puppy-snuggles.com/54576376/shes-really-trying-to-steal-my-man)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
