@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ideas on the breed of this dumpster puppy?](https://news.puppy-snuggles.com/58514431/ideas-on-the-breed-of-this-dumpster-puppy)
-- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
-- [Do dogs sleep on their backs in the wild, or is this a behavior that has evolved as a result of their association with humans?](https://news.puppy-snuggles.com/56965573/do-dogs-sleep-on-their-backs-in-the-wild-or-is-this-a-behavior-that-has-evolved-as-a-result-of-their-association-with-humans)
-- [Don&amp;#039;t guess the breed, just look at my cute dog](https://news.puppy-snuggles.com/56424043/dont-guess-the-breed-just-look-at-my-cute-dog)
-- [She’s really trying to steal my man…](https://news.puppy-snuggles.com/54576376/shes-really-trying-to-steal-my-man)
+- [Puppy butts and tiny toe beans. That&amp;#039;s all. I hope this made you happy!](https://news.puppy-snuggles.com/58872324/puppy-butts-and-tiny-toe-beans-thats-all-i-hope-this-made-you-happy)
+- [Roger](https://news.puppy-snuggles.com/54656583/roger)
+- [Black lab puppy](https://news.puppy-snuggles.com/11726149/black-lab-puppy)
+- [Hello .can you help me identify the breed of these dogs ?](https://news.puppy-snuggles.com/11717578/hello-can-you-help-me-identify-the-breed-of-these-dogs)
+- [Any idea what breed is she? &lpar;2 months old&rpar;](https://news.puppy-snuggles.com/11717577/any-idea-what-breed-is-she-2-months-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
