@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on I messed up…](https://www.reddit.com/r/DIY/comments/1dr2diq/i_messed_up/lau68y6/)
 - [/u/joehx on There are 27.6 billion chickens currently alive; if they rebelled, we would each have to fight roughly three and a half chickens. What’s your plan?](https://www.reddit.com/r/AskReddit/comments/1dmd59r/there_are_276_billion_chickens_currently_alive_if/l9yds9a/)
 - [/u/joehx on Did I hear gunshots or was it something else?](https://www.reddit.com/r/ask/comments/1dm7aby/did_i_hear_gunshots_or_was_it_something_else/l9tqfi0/)
 - [/u/joehx on [ Removed by Reddit ]](https://www.reddit.com/r/ask/comments/1dm38l1/removed_by_reddit/l9t76oe/)
 - [/u/joehx on What is your current Reddit streak?](https://www.reddit.com/r/AskReddit/comments/1dm2tnz/what_is_your_current_reddit_streak/l9sufxo/)
-- [/u/joehx on What&#39;s the worst way to start a conversation?](https://www.reddit.com/r/AskReddit/comments/1dle30h/whats_the_worst_way_to_start_a_conversation/l9o55o2/)
 <!-- REDDIT:END -->
