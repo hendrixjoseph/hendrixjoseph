@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy butts and tiny toe beans. That&amp;#039;s all. I hope this made you happy!](https://news.puppy-snuggles.com/58872324/puppy-butts-and-tiny-toe-beans-thats-all-i-hope-this-made-you-happy)
-- [Roger](https://news.puppy-snuggles.com/54656583/roger)
-- [Black lab puppy](https://news.puppy-snuggles.com/11726149/black-lab-puppy)
-- [Hello .can you help me identify the breed of these dogs ?](https://news.puppy-snuggles.com/11717578/hello-can-you-help-me-identify-the-breed-of-these-dogs)
-- [Any idea what breed is she? &lpar;2 months old&rpar;](https://news.puppy-snuggles.com/11717577/any-idea-what-breed-is-she-2-months-old)
+- [✨ Muzzled dogs aren&amp;#039;t bad dogs ✨](https://news.puppy-snuggles.com/59387962/muzzled-dogs-arent-bad-dogs)
+- [Sadie is 5 years old today](https://news.puppy-snuggles.com/59215157/sadie-is-5-years-old-today)
+- [Our beautiful girl Masha is being relieved of our earthly burdens today.](https://news.puppy-snuggles.com/59215155/our-beautiful-girl-masha-is-being-relieved-of-our-earthly-burdens-today)
+- [Need help naming our newest pup.](https://news.puppy-snuggles.com/57843629/need-help-naming-our-newest-pup)
+- [Please help me name my new bestie](https://news.puppy-snuggles.com/57228471/please-help-me-name-my-new-bestie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
