@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [✨ Muzzled dogs aren&amp;#039;t bad dogs ✨](https://news.puppy-snuggles.com/59387962/muzzled-dogs-arent-bad-dogs)
-- [Sadie is 5 years old today](https://news.puppy-snuggles.com/59215157/sadie-is-5-years-old-today)
-- [Our beautiful girl Masha is being relieved of our earthly burdens today.](https://news.puppy-snuggles.com/59215155/our-beautiful-girl-masha-is-being-relieved-of-our-earthly-burdens-today)
-- [Need help naming our newest pup.](https://news.puppy-snuggles.com/57843629/need-help-naming-our-newest-pup)
-- [Please help me name my new bestie](https://news.puppy-snuggles.com/57228471/please-help-me-name-my-new-bestie)
+- [RIP my boy](https://news.puppy-snuggles.com/59538112/rip-my-boy)
+- [Meet Amelia, a puppy from Amsterdam 🌷🇳🇱](https://news.puppy-snuggles.com/59538114/meet-amelia-a-puppy-from-amsterdam)
+- [Let’s see your sleeping beauties](https://news.puppy-snuggles.com/59538113/lets-see-your-sleeping-beauties)
+- [We just found our next family member](https://news.puppy-snuggles.com/59490103/we-just-found-our-next-family-member)
+- [Best date ever](https://news.puppy-snuggles.com/59387959/best-date-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
