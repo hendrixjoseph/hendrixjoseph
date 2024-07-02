@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP my boy](https://news.puppy-snuggles.com/59538112/rip-my-boy)
-- [Meet Amelia, a puppy from Amsterdam 🌷🇳🇱](https://news.puppy-snuggles.com/59538114/meet-amelia-a-puppy-from-amsterdam)
-- [Let’s see your sleeping beauties](https://news.puppy-snuggles.com/59538113/lets-see-your-sleeping-beauties)
-- [We just found our next family member](https://news.puppy-snuggles.com/59490103/we-just-found-our-next-family-member)
-- [Best date ever](https://news.puppy-snuggles.com/59387959/best-date-ever)
+- [Rip to my bestfriend. My last part of my childhood is now gone 🕊️](https://news.puppy-snuggles.com/59589306/rip-to-my-bestfriend-my-last-part-of-my-childhood-is-now-gone)
+- [snoopy?](https://news.puppy-snuggles.com/59589305/snoopy)
+- [Car ride to kayak](https://news.puppy-snuggles.com/59589307/car-ride-to-kayak)
+- [Happy Baxter coming home from the groomer.](https://news.puppy-snuggles.com/59143342/happy-baxter-coming-home-from-the-groomer)
+- [benny 😁](https://news.puppy-snuggles.com/58941574/benny)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
