@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rip to my bestfriend. My last part of my childhood is now gone 🕊️](https://news.puppy-snuggles.com/59589306/rip-to-my-bestfriend-my-last-part-of-my-childhood-is-now-gone)
-- [snoopy?](https://news.puppy-snuggles.com/59589305/snoopy)
-- [Car ride to kayak](https://news.puppy-snuggles.com/59589307/car-ride-to-kayak)
-- [Happy Baxter coming home from the groomer.](https://news.puppy-snuggles.com/59143342/happy-baxter-coming-home-from-the-groomer)
-- [benny 😁](https://news.puppy-snuggles.com/58941574/benny)
+- [First time i&amp;#039;m taking him shopping](https://news.puppy-snuggles.com/59644058/first-time-im-taking-him-shopping)
+- [A very happy girl](https://news.puppy-snuggles.com/59644056/a-very-happy-girl)
+- [RIP my dog](https://news.puppy-snuggles.com/59644055/rip-my-dog)
+- [Show me your doggos maximum relaxation](https://news.puppy-snuggles.com/59626311/show-me-your-doggos-maximum-relaxation)
+- [Sherlock turned 14 and this time people turned up!](https://news.puppy-snuggles.com/59490102/sherlock-turned-14-and-this-time-people-turned-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
