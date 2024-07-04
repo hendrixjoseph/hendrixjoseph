@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [First time i&amp;#039;m taking him shopping](https://news.puppy-snuggles.com/59644058/first-time-im-taking-him-shopping)
-- [A very happy girl](https://news.puppy-snuggles.com/59644056/a-very-happy-girl)
-- [RIP my dog](https://news.puppy-snuggles.com/59644055/rip-my-dog)
-- [Show me your doggos maximum relaxation](https://news.puppy-snuggles.com/59626311/show-me-your-doggos-maximum-relaxation)
-- [Sherlock turned 14 and this time people turned up!](https://news.puppy-snuggles.com/59490102/sherlock-turned-14-and-this-time-people-turned-up)
+- [My boyfriend got us a puppy!](https://news.puppy-snuggles.com/59698238/my-boyfriend-got-us-a-puppy)
+- [Meet Amelia, a puppy from Amsterdam 🌷🇳🇱](https://news.puppy-snuggles.com/59538114/meet-amelia-a-puppy-from-amsterdam)
+- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
+- [Just got his new collar and he&amp;#039;s loving it!](https://news.puppy-snuggles.com/58872320/just-got-his-new-collar-and-hes-loving-it)
+- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
