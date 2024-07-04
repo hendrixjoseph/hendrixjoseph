@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [Transitioning My Solo 401k from Vanguard to Fidelity](https://www.joehxblog.com/transitioning-my-solo-401k-from-vanguard-to-fidelity/)
 - [June 2024 Book Reading List](https://www.joehxblog.com/june-2024-book-reading-list/)
 - [June 2024 Blog Statistics](https://www.joehxblog.com/june-2024-blog-statistics/)
 - [I Started a Gumroad Store](https://www.joehxblog.com/i-started-a-gumroad-store/)
 - [Google Timeline for Web Maps Will Be Going Away](https://www.joehxblog.com/google-timeline-for-web-maps-will-be-going-away/)
-- [May 2024 Book Reading List](https://www.joehxblog.com/may-2024-book-reading-list/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
