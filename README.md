@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boyfriend got us a puppy!](https://news.puppy-snuggles.com/59698238/my-boyfriend-got-us-a-puppy)
-- [Meet Amelia, a puppy from Amsterdam 🌷🇳🇱](https://news.puppy-snuggles.com/59538114/meet-amelia-a-puppy-from-amsterdam)
-- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
-- [Just got his new collar and he&amp;#039;s loving it!](https://news.puppy-snuggles.com/58872320/just-got-his-new-collar-and-hes-loving-it)
-- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
+- [Post your weird-looking &lpar;but loved!&rpar; crossbreed! I’ll go first](https://news.puppy-snuggles.com/59808425/post-your-weird-looking-but-loved-crossbreed-ill-go-first)
+- [Show me your dog giving you the stare down.](https://news.puppy-snuggles.com/59772281/show-me-your-dog-giving-you-the-stare-down)
+- [Just got an oops-litter puppy from our neighbor. What should we name him? Pure Ba Shar.](https://news.puppy-snuggles.com/59772282/just-got-an-oops-litter-puppy-from-our-neighbor-what-should-we-name-him-pure-ba-shar)
+- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
+- [What is my puppy contemplating deeply?](https://news.puppy-snuggles.com/59736233/what-is-my-puppy-contemplating-deeply)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
