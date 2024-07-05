@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Is there a way to find a comment that I voted on Reddit?](https://www.reddit.com/r/ask/comments/1dv84sx/is_there_a_way_to_find_a_comment_that_i_voted_on/lbn5laj/)
+- [/u/joehx on Haven&#39;t seen a more absurd question on a job application form](https://www.reddit.com/r/recruitinghell/comments/1dvdj9n/havent_seen_a_more_absurd_question_on_a_job/lbmsn7n/)
+- [/u/joehx on Is there a way to have a sustainable/eco friendly burial and still be in line with church teaching?](https://www.reddit.com/r/Catholicism/comments/1dv9haw/is_there_a_way_to_have_a_sustainableeco_friendly/lbm0zjp/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, July 03, 2024](https://www.reddit.com/r/financialindependence/comments/1du9tm0/daily_fi_discussion_thread_wednesday_july_03_2024/lbgaqqp/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, July 03, 2024](https://www.reddit.com/r/financialindependence/comments/1du9u5d/weekly_selfpromotion_thread_wednesday_july_03_2024/lbfn5sx/)
-- [/u/joehx on What’s the color of the mirror?](https://www.reddit.com/r/AskReddit/comments/1dt3bdw/whats_the_color_of_the_mirror/lb6lyk1/)
-- [/u/joehx on I messed up…](https://www.reddit.com/r/DIY/comments/1dr2diq/i_messed_up/lau68y6/)
-- [/u/joehx on There are 27.6 billion chickens currently alive; if they rebelled, we would each have to fight roughly three and a half chickens. What’s your plan?](https://www.reddit.com/r/AskReddit/comments/1dmd59r/there_are_276_billion_chickens_currently_alive_if/l9yds9a/)
 <!-- REDDIT:END -->
