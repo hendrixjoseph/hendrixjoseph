@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post your weird-looking &lpar;but loved!&rpar; crossbreed! I’ll go first](https://news.puppy-snuggles.com/59808425/post-your-weird-looking-but-loved-crossbreed-ill-go-first)
-- [Show me your dog giving you the stare down.](https://news.puppy-snuggles.com/59772281/show-me-your-dog-giving-you-the-stare-down)
-- [Just got an oops-litter puppy from our neighbor. What should we name him? Pure Ba Shar.](https://news.puppy-snuggles.com/59772282/just-got-an-oops-litter-puppy-from-our-neighbor-what-should-we-name-him-pure-ba-shar)
-- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
-- [What is my puppy contemplating deeply?](https://news.puppy-snuggles.com/59736233/what-is-my-puppy-contemplating-deeply)
+- [what breed is my dog?](https://news.puppy-snuggles.com/59808429/what-breed-is-my-dog)
+- [Ozzy’s size differences &lpar;he’s even bigger now&rpar;](https://news.puppy-snuggles.com/32025789/ozzys-size-differences-hes-even-bigger-now)
+- [Say cheeese! 😁](https://news.puppy-snuggles.com/24545004/say-cheeese)
+- [Pet language, useful information :D](https://news.puppy-snuggles.com/23541198/pet-language-useful-information-d)
+- [Smiling boy 🥰](https://news.puppy-snuggles.com/23251505/smiling-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
