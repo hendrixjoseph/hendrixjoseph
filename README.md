@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [what breed is my dog?](https://news.puppy-snuggles.com/59808429/what-breed-is-my-dog)
-- [Ozzy’s size differences &lpar;he’s even bigger now&rpar;](https://news.puppy-snuggles.com/32025789/ozzys-size-differences-hes-even-bigger-now)
-- [Say cheeese! 😁](https://news.puppy-snuggles.com/24545004/say-cheeese)
-- [Pet language, useful information :D](https://news.puppy-snuggles.com/23541198/pet-language-useful-information-d)
-- [Smiling boy 🥰](https://news.puppy-snuggles.com/23251505/smiling-boy)
+- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
+- [I wanna see pics of the first time you met your pup...](https://news.puppy-snuggles.com/56965575/i-wanna-see-pics-of-the-first-time-you-met-your-pup)
+- [Just a good boy taking himself for a walk while it&amp;#039;s raining](https://news.puppy-snuggles.com/40123174/just-a-good-boy-taking-himself-for-a-walk-while-its-raining)
+- [Welcome Taja, a 2 year old beauty! Took her home a nearly two weeks ago now](https://news.puppy-snuggles.com/24138758/welcome-taja-a-2-year-old-beauty-took-her-home-a-nearly-two-weeks-ago-now)
+- [3rd time she&amp;#039;s done this. My Beagle has figured out how to take her sweater off with her crate so she can do her favorite activity, rolling.](https://news.puppy-snuggles.com/23397839/3rd-time-shes-done-this-my-beagle-has-figured-out-how-to-take-her-sweater-off-with-her-crate-so-she-can-do-her-favorite-activity-rolling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
