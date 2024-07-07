@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is gas lighting?](https://www.reddit.com/r/AskReddit/comments/1dwwvgo/what_is_gas_lighting/lbxp26j/)
 - [/u/joehx on What happens if a stock is to expensive?](https://www.reddit.com/r/RobinHood/comments/1dw82zo/what_happens_if_a_stock_is_to_expensive/lbtanoz/)
 - [/u/joehx on What everyday item has a hidden feature that not everyone knows about?](https://www.reddit.com/r/AskReddit/comments/1dvkb1m/what_everyday_item_has_a_hidden_feature_that_not/lbrlc7d/)
 - [/u/joehx on What is badly named, and what is a better name for it?](https://www.reddit.com/r/AskReddit/comments/1dvw2m8/what_is_badly_named_and_what_is_a_better_name_for/lbrbyll/)
 - [/u/joehx on Is there a way to find a comment that I voted on Reddit?](https://www.reddit.com/r/ask/comments/1dv84sx/is_there_a_way_to_find_a_comment_that_i_voted_on/lbn5laj/)
-- [/u/joehx on Haven&#39;t seen a more absurd question on a job application form](https://www.reddit.com/r/recruitinghell/comments/1dvdj9n/havent_seen_a_more_absurd_question_on_a_job/lbmsn7n/)
 <!-- REDDIT:END -->
