@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dogs at Polling stations.](https://news.puppy-snuggles.com/59808424/dogs-at-polling-stations)
-- [Show me your dog giving you the stare down.](https://news.puppy-snuggles.com/59772281/show-me-your-dog-giving-you-the-stare-down)
-- [Just got an oops-litter puppy from our neighbor. What should we name him? Pure Ba Shar.](https://news.puppy-snuggles.com/59772282/just-got-an-oops-litter-puppy-from-our-neighbor-what-should-we-name-him-pure-ba-shar)
-- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
-- [My sweet boy unexpectedly crossed the rainbow bridge today. The best dog I could’ve ever asked for. Cherish them. You never know what’s going to happen in life.](https://news.puppy-snuggles.com/59752977/my-sweet-boy-unexpectedly-crossed-the-rainbow-bridge-today-the-best-dog-i-couldve-ever-asked-for-cherish-them-you-never-know-whats-going-to-happen-in-life)
+- [Any name idea for our soon to be adopted son?](https://news.puppy-snuggles.com/60082555/any-name-idea-for-our-soon-to-be-adopted-son)
+- [Post your pups wearing something](https://news.puppy-snuggles.com/60025982/post-your-pups-wearing-something)
+- [Show me a ridiculous picture of your dog.](https://news.puppy-snuggles.com/59301284/show-me-a-ridiculous-picture-of-your-dog)
+- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
+- [pup from work- german shep or no?](https://news.puppy-snuggles.com/58618933/pup-from-work-german-shep-or-no)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
