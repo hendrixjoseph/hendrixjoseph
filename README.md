@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Any name idea for our soon to be adopted son?](https://news.puppy-snuggles.com/60082555/any-name-idea-for-our-soon-to-be-adopted-son)
-- [Post your pups wearing something](https://news.puppy-snuggles.com/60025982/post-your-pups-wearing-something)
-- [Show me a ridiculous picture of your dog.](https://news.puppy-snuggles.com/59301284/show-me-a-ridiculous-picture-of-your-dog)
-- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
-- [pup from work- german shep or no?](https://news.puppy-snuggles.com/58618933/pup-from-work-german-shep-or-no)
+- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
+- [My baby just crossed the rainbow bridge](https://news.puppy-snuggles.com/59264763/my-baby-just-crossed-the-rainbow-bridge)
+- [My beauty queen is ten years old.](https://news.puppy-snuggles.com/58618930/my-beauty-queen-is-ten-years-old)
+- [Brady is all smiles today](https://news.puppy-snuggles.com/56815959/brady-is-all-smiles-today)
+- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 52](https://news.puppy-snuggles.com/45807386/365-days-of-me-amp-pepperoni-day-52)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
