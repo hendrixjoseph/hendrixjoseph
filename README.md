@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
-- [My baby just crossed the rainbow bridge](https://news.puppy-snuggles.com/59264763/my-baby-just-crossed-the-rainbow-bridge)
-- [My beauty queen is ten years old.](https://news.puppy-snuggles.com/58618930/my-beauty-queen-is-ten-years-old)
-- [Brady is all smiles today](https://news.puppy-snuggles.com/56815959/brady-is-all-smiles-today)
-- [365 Days of Me &amp;amp;amp; Pepperoni ✌️ Day 52](https://news.puppy-snuggles.com/45807386/365-days-of-me-amp-pepperoni-day-52)
+- [Whiskey, the First Dog Mayor of Lakewood, Dies at 9](https://news.puppy-snuggles.com/60229767/whiskey-the-first-dog-mayor-of-lakewood-dies-at-9)
+- [Just a happy bby](https://news.puppy-snuggles.com/60230601/just-a-happy-bby)
+- [Looking for a dapper name](https://news.puppy-snuggles.com/60230600/looking-for-a-dapper-name)
+- [Should I intervene or just let my dogs mark each other&amp;#039;s spot?](https://news.puppy-snuggles.com/60230599/should-i-intervene-or-just-let-my-dogs-mark-each-others-spot)
+- [He loves to go out with me](https://news.puppy-snuggles.com/60208905/he-loves-to-go-out-with-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
