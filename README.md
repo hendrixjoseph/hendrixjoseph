@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on How to handle prospective client who keeps haggling price?](https://www.reddit.com/r/webdev/comments/1e0bwwc/how_to_handle_prospective_client_who_keeps/lclpww2/)
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, July 10, 2024](https://www.reddit.com/r/financialindependence/comments/1dzr4a3/weekly_selfpromotion_thread_wednesday_july_10_2024/lci1ab6/)
 - [&lpar;test link w/ referral tag&rpar; The Ultimate Programming Word Search Puzzle Book](https://www.reddit.com/r/u_joehx/comments/1dyap5e/test_link_w_referral_tag_the_ultimate_programming/)
 - [/u/joehx on What great show was canceled without proper justification?](https://www.reddit.com/r/AskReddit/comments/1dyaa8e/what_great_show_was_canceled_without_proper/lc7306q/)
 - [/u/joehx on What is gas lighting?](https://www.reddit.com/r/AskReddit/comments/1dwwvgo/what_is_gas_lighting/lbxp26j/)
-- [/u/joehx on What happens if a stock is to expensive?](https://www.reddit.com/r/RobinHood/comments/1dw82zo/what_happens_if_a_stock_is_to_expensive/lbtanoz/)
-- [/u/joehx on What everyday item has a hidden feature that not everyone knows about?](https://www.reddit.com/r/AskReddit/comments/1dvkb1m/what_everyday_item_has_a_hidden_feature_that_not/lbrlc7d/)
 <!-- REDDIT:END -->
