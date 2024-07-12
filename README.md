@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Whiskey, the First Dog Mayor of Lakewood, Dies at 9](https://news.puppy-snuggles.com/60229767/whiskey-the-first-dog-mayor-of-lakewood-dies-at-9)
-- [Just a happy bby](https://news.puppy-snuggles.com/60230601/just-a-happy-bby)
-- [Looking for a dapper name](https://news.puppy-snuggles.com/60230600/looking-for-a-dapper-name)
-- [Should I intervene or just let my dogs mark each other&amp;#039;s spot?](https://news.puppy-snuggles.com/60230599/should-i-intervene-or-just-let-my-dogs-mark-each-others-spot)
-- [He loves to go out with me](https://news.puppy-snuggles.com/60208905/he-loves-to-go-out-with-me)
+- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
+- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
+- [Duke didn’t make it out of the house fire](https://news.puppy-snuggles.com/59472809/duke-didnt-make-it-out-of-the-house-fire)
+- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
+- [My sweet Kona had the sweetest doggy smile](https://news.puppy-snuggles.com/57959001/my-sweet-kona-had-the-sweetest-doggy-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
