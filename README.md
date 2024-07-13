@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
-- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
-- [Duke didn’t make it out of the house fire](https://news.puppy-snuggles.com/59472809/duke-didnt-make-it-out-of-the-house-fire)
-- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
-- [My sweet Kona had the sweetest doggy smile](https://news.puppy-snuggles.com/57959001/my-sweet-kona-had-the-sweetest-doggy-smile)
+- [A Hit-and-Run Driver Killed My Dog. The Penalty? Maybe a $100 Fine.](https://news.puppy-snuggles.com/60352505/a-hit-and-run-driver-killed-my-dog-the-penalty-maybe-a-100-fine)
+- [Will when I first adopted him and now 1 month later](https://news.puppy-snuggles.com/60358082/will-when-i-first-adopted-him-and-now-1-month-later)
+- [Your dog’s favorite toy](https://news.puppy-snuggles.com/60336532/your-dogs-favorite-toy)
+- [8 months since rescuing our baby - before and after](https://news.puppy-snuggles.com/60294148/8-months-since-rescuing-our-baby-before-and-after)
+- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
