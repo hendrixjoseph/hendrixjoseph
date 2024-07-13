@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on LPT Wear a fanny pack to Amusement Parks to avoid losing items on the rides](https://www.reddit.com/r/LifeProTips/comments/1e1ktgg/lpt_wear_a_fanny_pack_to_amusement_parks_to_avoid/lcwpa32/)
+- [/u/joehx on What’s something you do that makes your friends call you Cheap?](https://www.reddit.com/r/AskMen/comments/1e1mr7y/whats_something_you_do_that_makes_your_friends/lcwll7c/)
+- [/u/joehx on Weekday Help and Victory Thread for the week of July 08, 2024](https://www.reddit.com/r/personalfinance/comments/1dy619e/weekday_help_and_victory_thread_for_the_week_of/lctqc9e/)
 - [/u/joehx on How to handle prospective client who keeps haggling price?](https://www.reddit.com/r/webdev/comments/1e0bwwc/how_to_handle_prospective_client_who_keeps/lclpww2/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, July 10, 2024](https://www.reddit.com/r/financialindependence/comments/1dzr4a3/weekly_selfpromotion_thread_wednesday_july_10_2024/lci1ab6/)
-- [&lpar;test link w/ referral tag&rpar; The Ultimate Programming Word Search Puzzle Book](https://www.reddit.com/r/u_joehx/comments/1dyap5e/test_link_w_referral_tag_the_ultimate_programming/)
-- [/u/joehx on What great show was canceled without proper justification?](https://www.reddit.com/r/AskReddit/comments/1dyaa8e/what_great_show_was_canceled_without_proper/lc7306q/)
-- [/u/joehx on What is gas lighting?](https://www.reddit.com/r/AskReddit/comments/1dwwvgo/what_is_gas_lighting/lbxp26j/)
 <!-- REDDIT:END -->
