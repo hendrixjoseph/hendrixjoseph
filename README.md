@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A Hit-and-Run Driver Killed My Dog. The Penalty? Maybe a $100 Fine.](https://news.puppy-snuggles.com/60352505/a-hit-and-run-driver-killed-my-dog-the-penalty-maybe-a-100-fine)
-- [Will when I first adopted him and now 1 month later](https://news.puppy-snuggles.com/60358082/will-when-i-first-adopted-him-and-now-1-month-later)
-- [Your dog’s favorite toy](https://news.puppy-snuggles.com/60336532/your-dogs-favorite-toy)
-- [8 months since rescuing our baby - before and after](https://news.puppy-snuggles.com/60294148/8-months-since-rescuing-our-baby-before-and-after)
-- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
+- [idk how he did it but is awesome](https://news.puppy-snuggles.com/60378581/idk-how-he-did-it-but-is-awesome)
+- [Let’s see your puppy’s best friend](https://news.puppy-snuggles.com/60294147/lets-see-your-puppys-best-friend)
+- [Just a happy bby](https://news.puppy-snuggles.com/60230601/just-a-happy-bby)
+- [Peach just stopping by to say Hi](https://news.puppy-snuggles.com/60009368/peach-just-stopping-by-to-say-hi)
+- [Can someone explain Dog behaviour?](https://news.puppy-snuggles.com/59736238/can-someone-explain-dog-behaviour)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
