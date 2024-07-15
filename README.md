@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [idk how he did it but is awesome](https://news.puppy-snuggles.com/60378581/idk-how-he-did-it-but-is-awesome)
-- [Let’s see your puppy’s best friend](https://news.puppy-snuggles.com/60294147/lets-see-your-puppys-best-friend)
-- [Just a happy bby](https://news.puppy-snuggles.com/60230601/just-a-happy-bby)
-- [Peach just stopping by to say Hi](https://news.puppy-snuggles.com/60009368/peach-just-stopping-by-to-say-hi)
-- [Can someone explain Dog behaviour?](https://news.puppy-snuggles.com/59736238/can-someone-explain-dog-behaviour)
+- [Goodbye my boy! Lucky 6th June 2015 - 14th July 2024](https://news.puppy-snuggles.com/60478896/goodbye-my-boy-lucky-6th-june-2015-14th-july-2024)
+- [Lazy Sunday](https://news.puppy-snuggles.com/60478897/lazy-sunday)
+- [Thank you for 6 beautiful years](https://news.puppy-snuggles.com/60458704/thank-you-for-6-beautiful-years)
+- [4 Years old today!](https://news.puppy-snuggles.com/60294149/4-years-old-today)
+- [Siblings ❤️](https://news.puppy-snuggles.com/60294152/siblings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
