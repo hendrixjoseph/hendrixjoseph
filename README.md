@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye my boy! Lucky 6th June 2015 - 14th July 2024](https://news.puppy-snuggles.com/60478896/goodbye-my-boy-lucky-6th-june-2015-14th-july-2024)
-- [Lazy Sunday](https://news.puppy-snuggles.com/60478897/lazy-sunday)
-- [Thank you for 6 beautiful years](https://news.puppy-snuggles.com/60458704/thank-you-for-6-beautiful-years)
-- [4 Years old today!](https://news.puppy-snuggles.com/60294149/4-years-old-today)
-- [Siblings ❤️](https://news.puppy-snuggles.com/60294152/siblings)
+- [My puppy Tupac ain’t afraid of bigger dogs 😂](https://news.puppy-snuggles.com/60561829/my-puppy-tupac-aint-afraid-of-bigger-dogs)
+- [Show me pics of your Velcro dog completely ignoring the concept of personal space](https://news.puppy-snuggles.com/59972966/show-me-pics-of-your-velcro-dog-completely-ignoring-the-concept-of-personal-space)
+- [They are good friends, they all share their bed and sleep together](https://news.puppy-snuggles.com/59178458/they-are-good-friends-they-all-share-their-bed-and-sleep-together)
+- [You gave us 16 years of love.](https://news.puppy-snuggles.com/59090850/you-gave-us-16-years-of-love)
+- [where the rescued doggies at? 🐶💕](https://news.puppy-snuggles.com/56815957/where-the-rescued-doggies-at)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
