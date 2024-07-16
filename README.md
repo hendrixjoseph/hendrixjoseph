@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on They think that an NFT has the same value as a diamond.](https://www.reddit.com/r/facepalm/comments/1e2280r/they_think_that_an_nft_has_the_same_value_as_a/lczdmsm/)
-- [/u/joehx on LPT Wear a fanny pack to Amusement Parks to avoid losing items on the rides](https://www.reddit.com/r/LifeProTips/comments/1e1ktgg/lpt_wear_a_fanny_pack_to_amusement_parks_to_avoid/lcwpa32/)
-- [/u/joehx on What’s something you do that makes your friends call you Cheap?](https://www.reddit.com/r/AskMen/comments/1e1mr7y/whats_something_you_do_that_makes_your_friends/lcwll7c/)
-- [/u/joehx on Weekday Help and Victory Thread for the week of July 08, 2024](https://www.reddit.com/r/personalfinance/comments/1dy619e/weekday_help_and_victory_thread_for_the_week_of/lctqc9e/)
-- [/u/joehx on How to handle prospective client who keeps haggling price?](https://www.reddit.com/r/webdev/comments/1e0bwwc/how_to_handle_prospective_client_who_keeps/lclpww2/)
+- [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/giveaways/comments/1e3thpg/win_either_a_copy_of_the_ultimate_cybersecurity/)
+- [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/sweepstakes/comments/1e3thf5/win_either_a_copy_of_the_ultimate_cybersecurity/)
+- [/u/joehx on Audiobooks &amp; eBooks for the week of July 14, 2024](https://www.reddit.com/r/eFreebies/comments/1e2vyyf/audiobooks_ebooks_for_the_week_of_july_14_2024/lda3128/)
+- [The Adventures of Princess - FREE until Friday, July 19, 2024](https://www.reddit.com/r/KindleFreebies/comments/1e3t8wx/the_adventures_of_princess_free_until_friday_july/)
+- [The Adventures of Niko - FREE until Friday, July 19, 2024](https://www.reddit.com/r/KindleFreebies/comments/1e3t8mk/the_adventures_of_niko_free_until_friday_july_19/)
 <!-- REDDIT:END -->
