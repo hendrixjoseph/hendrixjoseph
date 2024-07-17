@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy Tupac ain’t afraid of bigger dogs 😂](https://news.puppy-snuggles.com/60561829/my-puppy-tupac-aint-afraid-of-bigger-dogs)
-- [Show me pics of your Velcro dog completely ignoring the concept of personal space](https://news.puppy-snuggles.com/59972966/show-me-pics-of-your-velcro-dog-completely-ignoring-the-concept-of-personal-space)
-- [They are good friends, they all share their bed and sleep together](https://news.puppy-snuggles.com/59178458/they-are-good-friends-they-all-share-their-bed-and-sleep-together)
-- [You gave us 16 years of love.](https://news.puppy-snuggles.com/59090850/you-gave-us-16-years-of-love)
-- [where the rescued doggies at? 🐶💕](https://news.puppy-snuggles.com/56815957/where-the-rescued-doggies-at)
+- [Show me your sleepy puppers ♡](https://news.puppy-snuggles.com/58423825/show-me-your-sleepy-puppers)
+- [Just wanted to share Suchi’s story, a rescue on Christmas day. Hope you’ll get inspire to adopt rescue’s too.](https://news.puppy-snuggles.com/57565248/just-wanted-to-share-suchis-story-a-rescue-on-christmas-day-hope-youll-get-inspire-to-adopt-rescues-too)
+- [very happy](https://news.puppy-snuggles.com/50664630/very-happy)
+- [What should I name this pretty girl?](https://news.puppy-snuggles.com/44200289/what-should-i-name-this-pretty-girl)
+- [Say hi to Bianca ❤️](https://news.puppy-snuggles.com/41060753/say-hi-to-bianca)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
