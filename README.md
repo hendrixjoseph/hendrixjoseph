@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Weekly Self-Promotion Thread - Wednesday, July 17, 2024](https://www.reddit.com/r/financialindependence/comments/1e5dj21/weekly_selfpromotion_thread_wednesday_july_17_2024/ldlu3lu/)
 - [/u/joehx on Men of Reddit, what is the primary reason you workout?](https://www.reddit.com/r/AskMen/comments/1e4w4kj/men_of_reddit_what_is_the_primary_reason_you/lditse1/)
 - [/u/joehx on Is it normal to not belong to any caucus? If I do join one, do I have to agree with everything in their creed?](https://www.reddit.com/r/LibertarianPartyUSA/comments/1e4dt7s/is_it_normal_to_not_belong_to_any_caucus_if_i_do/lde8oo2/)
 - [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/giveaways/comments/1e3thpg/win_either_a_copy_of_the_ultimate_cybersecurity/)
 - [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/sweepstakes/comments/1e3thf5/win_either_a_copy_of_the_ultimate_cybersecurity/)
-- [/u/joehx on Audiobooks &amp; eBooks for the week of July 14, 2024](https://www.reddit.com/r/eFreebies/comments/1e2vyyf/audiobooks_ebooks_for_the_week_of_july_14_2024/lda3128/)
 <!-- REDDIT:END -->
