@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your sleepy puppers ♡](https://news.puppy-snuggles.com/58423825/show-me-your-sleepy-puppers)
-- [Just wanted to share Suchi’s story, a rescue on Christmas day. Hope you’ll get inspire to adopt rescue’s too.](https://news.puppy-snuggles.com/57565248/just-wanted-to-share-suchis-story-a-rescue-on-christmas-day-hope-youll-get-inspire-to-adopt-rescues-too)
-- [very happy](https://news.puppy-snuggles.com/50664630/very-happy)
-- [What should I name this pretty girl?](https://news.puppy-snuggles.com/44200289/what-should-i-name-this-pretty-girl)
-- [Say hi to Bianca ❤️](https://news.puppy-snuggles.com/41060753/say-hi-to-bianca)
+- [Bellevue man accused of beating dog to death, allegedly saw puppy&amp;#039;s face laughing at him during sleep episode](https://news.puppy-snuggles.com/60711961/bellevue-man-accused-of-beating-dog-to-death-allegedly-saw-puppys-face-laughing-at-him-during-sleep-episode)
+- [had to put my dog down today.](https://news.puppy-snuggles.com/60703043/had-to-put-my-dog-down-today)
+- [Show me pictures of your puppies annoying their siblings!](https://news.puppy-snuggles.com/60639586/show-me-pictures-of-your-puppies-annoying-their-siblings)
+- [Arnold went to bed waiting to go to bed.](https://news.puppy-snuggles.com/60639588/arnold-went-to-bed-waiting-to-go-to-bed)
+- [Big smile](https://news.puppy-snuggles.com/59882294/big-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
