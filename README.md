@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bellevue man accused of beating dog to death, allegedly saw puppy&amp;#039;s face laughing at him during sleep episode](https://news.puppy-snuggles.com/60711961/bellevue-man-accused-of-beating-dog-to-death-allegedly-saw-puppys-face-laughing-at-him-during-sleep-episode)
-- [had to put my dog down today.](https://news.puppy-snuggles.com/60703043/had-to-put-my-dog-down-today)
-- [Show me pictures of your puppies annoying their siblings!](https://news.puppy-snuggles.com/60639586/show-me-pictures-of-your-puppies-annoying-their-siblings)
-- [Arnold went to bed waiting to go to bed.](https://news.puppy-snuggles.com/60639588/arnold-went-to-bed-waiting-to-go-to-bed)
-- [Big smile](https://news.puppy-snuggles.com/59882294/big-smile)
+- [Please be careful of walking your dog and finding random treats on the ground](https://news.puppy-snuggles.com/60784353/please-be-careful-of-walking-your-dog-and-finding-random-treats-on-the-ground)
+- [Show me upside down pictures of your dogs](https://news.puppy-snuggles.com/60763598/show-me-upside-down-pictures-of-your-dogs)
+- [Snack boi](https://news.puppy-snuggles.com/60763600/snack-boi)
+- [Piglet](https://news.puppy-snuggles.com/58752784/piglet)
+- [my pups were both hit by a box truck last night… it was a horrible sight. I’m both devastated and traumatized. They were both 6. They loved eachother very much.](https://news.puppy-snuggles.com/30685530/my-pups-were-both-hit-by-a-box-truck-last-night-it-was-a-horrible-sight-im-both-devastated-and-traumatized-they-were-both-6-they-loved-eachother-very-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
