@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please be careful of walking your dog and finding random treats on the ground](https://news.puppy-snuggles.com/60784353/please-be-careful-of-walking-your-dog-and-finding-random-treats-on-the-ground)
-- [Show me upside down pictures of your dogs](https://news.puppy-snuggles.com/60763598/show-me-upside-down-pictures-of-your-dogs)
-- [Snack boi](https://news.puppy-snuggles.com/60763600/snack-boi)
-- [Piglet](https://news.puppy-snuggles.com/58752784/piglet)
-- [my pups were both hit by a box truck last night… it was a horrible sight. I’m both devastated and traumatized. They were both 6. They loved eachother very much.](https://news.puppy-snuggles.com/30685530/my-pups-were-both-hit-by-a-box-truck-last-night-it-was-a-horrible-sight-im-both-devastated-and-traumatized-they-were-both-6-they-loved-eachother-very-much)
+- [I have peanut butter](https://news.puppy-snuggles.com/60806076/i-have-peanut-butter)
+- [Mellow Arthur &lpar;2yr neutered 38lb&rpar; needs a hero to adopt &lpar;any US state&rpar; and save him by Wednesday evening. Let&amp;#039;s save him together Reddit!](https://news.puppy-snuggles.com/60639585/mellow-arthur-2yr-neutered-38lb-needs-a-hero-to-adopt-any-us-state-and-save-him-by-wednesday-evening-lets-save-him-together-reddit)
+- [8 weeks smile](https://news.puppy-snuggles.com/60639587/8-weeks-smile)
+- [Darla approves of her first pup cup](https://news.puppy-snuggles.com/56775395/darla-approves-of-her-first-pup-cup)
+- [This dog&amp;#039;s sense of balance is so good!](https://news.puppy-snuggles.com/48665177/this-dogs-sense-of-balance-is-so-good)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
