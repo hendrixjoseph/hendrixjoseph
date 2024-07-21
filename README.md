@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Amazon Merch and returns: can you loose money?](https://www.reddit.com/r/AmazonMerch/comments/1e7jwrt/amazon_merch_and_returns_can_you_loose_money/le0r617/)
 - [/u/joehx on How big of a role model is St Joseph to you?](https://www.reddit.com/r/Catholicism/comments/1e6sd5x/how_big_of_a_role_model_is_st_joseph_to_you/ldxd77z/)
 - [/u/joehx on Sysadmin here - do you manage your software yourself or let admins do it?](https://www.reddit.com/r/devops/comments/1e6l38a/sysadmin_here_do_you_manage_your_software/ldts8zs/)
 - [/u/joehx on &quot;Sexism doesn&#39;t exist in the future&quot; and women priests-what should I do?](https://www.reddit.com/r/Catholicism/comments/1e69yff/sexism_doesnt_exist_in_the_future_and_women/ldstse0/)
 - [/u/joehx on Weekly Self-Promotion Thread - Wednesday, July 17, 2024](https://www.reddit.com/r/financialindependence/comments/1e5dj21/weekly_selfpromotion_thread_wednesday_july_17_2024/ldlu3lu/)
-- [/u/joehx on Men of Reddit, what is the primary reason you workout?](https://www.reddit.com/r/AskMen/comments/1e4w4kj/men_of_reddit_what_is_the_primary_reason_you/lditse1/)
 <!-- REDDIT:END -->
