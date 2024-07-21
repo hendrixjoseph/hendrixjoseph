@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I have peanut butter](https://news.puppy-snuggles.com/60806076/i-have-peanut-butter)
-- [Mellow Arthur &lpar;2yr neutered 38lb&rpar; needs a hero to adopt &lpar;any US state&rpar; and save him by Wednesday evening. Let&amp;#039;s save him together Reddit!](https://news.puppy-snuggles.com/60639585/mellow-arthur-2yr-neutered-38lb-needs-a-hero-to-adopt-any-us-state-and-save-him-by-wednesday-evening-lets-save-him-together-reddit)
-- [8 weeks smile](https://news.puppy-snuggles.com/60639587/8-weeks-smile)
-- [Darla approves of her first pup cup](https://news.puppy-snuggles.com/56775395/darla-approves-of-her-first-pup-cup)
-- [This dog&amp;#039;s sense of balance is so good!](https://news.puppy-snuggles.com/48665177/this-dogs-sense-of-balance-is-so-good)
+- [my 2nd baby in his bandana ✨️](https://news.puppy-snuggles.com/60082552/my-2nd-baby-in-his-bandana)
+- [Cheeeeeese!](https://news.puppy-snuggles.com/51034751/cheeeeeese)
+- [Max is not a fan of his new dog shoes.](https://news.puppy-snuggles.com/49714917/max-is-not-a-fan-of-his-new-dog-shoes)
+- [How precious a person you must!](https://news.puppy-snuggles.com/38637709/how-precious-a-person-you-must)
+- [First time both of Mochi&amp;#039;s ears came up!! It only lasted 5 seconds...](https://news.puppy-snuggles.com/31305993/first-time-both-of-mochis-ears-came-up-it-only-lasted-5-seconds)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
