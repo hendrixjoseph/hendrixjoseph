@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my 2nd baby in his bandana ✨️](https://news.puppy-snuggles.com/60082552/my-2nd-baby-in-his-bandana)
-- [Cheeeeeese!](https://news.puppy-snuggles.com/51034751/cheeeeeese)
-- [Max is not a fan of his new dog shoes.](https://news.puppy-snuggles.com/49714917/max-is-not-a-fan-of-his-new-dog-shoes)
-- [How precious a person you must!](https://news.puppy-snuggles.com/38637709/how-precious-a-person-you-must)
-- [First time both of Mochi&amp;#039;s ears came up!! It only lasted 5 seconds...](https://news.puppy-snuggles.com/31305993/first-time-both-of-mochis-ears-came-up-it-only-lasted-5-seconds)
+- [My puppy has 6 toes.](https://news.puppy-snuggles.com/60977711/my-puppy-has-6-toes)
+- [The best girl](https://news.puppy-snuggles.com/60977714/the-best-girl)
+- [Cutting dogs hair](https://news.puppy-snuggles.com/59336790/cutting-dogs-hair)
+- [Turning down a job offer, relocation because they don&amp;#039;t want me to bring my dog. I offered to get my own apartment and pay travel costs for my dog but now I&amp;#039;m just put off by the company. My little dog survived losing his Brother Milo and he &lpar;Coffee&rpar; got me through depression. Has anyone done this?](https://news.puppy-snuggles.com/59336793/turning-down-a-job-offer-relocation-because-they-dont-want-me-to-bring-my-dog-i-offered-to-get-my-own-apartment-and-pay-travel-costs-for-my-dog-but-now-im-just-put-off-by-the-company-my-little-dog-survived-losing-his-brother-milo-and-he-coffee-got-me-through-depression-has-anyone-done-this)
+- [Rate my dog](https://news.puppy-snuggles.com/29668079/rate-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
