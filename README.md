@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My puppy has 6 toes.](https://news.puppy-snuggles.com/60977711/my-puppy-has-6-toes)
-- [The best girl](https://news.puppy-snuggles.com/60977714/the-best-girl)
-- [Cutting dogs hair](https://news.puppy-snuggles.com/59336790/cutting-dogs-hair)
-- [Turning down a job offer, relocation because they don&amp;#039;t want me to bring my dog. I offered to get my own apartment and pay travel costs for my dog but now I&amp;#039;m just put off by the company. My little dog survived losing his Brother Milo and he &lpar;Coffee&rpar; got me through depression. Has anyone done this?](https://news.puppy-snuggles.com/59336793/turning-down-a-job-offer-relocation-because-they-dont-want-me-to-bring-my-dog-i-offered-to-get-my-own-apartment-and-pay-travel-costs-for-my-dog-but-now-im-just-put-off-by-the-company-my-little-dog-survived-losing-his-brother-milo-and-he-coffee-got-me-through-depression-has-anyone-done-this)
-- [Rate my dog](https://news.puppy-snuggles.com/29668079/rate-my-dog)
+- [Had to put my baby down this morning. Fuck cancer. I love you Sofie girl. I’ll see you again. Love, dad](https://news.puppy-snuggles.com/22856248/had-to-put-my-baby-down-this-morning-fuck-cancer-i-love-you-sofie-girl-ill-see-you-again-love-dad)
+- [Let&amp;#039;s smile today!!!](https://news.puppy-snuggles.com/22098059/lets-smile-today)
+- [Rest In Peace My Sweet Sweet Boy](https://news.puppy-snuggles.com/22066872/rest-in-peace-my-sweet-sweet-boy)
+- [Waiting pawtiently for someone to tell him he is a good boy!](https://news.puppy-snuggles.com/22022868/waiting-pawtiently-for-someone-to-tell-him-he-is-a-good-boy)
+- [Alexa vs dog](https://news.puppy-snuggles.com/20143272/alexa-vs-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
