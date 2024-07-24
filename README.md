@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to put my baby down this morning. Fuck cancer. I love you Sofie girl. I’ll see you again. Love, dad](https://news.puppy-snuggles.com/22856248/had-to-put-my-baby-down-this-morning-fuck-cancer-i-love-you-sofie-girl-ill-see-you-again-love-dad)
-- [Let&amp;#039;s smile today!!!](https://news.puppy-snuggles.com/22098059/lets-smile-today)
-- [Rest In Peace My Sweet Sweet Boy](https://news.puppy-snuggles.com/22066872/rest-in-peace-my-sweet-sweet-boy)
-- [Waiting pawtiently for someone to tell him he is a good boy!](https://news.puppy-snuggles.com/22022868/waiting-pawtiently-for-someone-to-tell-him-he-is-a-good-boy)
-- [Alexa vs dog](https://news.puppy-snuggles.com/20143272/alexa-vs-dog)
+- [A little doggo blessing me](https://news.puppy-snuggles.com/60082547/a-little-doggo-blessing-me)
+- [Let&amp;#039;s see all the good dogs who were up all night protecting us from fireworks.](https://news.puppy-snuggles.com/59882289/lets-see-all-the-good-dogs-who-were-up-all-night-protecting-us-from-fireworks)
+- [Can someone explain Dog behaviour?](https://news.puppy-snuggles.com/59736238/can-someone-explain-dog-behaviour)
+- [Our beautiful girl Masha is being relieved of our earthly burdens today.](https://news.puppy-snuggles.com/59215155/our-beautiful-girl-masha-is-being-relieved-of-our-earthly-burdens-today)
+- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
