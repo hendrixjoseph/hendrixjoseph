@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A little doggo blessing me](https://news.puppy-snuggles.com/60082547/a-little-doggo-blessing-me)
-- [Let&amp;#039;s see all the good dogs who were up all night protecting us from fireworks.](https://news.puppy-snuggles.com/59882289/lets-see-all-the-good-dogs-who-were-up-all-night-protecting-us-from-fireworks)
-- [Can someone explain Dog behaviour?](https://news.puppy-snuggles.com/59736238/can-someone-explain-dog-behaviour)
-- [Our beautiful girl Masha is being relieved of our earthly burdens today.](https://news.puppy-snuggles.com/59215155/our-beautiful-girl-masha-is-being-relieved-of-our-earthly-burdens-today)
-- [Rip to my sleeping companion💀](https://news.puppy-snuggles.com/59009368/rip-to-my-sleeping-companion)
+- [My boy had his first day of daycare today and they took lots of pics :,&rpar;](https://news.puppy-snuggles.com/60763599/my-boy-had-his-first-day-of-daycare-today-and-they-took-lots-of-pics)
+- [It’s been almost 3 weeks since Mona Lisa left us. Love this pic from her last swim. ❤️](https://news.puppy-snuggles.com/60145042/its-been-almost-3-weeks-since-mona-lisa-left-us-love-this-pic-from-her-last-swim)
+- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
+- [Birfday](https://news.puppy-snuggles.com/59505172/birfday)
+- [My Pookie Bear smiling. Great Pyrenees puppy](https://news.puppy-snuggles.com/59387961/my-pookie-bear-smiling-great-pyrenees-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
