@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy had his first day of daycare today and they took lots of pics :,&rpar;](https://news.puppy-snuggles.com/60763599/my-boy-had-his-first-day-of-daycare-today-and-they-took-lots-of-pics)
-- [It’s been almost 3 weeks since Mona Lisa left us. Love this pic from her last swim. ❤️](https://news.puppy-snuggles.com/60145042/its-been-almost-3-weeks-since-mona-lisa-left-us-love-this-pic-from-her-last-swim)
-- [Heartbreaking news](https://news.puppy-snuggles.com/60145041/heartbreaking-news)
-- [Birfday](https://news.puppy-snuggles.com/59505172/birfday)
-- [My Pookie Bear smiling. Great Pyrenees puppy](https://news.puppy-snuggles.com/59387961/my-pookie-bear-smiling-great-pyrenees-puppy)
+- [First 12 hr farm shift - his ride home….](https://news.puppy-snuggles.com/60458706/first-12-hr-farm-shift-his-ride-home)
+- [My little guy got euthanized this morning. His name was Billy Le Kid and he was almost 11 years old.](https://news.puppy-snuggles.com/60378577/my-little-guy-got-euthanized-this-morning-his-name-was-billy-le-kid-and-he-was-almost-11-years-old)
+- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
+- [Boop! Hope this brightens your day](https://news.puppy-snuggles.com/55363935/boop-hope-this-brightens-your-day)
+- [pie](https://news.puppy-snuggles.com/22501280/pie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
