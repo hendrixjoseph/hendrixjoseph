@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [First 12 hr farm shift - his ride home….](https://news.puppy-snuggles.com/60458706/first-12-hr-farm-shift-his-ride-home)
-- [My little guy got euthanized this morning. His name was Billy Le Kid and he was almost 11 years old.](https://news.puppy-snuggles.com/60378577/my-little-guy-got-euthanized-this-morning-his-name-was-billy-le-kid-and-he-was-almost-11-years-old)
-- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
-- [Boop! Hope this brightens your day](https://news.puppy-snuggles.com/55363935/boop-hope-this-brightens-your-day)
-- [pie](https://news.puppy-snuggles.com/22501280/pie)
+- [The boss is happy, no one is in danger](https://news.puppy-snuggles.com/61325175/the-boss-is-happy-no-one-is-in-danger)
+- [Let&amp;#039;s see your smiling pups](https://news.puppy-snuggles.com/57922128/lets-see-your-smiling-pups)
+- [Her dog at home even acknowledges her when he&amp;#039;s asleep](https://news.puppy-snuggles.com/55510289/her-dog-at-home-even-acknowledges-her-when-hes-asleep)
+- [My best buddy passed yesterday](https://news.puppy-snuggles.com/54313969/my-best-buddy-passed-yesterday)
+- [how would you describe this video?](https://news.puppy-snuggles.com/39292009/how-would-you-describe-this-video)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
