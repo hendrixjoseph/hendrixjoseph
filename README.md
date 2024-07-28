@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The boss is happy, no one is in danger](https://news.puppy-snuggles.com/61325175/the-boss-is-happy-no-one-is-in-danger)
-- [Let&amp;#039;s see your smiling pups](https://news.puppy-snuggles.com/57922128/lets-see-your-smiling-pups)
-- [Her dog at home even acknowledges her when he&amp;#039;s asleep](https://news.puppy-snuggles.com/55510289/her-dog-at-home-even-acknowledges-her-when-hes-asleep)
-- [My best buddy passed yesterday](https://news.puppy-snuggles.com/54313969/my-best-buddy-passed-yesterday)
-- [how would you describe this video?](https://news.puppy-snuggles.com/39292009/how-would-you-describe-this-video)
+- [Look at this dude](https://news.puppy-snuggles.com/61285059/look-at-this-dude)
+- [Puppy has 6 toes.](https://news.puppy-snuggles.com/60977712/puppy-has-6-toes)
+- [Cena crossed the rainbow bridge today](https://news.puppy-snuggles.com/60438955/cena-crossed-the-rainbow-bridge-today)
+- [Sleepy Smiles](https://news.puppy-snuggles.com/59009370/sleepy-smiles)
+- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
