@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at this dude](https://news.puppy-snuggles.com/61285059/look-at-this-dude)
-- [Puppy has 6 toes.](https://news.puppy-snuggles.com/60977712/puppy-has-6-toes)
-- [Cena crossed the rainbow bridge today](https://news.puppy-snuggles.com/60438955/cena-crossed-the-rainbow-bridge-today)
-- [Sleepy Smiles](https://news.puppy-snuggles.com/59009370/sleepy-smiles)
-- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
+- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
+- [The best girl](https://news.puppy-snuggles.com/60977714/the-best-girl)
+- [She&amp;#039;s always begging for food when we have lunch. How can I say no to this little rat?](https://news.puppy-snuggles.com/58093970/shes-always-begging-for-food-when-we-have-lunch-how-can-i-say-no-to-this-little-rat)
+- [Loving his trachea treats](https://news.puppy-snuggles.com/57056404/loving-his-trachea-treats)
+- [Apollo is happiest when he spends time with me.](https://news.puppy-snuggles.com/33175280/apollo-is-happiest-when-he-spends-time-with-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
