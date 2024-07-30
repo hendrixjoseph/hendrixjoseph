@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
-- [The best girl](https://news.puppy-snuggles.com/60977714/the-best-girl)
-- [She&amp;#039;s always begging for food when we have lunch. How can I say no to this little rat?](https://news.puppy-snuggles.com/58093970/shes-always-begging-for-food-when-we-have-lunch-how-can-i-say-no-to-this-little-rat)
-- [Loving his trachea treats](https://news.puppy-snuggles.com/57056404/loving-his-trachea-treats)
-- [Apollo is happiest when he spends time with me.](https://news.puppy-snuggles.com/33175280/apollo-is-happiest-when-he-spends-time-with-me)
+- [My dog who sadly had to be put down this year](https://news.puppy-snuggles.com/59956997/my-dog-who-sadly-had-to-be-put-down-this-year)
+- [Happy weekend from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/55033943/happy-weekend-from-all-our-smiling-puppers-here-at-sara-morocco)
+- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
+- [My boyfriend’s dog is the definition of photogenic.](https://news.puppy-snuggles.com/23957374/my-boyfriends-dog-is-the-definition-of-photogenic)
+- [what do you guys think?](https://news.puppy-snuggles.com/23740419/what-do-you-guys-think)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
