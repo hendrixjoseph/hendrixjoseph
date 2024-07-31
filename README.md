@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog who sadly had to be put down this year](https://news.puppy-snuggles.com/59956997/my-dog-who-sadly-had-to-be-put-down-this-year)
-- [Happy weekend from all our smiling puppers here at Sara Morocco](https://news.puppy-snuggles.com/55033943/happy-weekend-from-all-our-smiling-puppers-here-at-sara-morocco)
-- [Dog&amp;#039;s reaction to feedback on him from doggy daycare](https://news.puppy-snuggles.com/50940837/dogs-reaction-to-feedback-on-him-from-doggy-daycare)
-- [My boyfriend’s dog is the definition of photogenic.](https://news.puppy-snuggles.com/23957374/my-boyfriends-dog-is-the-definition-of-photogenic)
-- [what do you guys think?](https://news.puppy-snuggles.com/23740419/what-do-you-guys-think)
+- [Started a Dog Rescue, My First Saves!](https://news.puppy-snuggles.com/61602691/started-a-dog-rescue-my-first-saves)
+- [Goodbye Sweet Boy](https://news.puppy-snuggles.com/61542364/goodbye-sweet-boy)
+- [This fella always joins my girl and me on my walks. The neighbors barely remember he exists...](https://news.puppy-snuggles.com/60680763/this-fella-always-joins-my-girl-and-me-on-my-walks-the-neighbors-barely-remember-he-exists)
+- [Today, I found my dog’s brother on a DNA matching site.](https://news.puppy-snuggles.com/60208902/today-i-found-my-dogs-brother-on-a-dna-matching-site)
+- [How to help fearful dog?](https://news.puppy-snuggles.com/60009367/how-to-help-fearful-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
