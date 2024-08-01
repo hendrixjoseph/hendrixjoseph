@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on 3 year old has been telling me &quot;I don&#39;t love you, I love mommy.&quot;](https://www.reddit.com/r/daddit/comments/1eg9g6q/3_year_old_has_been_telling_me_i_dont_love_you_i/lfr8by9/)
 - [/u/joehx on ELI5: What is the purpose of paying a deductible for insurance companies?](https://www.reddit.com/r/explainlikeimfive/comments/1chsec8/eli5_what_is_the_purpose_of_paying_a_deductible/lfindr5/)
 - [/u/joehx on Why are corporates so hell bent on &quot;return to office&quot;?](https://www.reddit.com/r/ask/comments/1e9f02m/why_are_corporates_so_hell_bent_on_return_to/leh07mj/)
 - [/u/joehx on Amazon Merch and returns: can you loose money?](https://www.reddit.com/r/AmazonMerch/comments/1e7jwrt/amazon_merch_and_returns_can_you_loose_money/le0r617/)
 - [/u/joehx on How big of a role model is St Joseph to you?](https://www.reddit.com/r/Catholicism/comments/1e6sd5x/how_big_of_a_role_model_is_st_joseph_to_you/ldxd77z/)
-- [/u/joehx on Sysadmin here - do you manage your software yourself or let admins do it?](https://www.reddit.com/r/devops/comments/1e6l38a/sysadmin_here_do_you_manage_your_software/ldts8zs/)
 <!-- REDDIT:END -->
