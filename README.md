@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Started a Dog Rescue, My First Saves!](https://news.puppy-snuggles.com/61602691/started-a-dog-rescue-my-first-saves)
-- [Goodbye Sweet Boy](https://news.puppy-snuggles.com/61542364/goodbye-sweet-boy)
-- [This fella always joins my girl and me on my walks. The neighbors barely remember he exists...](https://news.puppy-snuggles.com/60680763/this-fella-always-joins-my-girl-and-me-on-my-walks-the-neighbors-barely-remember-he-exists)
-- [Today, I found my dog’s brother on a DNA matching site.](https://news.puppy-snuggles.com/60208902/today-i-found-my-dogs-brother-on-a-dna-matching-site)
-- [How to help fearful dog?](https://news.puppy-snuggles.com/60009367/how-to-help-fearful-dog)
+- [Puppy has 6 toes.](https://news.puppy-snuggles.com/60977712/puppy-has-6-toes)
+- [I am blessed with a slow eater but I still love puzzle feeders for extra stimulation](https://news.puppy-snuggles.com/60806080/i-am-blessed-with-a-slow-eater-but-i-still-love-puzzle-feeders-for-extra-stimulation)
+- [How can you resist the eyes!? I&amp;#039;d love to see your babies best &amp;#039;pretty please&amp;#039;](https://news.puppy-snuggles.com/60336528/how-can-you-resist-the-eyes-id-love-to-see-your-babies-best-pretty-please)
+- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
+- [Show me pics of your puppies vs adult!](https://news.puppy-snuggles.com/60082546/show-me-pics-of-your-puppies-vs-adult)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
