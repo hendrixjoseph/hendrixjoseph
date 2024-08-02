@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Puppy has 6 toes.](https://news.puppy-snuggles.com/60977712/puppy-has-6-toes)
-- [I am blessed with a slow eater but I still love puzzle feeders for extra stimulation](https://news.puppy-snuggles.com/60806080/i-am-blessed-with-a-slow-eater-but-i-still-love-puzzle-feeders-for-extra-stimulation)
-- [How can you resist the eyes!? I&amp;#039;d love to see your babies best &amp;#039;pretty please&amp;#039;](https://news.puppy-snuggles.com/60336528/how-can-you-resist-the-eyes-id-love-to-see-your-babies-best-pretty-please)
-- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
-- [Show me pics of your puppies vs adult!](https://news.puppy-snuggles.com/60082546/show-me-pics-of-your-puppies-vs-adult)
+- [Show me your baby’s that crossed the rainbow bridge 🌈](https://news.puppy-snuggles.com/61542365/show-me-your-babys-that-crossed-the-rainbow-bridge)
+- [show me your most recent picture of your dog](https://news.puppy-snuggles.com/60581255/show-me-your-most-recent-picture-of-your-dog)
+- [Bessie is a happy girl when she’s sunbathing.](https://news.puppy-snuggles.com/58872322/bessie-is-a-happy-girl-when-shes-sunbathing)
+- [Traveling with a service dog](https://news.puppy-snuggles.com/45929508/traveling-with-a-service-dog)
+- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
