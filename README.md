@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your baby’s that crossed the rainbow bridge 🌈](https://news.puppy-snuggles.com/61542365/show-me-your-babys-that-crossed-the-rainbow-bridge)
-- [show me your most recent picture of your dog](https://news.puppy-snuggles.com/60581255/show-me-your-most-recent-picture-of-your-dog)
-- [Bessie is a happy girl when she’s sunbathing.](https://news.puppy-snuggles.com/58872322/bessie-is-a-happy-girl-when-shes-sunbathing)
-- [Traveling with a service dog](https://news.puppy-snuggles.com/45929508/traveling-with-a-service-dog)
-- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
+- [I’m adopting one of these fellas. How big do you think they will get?](https://news.puppy-snuggles.com/61831808/im-adopting-one-of-these-fellas-how-big-do-you-think-they-will-get)
+- [Show your then and now pictures](https://news.puppy-snuggles.com/61831807/show-your-then-and-now-pictures)
+- [Cutest but have no idea what she is haha](https://news.puppy-snuggles.com/61831809/cutest-but-have-no-idea-what-she-is-haha)
+- [Farewell Diesel](https://news.puppy-snuggles.com/61831810/farewell-diesel)
+- [Adopted this guy a week ago. Was told he was a German Shepard mix.](https://news.puppy-snuggles.com/61078337/adopted-this-guy-a-week-ago-was-told-he-was-a-german-shepard-mix)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
