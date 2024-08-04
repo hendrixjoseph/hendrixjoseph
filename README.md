@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m adopting one of these fellas. How big do you think they will get?](https://news.puppy-snuggles.com/61831808/im-adopting-one-of-these-fellas-how-big-do-you-think-they-will-get)
 - [Show your then and now pictures](https://news.puppy-snuggles.com/61831807/show-your-then-and-now-pictures)
-- [Cutest but have no idea what she is haha](https://news.puppy-snuggles.com/61831809/cutest-but-have-no-idea-what-she-is-haha)
-- [Farewell Diesel](https://news.puppy-snuggles.com/61831810/farewell-diesel)
+- [Show me your dogs in their favorite silly spots! Franks is by far the tinies seat outside with the smelliest pillow he can find](https://news.puppy-snuggles.com/61708238/show-me-your-dogs-in-their-favorite-silly-spots-franks-is-by-far-the-tinies-seat-outside-with-the-smelliest-pillow-he-can-find)
 - [Adopted this guy a week ago. Was told he was a German Shepard mix.](https://news.puppy-snuggles.com/61078337/adopted-this-guy-a-week-ago-was-told-he-was-a-german-shepard-mix)
+- [Siblings ❤️](https://news.puppy-snuggles.com/60294152/siblings)
+- [My love](https://news.puppy-snuggles.com/57843630/my-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
