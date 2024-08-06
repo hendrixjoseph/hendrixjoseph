@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [any translators in the audience?](https://news.puppy-snuggles.com/61930016/any-translators-in-the-audience)
-- [When we got Pepper, her breeder warned us that she has a thing for stealing socks. She&amp;#039;s 3 now, and nothing has changed.](https://news.puppy-snuggles.com/61666594/when-we-got-pepper-her-breeder-warned-us-that-she-has-a-thing-for-stealing-socks-shes-3-now-and-nothing-has-changed)
-- [Our new friend Walter. Fresh off a re-home and having a ball](https://news.puppy-snuggles.com/61602692/our-new-friend-walter-fresh-off-a-re-home-and-having-a-ball)
-- [Give him his toy back immediately](https://news.puppy-snuggles.com/61120476/give-him-his-toy-back-immediately)
-- [Ceilidh is the happiest puppy we have ever had! 🥰](https://news.puppy-snuggles.com/61057947/ceilidh-is-the-happiest-puppy-we-have-ever-had)
+- [This Is What Happens When Your Mom&amp;#039;s A Baker and It&amp;#039;s Your 3rd Birthday 🥰](https://news.puppy-snuggles.com/62030279/this-is-what-happens-when-your-moms-a-baker-and-its-your-3rd-birthday)
+- [She’s been gone over a year now, but today would be her 13th birthday. Happy birthday, Winnie! 🎂](https://news.puppy-snuggles.com/61180360/shes-been-gone-over-a-year-now-but-today-would-be-her-13th-birthday-happy-birthday-winnie)
+- [Adopted this guy a week ago. Was told he was a German Shepard mix.](https://news.puppy-snuggles.com/61078337/adopted-this-guy-a-week-ago-was-told-he-was-a-german-shepard-mix)
+- [Who else got the snuggliest of dogs 😭❤️‍🩹](https://news.puppy-snuggles.com/61057953/who-else-got-the-snuggliest-of-dogs)
+- [8 months since rescuing our baby - before and after](https://news.puppy-snuggles.com/60294148/8-months-since-rescuing-our-baby-before-and-after)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
