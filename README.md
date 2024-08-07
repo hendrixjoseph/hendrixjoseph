@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This Is What Happens When Your Mom&amp;#039;s A Baker and It&amp;#039;s Your 3rd Birthday 🥰](https://news.puppy-snuggles.com/62030279/this-is-what-happens-when-your-moms-a-baker-and-its-your-3rd-birthday)
-- [She’s been gone over a year now, but today would be her 13th birthday. Happy birthday, Winnie! 🎂](https://news.puppy-snuggles.com/61180360/shes-been-gone-over-a-year-now-but-today-would-be-her-13th-birthday-happy-birthday-winnie)
-- [Adopted this guy a week ago. Was told he was a German Shepard mix.](https://news.puppy-snuggles.com/61078337/adopted-this-guy-a-week-ago-was-told-he-was-a-german-shepard-mix)
-- [Who else got the snuggliest of dogs 😭❤️‍🩹](https://news.puppy-snuggles.com/61057953/who-else-got-the-snuggliest-of-dogs)
-- [8 months since rescuing our baby - before and after](https://news.puppy-snuggles.com/60294148/8-months-since-rescuing-our-baby-before-and-after)
+- [How’s my teeth?? 🦷](https://news.puppy-snuggles.com/60806081/hows-my-teeth)
+- [My boyfriend got us a puppy!](https://news.puppy-snuggles.com/59698238/my-boyfriend-got-us-a-puppy)
+- [Support hard time;](https://news.puppy-snuggles.com/49821136/support-hard-time)
+- [Where in the World is the Cat?](https://news.puppy-snuggles.com/24414456/where-in-the-world-is-the-cat)
+- [this is my boy harold sitting pretty for christmas pictures!](https://news.puppy-snuggles.com/24070824/this-is-my-boy-harold-sitting-pretty-for-christmas-pictures)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
