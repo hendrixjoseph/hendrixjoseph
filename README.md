@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How’s my teeth?? 🦷](https://news.puppy-snuggles.com/60806081/hows-my-teeth)
-- [My boyfriend got us a puppy!](https://news.puppy-snuggles.com/59698238/my-boyfriend-got-us-a-puppy)
-- [Support hard time;](https://news.puppy-snuggles.com/49821136/support-hard-time)
-- [Where in the World is the Cat?](https://news.puppy-snuggles.com/24414456/where-in-the-world-is-the-cat)
-- [this is my boy harold sitting pretty for christmas pictures!](https://news.puppy-snuggles.com/24070824/this-is-my-boy-harold-sitting-pretty-for-christmas-pictures)
+- [Don’t worry, I don’t need any personal space](https://news.puppy-snuggles.com/55414437/dont-worry-i-dont-need-any-personal-space)
+- [waiting for my food 😋](https://news.puppy-snuggles.com/46564813/waiting-for-my-food)
+- [From the might we brought him home home! Almost 2 months ago now](https://news.puppy-snuggles.com/41470581/from-the-might-we-brought-him-home-home-almost-2-months-ago-now)
+- [Store owners dog does this to all customers](https://news.puppy-snuggles.com/32221606/store-owners-dog-does-this-to-all-customers)
+- [he thinks he&amp;#039;s protecting me from someone walking down the sidewalk. I feel so safe🥰](https://news.puppy-snuggles.com/24046793/he-thinks-hes-protecting-me-from-someone-walking-down-the-sidewalk-i-feel-so-safe)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
