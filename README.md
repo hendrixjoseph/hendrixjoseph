@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Don’t worry, I don’t need any personal space](https://news.puppy-snuggles.com/55414437/dont-worry-i-dont-need-any-personal-space)
-- [waiting for my food 😋](https://news.puppy-snuggles.com/46564813/waiting-for-my-food)
-- [From the might we brought him home home! Almost 2 months ago now](https://news.puppy-snuggles.com/41470581/from-the-might-we-brought-him-home-home-almost-2-months-ago-now)
-- [Store owners dog does this to all customers](https://news.puppy-snuggles.com/32221606/store-owners-dog-does-this-to-all-customers)
-- [he thinks he&amp;#039;s protecting me from someone walking down the sidewalk. I feel so safe🥰](https://news.puppy-snuggles.com/24046793/he-thinks-hes-protecting-me-from-someone-walking-down-the-sidewalk-i-feel-so-safe)
+- [Show me your dog with their bestie. Any bestie will do! Dog, cat, human, lizard, etc. etc.](https://news.puppy-snuggles.com/57414088/show-me-your-dog-with-their-bestie-any-bestie-will-do-dog-cat-human-lizard-etc-etc)
+- [Big ole mean scary Doberman afraid of a pedicure by dad](https://news.puppy-snuggles.com/52120624/big-ole-mean-scary-doberman-afraid-of-a-pedicure-by-dad)
+- [Here is how the cute dog greeted me](https://news.puppy-snuggles.com/44124354/here-is-how-the-cute-dog-greeted-me)
+- [Seriously struggling to name our new girl, please help!](https://news.puppy-snuggles.com/41506634/seriously-struggling-to-name-our-new-girl-please-help)
+- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
