@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your dog with their bestie. Any bestie will do! Dog, cat, human, lizard, etc. etc.](https://news.puppy-snuggles.com/57414088/show-me-your-dog-with-their-bestie-any-bestie-will-do-dog-cat-human-lizard-etc-etc)
-- [Big ole mean scary Doberman afraid of a pedicure by dad](https://news.puppy-snuggles.com/52120624/big-ole-mean-scary-doberman-afraid-of-a-pedicure-by-dad)
-- [Here is how the cute dog greeted me](https://news.puppy-snuggles.com/44124354/here-is-how-the-cute-dog-greeted-me)
-- [Seriously struggling to name our new girl, please help!](https://news.puppy-snuggles.com/41506634/seriously-struggling-to-name-our-new-girl-please-help)
-- [I&amp;#039;m driving](https://news.puppy-snuggles.com/41359044/im-driving)
+- [Birfday](https://news.puppy-snuggles.com/59505172/birfday)
+- [Happy Gotcha Day to Bubbles](https://news.puppy-snuggles.com/51152781/happy-gotcha-day-to-bubbles)
+- [Hi I’m Henry](https://news.puppy-snuggles.com/50805869/hi-im-henry)
+- [Dressed like Dad](https://news.puppy-snuggles.com/50263199/dressed-like-dad)
+- [My old pup &lpar;she&amp;#039;s a rescue&rpar;](https://news.puppy-snuggles.com/36613876/my-old-pup-shes-a-rescue)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
