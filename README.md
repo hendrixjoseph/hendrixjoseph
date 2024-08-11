@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Birfday](https://news.puppy-snuggles.com/59505172/birfday)
-- [Happy Gotcha Day to Bubbles](https://news.puppy-snuggles.com/51152781/happy-gotcha-day-to-bubbles)
-- [Hi I’m Henry](https://news.puppy-snuggles.com/50805869/hi-im-henry)
-- [Dressed like Dad](https://news.puppy-snuggles.com/50263199/dressed-like-dad)
-- [My old pup &lpar;she&amp;#039;s a rescue&rpar;](https://news.puppy-snuggles.com/36613876/my-old-pup-shes-a-rescue)
+- [How can you resist the eyes!? I&amp;#039;d love to see your babies best &amp;#039;pretty please&amp;#039;](https://news.puppy-snuggles.com/60336528/how-can-you-resist-the-eyes-id-love-to-see-your-babies-best-pretty-please)
+- [I’m at a restaurant and owner’s corgi selected me to sleep with :&rpar;&rpar;](https://news.puppy-snuggles.com/59937997/im-at-a-restaurant-and-owners-corgi-selected-me-to-sleep-with)
+- [Does your Mal smile? Or any other breed smile?](https://news.puppy-snuggles.com/59808428/does-your-mal-smile-or-any-other-breed-smile)
+- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
+- [Goodbye my sweet girl](https://news.puppy-snuggles.com/58172717/goodbye-my-sweet-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
