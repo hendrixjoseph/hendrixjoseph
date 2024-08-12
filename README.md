@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How can you resist the eyes!? I&amp;#039;d love to see your babies best &amp;#039;pretty please&amp;#039;](https://news.puppy-snuggles.com/60336528/how-can-you-resist-the-eyes-id-love-to-see-your-babies-best-pretty-please)
-- [I’m at a restaurant and owner’s corgi selected me to sleep with :&rpar;&rpar;](https://news.puppy-snuggles.com/59937997/im-at-a-restaurant-and-owners-corgi-selected-me-to-sleep-with)
-- [Does your Mal smile? Or any other breed smile?](https://news.puppy-snuggles.com/59808428/does-your-mal-smile-or-any-other-breed-smile)
-- [Sully always has a big smile on his face.](https://news.puppy-snuggles.com/59752979/sully-always-has-a-big-smile-on-his-face)
-- [Goodbye my sweet girl](https://news.puppy-snuggles.com/58172717/goodbye-my-sweet-girl)
+- [Share your favourite “firsts” with your dog&lpar;s&rpar;!](https://news.puppy-snuggles.com/62183810/share-your-favourite-firsts-with-your-dogs)
+- [Give me your silliest dog pictures](https://news.puppy-snuggles.com/61949148/give-me-your-silliest-dog-pictures)
+- [I wish I could text my dog all day](https://news.puppy-snuggles.com/61750071/i-wish-i-could-text-my-dog-all-day)
+- [RIP Asia. You will be forever missed](https://news.puppy-snuggles.com/61139544/rip-asia-you-will-be-forever-missed)
+- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
