@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Share your favourite “firsts” with your dog&lpar;s&rpar;!](https://news.puppy-snuggles.com/62183810/share-your-favourite-firsts-with-your-dogs)
-- [Give me your silliest dog pictures](https://news.puppy-snuggles.com/61949148/give-me-your-silliest-dog-pictures)
-- [I wish I could text my dog all day](https://news.puppy-snuggles.com/61750071/i-wish-i-could-text-my-dog-all-day)
-- [RIP Asia. You will be forever missed](https://news.puppy-snuggles.com/61139544/rip-asia-you-will-be-forever-missed)
-- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
+- [When you&amp;#039;re having such a good time, you can&amp;#039;t help but smile](https://news.puppy-snuggles.com/61460777/when-youre-having-such-a-good-time-you-cant-help-but-smile)
+- [Let’s see those dog tongues 👅](https://news.puppy-snuggles.com/61460775/lets-see-those-dog-tongues)
+- [I lost my buddy this friday.](https://news.puppy-snuggles.com/61460776/i-lost-my-buddy-this-friday)
+- [Rescue won’t drink water on hikes](https://news.puppy-snuggles.com/61422524/rescue-wont-drink-water-on-hikes)
+- [Had her for 7 years don’t know her breed](https://news.puppy-snuggles.com/61422523/had-her-for-7-years-dont-know-her-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
