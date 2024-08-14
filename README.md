@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When you&amp;#039;re having such a good time, you can&amp;#039;t help but smile](https://news.puppy-snuggles.com/61460777/when-youre-having-such-a-good-time-you-cant-help-but-smile)
-- [Let’s see those dog tongues 👅](https://news.puppy-snuggles.com/61460775/lets-see-those-dog-tongues)
-- [I lost my buddy this friday.](https://news.puppy-snuggles.com/61460776/i-lost-my-buddy-this-friday)
-- [Rescue won’t drink water on hikes](https://news.puppy-snuggles.com/61422524/rescue-wont-drink-water-on-hikes)
-- [Had her for 7 years don’t know her breed](https://news.puppy-snuggles.com/61422523/had-her-for-7-years-dont-know-her-breed)
+- [Tilly learned shake!:&rpar;](https://news.puppy-snuggles.com/53129232/tilly-learned-shake)
+- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
+- [And just like that, he’s gone🌈](https://news.puppy-snuggles.com/49906707/and-just-like-that-hes-gone)
+- [Foster pups just born today. Since they’re Halloween babies I’d love some spooky Halloween names to help! I’m currently working on two hours of sleep so help would be much appreciated](https://news.puppy-snuggles.com/44642313/foster-pups-just-born-today-since-theyre-halloween-babies-id-love-some-spooky-halloween-names-to-help-im-currently-working-on-two-hours-of-sleep-so-help-would-be-much-appreciated)
+- [My baby when he was 5 weeks vs 5 years](https://news.puppy-snuggles.com/43345983/my-baby-when-he-was-5-weeks-vs-5-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
