@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tilly learned shake!:&rpar;](https://news.puppy-snuggles.com/53129232/tilly-learned-shake)
-- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
-- [And just like that, he’s gone🌈](https://news.puppy-snuggles.com/49906707/and-just-like-that-hes-gone)
-- [Foster pups just born today. Since they’re Halloween babies I’d love some spooky Halloween names to help! I’m currently working on two hours of sleep so help would be much appreciated](https://news.puppy-snuggles.com/44642313/foster-pups-just-born-today-since-theyre-halloween-babies-id-love-some-spooky-halloween-names-to-help-im-currently-working-on-two-hours-of-sleep-so-help-would-be-much-appreciated)
-- [My baby when he was 5 weeks vs 5 years](https://news.puppy-snuggles.com/43345983/my-baby-when-he-was-5-weeks-vs-5-years)
+- [Vegetarian dog?](https://news.puppy-snuggles.com/62650961/vegetarian-dog)
+- [Field Retriever:Lady at the park said my dog was too skinny, am I under-feeding my dog?](https://news.puppy-snuggles.com/62553392/field-retrieverlady-at-the-park-said-my-dog-was-too-skinny-am-i-under-feeding-my-dog)
+- [Go get me another beer!](https://news.puppy-snuggles.com/62356784/go-get-me-another-beer)
+- [Which one do I take my 30lb dog to?](https://news.puppy-snuggles.com/62117917/which-one-do-i-take-my-30lb-dog-to)
+- [Show me pictures of your dogs sitting like humans](https://news.puppy-snuggles.com/62097879/show-me-pictures-of-your-dogs-sitting-like-humans)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
