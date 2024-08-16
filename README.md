@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Vegetarian dog?](https://news.puppy-snuggles.com/62650961/vegetarian-dog)
-- [Field Retriever:Lady at the park said my dog was too skinny, am I under-feeding my dog?](https://news.puppy-snuggles.com/62553392/field-retrieverlady-at-the-park-said-my-dog-was-too-skinny-am-i-under-feeding-my-dog)
-- [Go get me another beer!](https://news.puppy-snuggles.com/62356784/go-get-me-another-beer)
-- [Which one do I take my 30lb dog to?](https://news.puppy-snuggles.com/62117917/which-one-do-i-take-my-30lb-dog-to)
-- [Show me pictures of your dogs sitting like humans](https://news.puppy-snuggles.com/62097879/show-me-pictures-of-your-dogs-sitting-like-humans)
+- [Show your pups who are “over it”](https://news.puppy-snuggles.com/62498826/show-your-pups-who-are-over-it)
+- [He was left to die](https://news.puppy-snuggles.com/62206004/he-was-left-to-die)
+- [Hi!](https://news.puppy-snuggles.com/56150892/hi)
+- [I protect you](https://news.puppy-snuggles.com/47944895/i-protect-you)
+- [Awesome Dog Help Owner](https://news.puppy-snuggles.com/46885755/awesome-dog-help-owner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
