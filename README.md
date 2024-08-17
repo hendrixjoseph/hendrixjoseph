@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show your pups who are “over it”](https://news.puppy-snuggles.com/62498826/show-your-pups-who-are-over-it)
-- [He was left to die](https://news.puppy-snuggles.com/62206004/he-was-left-to-die)
-- [Hi!](https://news.puppy-snuggles.com/56150892/hi)
-- [I protect you](https://news.puppy-snuggles.com/47944895/i-protect-you)
-- [Awesome Dog Help Owner](https://news.puppy-snuggles.com/46885755/awesome-dog-help-owner)
+- [Does your puppy like baths? mine not, any suggeston？](https://news.puppy-snuggles.com/62713468/does-your-puppy-like-baths-mine-not-any-suggeston)
+- [Adopted this guy a week ago. Was told he was a German Shepard mix.](https://news.puppy-snuggles.com/61078337/adopted-this-guy-a-week-ago-was-told-he-was-a-german-shepard-mix)
+- [Piglet](https://news.puppy-snuggles.com/58752784/piglet)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [Vanessa](https://news.puppy-snuggles.com/46204310/vanessa)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
