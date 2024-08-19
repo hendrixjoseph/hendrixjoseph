@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This little girl was abandoned at barely 2 months old, my family rescued her and here she is now at 4.5 months old](https://news.puppy-snuggles.com/59143344/this-little-girl-was-abandoned-at-barely-2-months-old-my-family-rescued-her-and-here-she-is-now-at-45-months-old)
-- [smol body, big brain](https://news.puppy-snuggles.com/45270762/smol-body-big-brain)
-- [This is Cooper 16+ he just stares at me when I eat. I know one day I’ll miss this.](https://news.puppy-snuggles.com/24092875/this-is-cooper-16-he-just-stares-at-me-when-i-eat-i-know-one-day-ill-miss-this)
-- [&lpar;Bummer alert:&rpar; So, I saw this dude, out of my window, hitting a dog during a walk about a week ago. Kept an eye out for the house/dog/guy &amp;amp;amp; found her in this 3x3 ‘cell’ today… Should I steal this dog? Call someone &lpar;will they do anything&rpar;? Or… what?](https://news.puppy-snuggles.com/23196452/bummer-alert-so-i-saw-this-dude-out-of-my-window-hitting-a-dog-during-a-walk-about-a-week-ago-kept-an-eye-out-for-the-housedogguy-amp-found-her-in-this-3x3-cell-today-should-i-steal-this-dog-call-someone-will-they-do-anything-or-what)
-- [charming](https://news.puppy-snuggles.com/22130191/charming)
+- [I wanna see your zoomie dogs](https://news.puppy-snuggles.com/60921550/i-wanna-see-your-zoomie-dogs)
+- [That Face](https://news.puppy-snuggles.com/22202074/that-face)
+- [Hat &lpar;OC&rpar;](https://news.puppy-snuggles.com/21792186/hat-oc)
+- [RIP Trixie](https://news.puppy-snuggles.com/19779130/rip-trixie)
+- [meet stella](https://news.puppy-snuggles.com/17266595/meet-stella)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
