@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I wanna see your zoomie dogs](https://news.puppy-snuggles.com/60921550/i-wanna-see-your-zoomie-dogs)
-- [That Face](https://news.puppy-snuggles.com/22202074/that-face)
-- [Hat &lpar;OC&rpar;](https://news.puppy-snuggles.com/21792186/hat-oc)
-- [RIP Trixie](https://news.puppy-snuggles.com/19779130/rip-trixie)
-- [meet stella](https://news.puppy-snuggles.com/17266595/meet-stella)
+- [My baby dog ​​has me so in love](https://news.puppy-snuggles.com/62986201/my-baby-dog-has-me-so-in-love)
+- [Our wee 14 year old rescue](https://news.puppy-snuggles.com/62986199/our-wee-14-year-old-rescue)
+- [what is your opinion](https://news.puppy-snuggles.com/62986200/what-is-your-opinion)
+- [He&amp;#039;s loving his cardboard box today](https://news.puppy-snuggles.com/62986193/hes-loving-his-cardboard-box-today)
+- [Lost my sweet girl Lu last week.](https://news.puppy-snuggles.com/62986192/lost-my-sweet-girl-lu-last-week)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
