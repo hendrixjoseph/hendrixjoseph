@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby dog ​​has me so in love](https://news.puppy-snuggles.com/62986201/my-baby-dog-has-me-so-in-love)
-- [Our wee 14 year old rescue](https://news.puppy-snuggles.com/62986199/our-wee-14-year-old-rescue)
-- [what is your opinion](https://news.puppy-snuggles.com/62986200/what-is-your-opinion)
-- [He&amp;#039;s loving his cardboard box today](https://news.puppy-snuggles.com/62986193/hes-loving-his-cardboard-box-today)
-- [Lost my sweet girl Lu last week.](https://news.puppy-snuggles.com/62986192/lost-my-sweet-girl-lu-last-week)
+- [Let me sketch a funny pic of your dogs! send in the comments](https://news.puppy-snuggles.com/61872659/let-me-sketch-a-funny-pic-of-your-dogs-send-in-the-comments)
+- [Rescue won’t drink water on hikes](https://news.puppy-snuggles.com/61422524/rescue-wont-drink-water-on-hikes)
+- [I have peanut butter](https://news.puppy-snuggles.com/60806076/i-have-peanut-butter)
+- [What breed/s do you think they are?](https://news.puppy-snuggles.com/58321463/what-breeds-do-you-think-they-are)
+- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
