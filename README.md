@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Another one of my favorite order handmade portrait. What do you think](https://news.puppy-snuggles.com/62792592/another-one-of-my-favorite-order-handmade-portrait-what-do-you-think)
+- [I need a na...her name is Bunny, she&amp;#039;s my little womble](https://news.puppy-snuggles.com/62574621/i-need-a-naher-name-is-bunny-shes-my-little-womble)
+- [Our beautiful Lizzie passed peacefully this morning &lpar;in her favorite place in the front yard &rpar;](https://news.puppy-snuggles.com/62376706/our-beautiful-lizzie-passed-peacefully-this-morning-in-her-favorite-place-in-the-front-yard)
 - [Let me sketch a funny pic of your dogs! send in the comments](https://news.puppy-snuggles.com/61872659/let-me-sketch-a-funny-pic-of-your-dogs-send-in-the-comments)
-- [Rescue won’t drink water on hikes](https://news.puppy-snuggles.com/61422524/rescue-wont-drink-water-on-hikes)
-- [I have peanut butter](https://news.puppy-snuggles.com/60806076/i-have-peanut-butter)
-- [What breed/s do you think they are?](https://news.puppy-snuggles.com/58321463/what-breeds-do-you-think-they-are)
-- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
+- [He is so tiny but he acts like he owns the house](https://news.puppy-snuggles.com/56941475/he-is-so-tiny-but-he-acts-like-he-owns-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
