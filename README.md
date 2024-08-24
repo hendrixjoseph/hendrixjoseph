@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Another one of my favorite order handmade portrait. What do you think](https://news.puppy-snuggles.com/62792592/another-one-of-my-favorite-order-handmade-portrait-what-do-you-think)
-- [I need a na...her name is Bunny, she&amp;#039;s my little womble](https://news.puppy-snuggles.com/62574621/i-need-a-naher-name-is-bunny-shes-my-little-womble)
-- [Our beautiful Lizzie passed peacefully this morning &lpar;in her favorite place in the front yard &rpar;](https://news.puppy-snuggles.com/62376706/our-beautiful-lizzie-passed-peacefully-this-morning-in-her-favorite-place-in-the-front-yard)
-- [Let me sketch a funny pic of your dogs! send in the comments](https://news.puppy-snuggles.com/61872659/let-me-sketch-a-funny-pic-of-your-dogs-send-in-the-comments)
-- [He is so tiny but he acts like he owns the house](https://news.puppy-snuggles.com/56941475/he-is-so-tiny-but-he-acts-like-he-owns-the-house)
+- [My mutt smiles at me like this every morning :&rpar;](https://news.puppy-snuggles.com/63237306/my-mutt-smiles-at-me-like-this-every-morning)
+- [Show me your puppies. I wanna try to design and make a keychain for him &lpar;choose one puppy after 48 hours&rpar;](https://news.puppy-snuggles.com/62632125/show-me-your-puppies-i-wanna-try-to-design-and-make-a-keychain-for-him-choose-one-puppy-after-48-hours)
+- [Arrest made after starving dog rescued, animal skeleton found at Little Woods home, NOPD says](https://news.puppy-snuggles.com/61682516/arrest-made-after-starving-dog-rescued-animal-skeleton-found-at-little-woods-home-nopd-says)
+- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
+- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
