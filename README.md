@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mutt smiles at me like this every morning :&rpar;](https://news.puppy-snuggles.com/63237306/my-mutt-smiles-at-me-like-this-every-morning)
-- [Show me your puppies. I wanna try to design and make a keychain for him &lpar;choose one puppy after 48 hours&rpar;](https://news.puppy-snuggles.com/62632125/show-me-your-puppies-i-wanna-try-to-design-and-make-a-keychain-for-him-choose-one-puppy-after-48-hours)
-- [Arrest made after starving dog rescued, animal skeleton found at Little Woods home, NOPD says](https://news.puppy-snuggles.com/61682516/arrest-made-after-starving-dog-rescued-animal-skeleton-found-at-little-woods-home-nopd-says)
-- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
-- [I found him by a dumpster, what is he?](https://news.puppy-snuggles.com/60145036/i-found-him-by-a-dumpster-what-is-he)
+- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [My dog snoopy](https://news.puppy-snuggles.com/61542366/my-dog-snoopy)
+- [My boy Patrick during his morning wade at the pond.](https://news.puppy-snuggles.com/48003119/my-boy-patrick-during-his-morning-wade-at-the-pond)
+- [Just a cute small picture of my puppy sitting in a box. My cats box](https://news.puppy-snuggles.com/22568356/just-a-cute-small-picture-of-my-puppy-sitting-in-a-box-my-cats-box)
+- [My 10 week old Beaglier was having a very happy dream after his playtime!](https://news.puppy-snuggles.com/22012992/my-10-week-old-beaglier-was-having-a-very-happy-dream-after-his-playtime)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
