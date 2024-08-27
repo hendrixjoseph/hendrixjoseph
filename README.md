@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
-- [My dog snoopy](https://news.puppy-snuggles.com/61542366/my-dog-snoopy)
-- [My boy Patrick during his morning wade at the pond.](https://news.puppy-snuggles.com/48003119/my-boy-patrick-during-his-morning-wade-at-the-pond)
-- [Just a cute small picture of my puppy sitting in a box. My cats box](https://news.puppy-snuggles.com/22568356/just-a-cute-small-picture-of-my-puppy-sitting-in-a-box-my-cats-box)
-- [My 10 week old Beaglier was having a very happy dream after his playtime!](https://news.puppy-snuggles.com/22012992/my-10-week-old-beaglier-was-having-a-very-happy-dream-after-his-playtime)
+- [Fell in love with his eyes at the shelter…I don’t know how anyone could have given up such a good boy](https://news.puppy-snuggles.com/63457158/fell-in-love-with-his-eyes-at-the-shelteri-dont-know-how-anyone-could-have-given-up-such-a-good-boy)
+- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
+- [Show me a ridiculous picture of your dog.](https://news.puppy-snuggles.com/59301284/show-me-a-ridiculous-picture-of-your-dog)
+- [Who&amp;#039;s there](https://news.puppy-snuggles.com/25454041/whos-there)
+- [Name suggestions?](https://news.puppy-snuggles.com/24243029/name-suggestions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
