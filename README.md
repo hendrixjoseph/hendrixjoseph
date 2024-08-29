@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Fell in love with his eyes at the shelter…I don’t know how anyone could have given up such a good boy](https://news.puppy-snuggles.com/63457158/fell-in-love-with-his-eyes-at-the-shelteri-dont-know-how-anyone-could-have-given-up-such-a-good-boy)
-- [Post your hikers](https://news.puppy-snuggles.com/60977709/post-your-hikers)
-- [Show me a ridiculous picture of your dog.](https://news.puppy-snuggles.com/59301284/show-me-a-ridiculous-picture-of-your-dog)
-- [Who&amp;#039;s there](https://news.puppy-snuggles.com/25454041/whos-there)
-- [Name suggestions?](https://news.puppy-snuggles.com/24243029/name-suggestions)
+- [Former District Dogs employee charged with animal cruelty for allegedly kicking puppy to death](https://news.puppy-snuggles.com/63616861/former-district-dogs-employee-charged-with-animal-cruelty-for-allegedly-kicking-puppy-to-death)
+- [Dog breeder found dead and as many as 10 of his Doberman puppies have vanished](https://news.puppy-snuggles.com/63616856/dog-breeder-found-dead-and-as-many-as-10-of-his-doberman-puppies-have-vanished)
+- [What helps with the sadness of losing your heart dog?](https://news.puppy-snuggles.com/63562083/what-helps-with-the-sadness-of-losing-your-heart-dog)
+- [Michele our founder here at our sanctuary Sara Morocco receiving her birthday kisses from her beloved rescues](https://news.puppy-snuggles.com/62871860/michele-our-founder-here-at-our-sanctuary-sara-morocco-receiving-her-birthday-kisses-from-her-beloved-rescues)
+- [Moody](https://news.puppy-snuggles.com/62713472/moody)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
