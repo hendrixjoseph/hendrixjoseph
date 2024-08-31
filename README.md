@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Former District Dogs employee charged with animal cruelty for allegedly kicking puppy to death](https://news.puppy-snuggles.com/63616861/former-district-dogs-employee-charged-with-animal-cruelty-for-allegedly-kicking-puppy-to-death)
-- [Dog breeder found dead and as many as 10 of his Doberman puppies have vanished](https://news.puppy-snuggles.com/63616856/dog-breeder-found-dead-and-as-many-as-10-of-his-doberman-puppies-have-vanished)
-- [What helps with the sadness of losing your heart dog?](https://news.puppy-snuggles.com/63562083/what-helps-with-the-sadness-of-losing-your-heart-dog)
-- [Michele our founder here at our sanctuary Sara Morocco receiving her birthday kisses from her beloved rescues](https://news.puppy-snuggles.com/62871860/michele-our-founder-here-at-our-sanctuary-sara-morocco-receiving-her-birthday-kisses-from-her-beloved-rescues)
-- [Moody](https://news.puppy-snuggles.com/62713472/moody)
+- [Yesterday, I lost my best friend of 14 years](https://news.puppy-snuggles.com/63758750/yesterday-i-lost-my-best-friend-of-14-years)
+- [Murdered Dog Breeder Found by Search Party, Police Looking for Missing Puppies](https://news.puppy-snuggles.com/63744858/murdered-dog-breeder-found-by-search-party-police-looking-for-missing-puppies)
+- [My lil friend while he was still on earth with us &amp;amp;lt;3](https://news.puppy-snuggles.com/63758751/my-lil-friend-while-he-was-still-on-earth-with-us-lt3)
+- [Happy Friday from Peach](https://news.puppy-snuggles.com/63758752/happy-friday-from-peach)
+- [Good Morning](https://news.puppy-snuggles.com/63736946/good-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
