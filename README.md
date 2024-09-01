@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yesterday, I lost my best friend of 14 years](https://news.puppy-snuggles.com/63758750/yesterday-i-lost-my-best-friend-of-14-years)
-- [Murdered Dog Breeder Found by Search Party, Police Looking for Missing Puppies](https://news.puppy-snuggles.com/63744858/murdered-dog-breeder-found-by-search-party-police-looking-for-missing-puppies)
+- [Waiting in line for her pup cup!](https://news.puppy-snuggles.com/63823721/waiting-in-line-for-her-pup-cup)
+- [these pics I took while my dog was running](https://news.puppy-snuggles.com/63823722/these-pics-i-took-while-my-dog-was-running)
 - [My lil friend while he was still on earth with us &amp;amp;lt;3](https://news.puppy-snuggles.com/63758751/my-lil-friend-while-he-was-still-on-earth-with-us-lt3)
 - [Happy Friday from Peach](https://news.puppy-snuggles.com/63758752/happy-friday-from-peach)
-- [Good Morning](https://news.puppy-snuggles.com/63736946/good-morning)
+- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
