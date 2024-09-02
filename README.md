@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Waiting in line for her pup cup!](https://news.puppy-snuggles.com/63823721/waiting-in-line-for-her-pup-cup)
-- [these pics I took while my dog was running](https://news.puppy-snuggles.com/63823722/these-pics-i-took-while-my-dog-was-running)
-- [My lil friend while he was still on earth with us &amp;amp;lt;3](https://news.puppy-snuggles.com/63758751/my-lil-friend-while-he-was-still-on-earth-with-us-lt3)
-- [Happy Friday from Peach](https://news.puppy-snuggles.com/63758752/happy-friday-from-peach)
-- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
+- [Little over a year since adopting this sweetheart](https://news.puppy-snuggles.com/63844872/little-over-a-year-since-adopting-this-sweetheart)
+- [Unique Female Dog Names?](https://news.puppy-snuggles.com/63844877/unique-female-dog-names)
+- [I lost my soul dog last year, her name was Sobe.](https://news.puppy-snuggles.com/63801776/i-lost-my-soul-dog-last-year-her-name-was-sobe)
+- [My girls Lady and Luna as happy as can be :&rpar;](https://news.puppy-snuggles.com/63135478/my-girls-lady-and-luna-as-happy-as-can-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
