@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
-- [Little over a year since adopting this sweetheart](https://news.puppy-snuggles.com/63844872/little-over-a-year-since-adopting-this-sweetheart)
-- [Unique Female Dog Names?](https://news.puppy-snuggles.com/63844877/unique-female-dog-names)
-- [I lost my soul dog last year, her name was Sobe.](https://news.puppy-snuggles.com/63801776/i-lost-my-soul-dog-last-year-her-name-was-sobe)
-- [My girls Lady and Luna as happy as can be :&rpar;](https://news.puppy-snuggles.com/63135478/my-girls-lady-and-luna-as-happy-as-can-be)
+- [It’s been 3 years and I still can’t think about him without tearing up. My sweet boy, my Dragon💕](https://news.puppy-snuggles.com/63970612/its-been-3-years-and-i-still-cant-think-about-him-without-tearing-up-my-sweet-boy-my-dragon)
+- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
+- [my pet care business. my morning and afternoon crew](https://news.puppy-snuggles.com/63970615/my-pet-care-business-my-morning-and-afternoon-crew)
+- [Say hello to Digweed, my neighbors 20 year old beagle. Digweed loves to sleep for 23 hours a day in his retirement. In his younger years, he lived on a ranch off the Brazos River, hunting with his siblings.](https://news.puppy-snuggles.com/63970613/say-hello-to-digweed-my-neighbors-20-year-old-beagle-digweed-loves-to-sleep-for-23-hours-a-day-in-his-retirement-in-his-younger-years-he-lived-on-a-ranch-off-the-brazos-river-hunting-with-his-siblings)
+- [Who done it? 🧐](https://news.puppy-snuggles.com/63950211/who-done-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
