@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s been 3 years and I still can’t think about him without tearing up. My sweet boy, my Dragon💕](https://news.puppy-snuggles.com/63970612/its-been-3-years-and-i-still-cant-think-about-him-without-tearing-up-my-sweet-boy-my-dragon)
-- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
-- [my pet care business. my morning and afternoon crew](https://news.puppy-snuggles.com/63970615/my-pet-care-business-my-morning-and-afternoon-crew)
-- [Say hello to Digweed, my neighbors 20 year old beagle. Digweed loves to sleep for 23 hours a day in his retirement. In his younger years, he lived on a ranch off the Brazos River, hunting with his siblings.](https://news.puppy-snuggles.com/63970613/say-hello-to-digweed-my-neighbors-20-year-old-beagle-digweed-loves-to-sleep-for-23-hours-a-day-in-his-retirement-in-his-younger-years-he-lived-on-a-ranch-off-the-brazos-river-hunting-with-his-siblings)
-- [Who done it? 🧐](https://news.puppy-snuggles.com/63950211/who-done-it)
+- [Maizy, my 8mnth old shihpoo, in motion sickness glasses](https://news.puppy-snuggles.com/64037330/maizy-my-8mnth-old-shihpoo-in-motion-sickness-glasses)
+- [My beautiful boy, who almost made it to 10 years old.. I wish I could&amp;#039;ve had forever with him ✨🕊️ my guardian angel now. I miss him so very much.](https://news.puppy-snuggles.com/64014108/my-beautiful-boy-who-almost-made-it-to-10-years-old-i-wish-i-couldve-had-forever-with-him-my-guardian-angel-now-i-miss-him-so-very-much)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [My Pup Cut One](https://news.puppy-snuggles.com/23658543/my-pup-cut-one)
+- [i miss my boy &amp;amp;lt;3 i get to see him again soon :&rpar;](https://news.puppy-snuggles.com/23470952/i-miss-my-boy-lt3-i-get-to-see-him-again-soon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
