@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Maizy, my 8mnth old shihpoo, in motion sickness glasses](https://news.puppy-snuggles.com/64037330/maizy-my-8mnth-old-shihpoo-in-motion-sickness-glasses)
-- [My beautiful boy, who almost made it to 10 years old.. I wish I could&amp;#039;ve had forever with him ✨🕊️ my guardian angel now. I miss him so very much.](https://news.puppy-snuggles.com/64014108/my-beautiful-boy-who-almost-made-it-to-10-years-old-i-wish-i-couldve-had-forever-with-him-my-guardian-angel-now-i-miss-him-so-very-much)
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [My Pup Cut One](https://news.puppy-snuggles.com/23658543/my-pup-cut-one)
-- [i miss my boy &amp;amp;lt;3 i get to see him again soon :&rpar;](https://news.puppy-snuggles.com/23470952/i-miss-my-boy-lt3-i-get-to-see-him-again-soon)
+- [parents aren’t home. you know what that means](https://news.puppy-snuggles.com/64099515/parents-arent-home-you-know-what-that-means)
+- [Please Pray For Taz As He Fights For His Life Today As Well As The Fact That I May Have To Put My Best Friend Down](https://news.puppy-snuggles.com/63694608/please-pray-for-taz-as-he-fights-for-his-life-today-as-well-as-the-fact-that-i-may-have-to-put-my-best-friend-down)
+- [OSCAR loves sunshine](https://news.puppy-snuggles.com/62632130/oscar-loves-sunshine)
+- [I swear I don&amp;#039;t know what title to put on this photo hahaha it just makes me laugh a lot](https://news.puppy-snuggles.com/62356785/i-swear-i-dont-know-what-title-to-put-on-this-photo-hahaha-it-just-makes-me-laugh-a-lot)
+- [Too adorable not to share](https://news.puppy-snuggles.com/61602690/too-adorable-not-to-share)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
