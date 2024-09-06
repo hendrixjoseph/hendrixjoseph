@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [parents aren’t home. you know what that means](https://news.puppy-snuggles.com/64099515/parents-arent-home-you-know-what-that-means)
-- [Please Pray For Taz As He Fights For His Life Today As Well As The Fact That I May Have To Put My Best Friend Down](https://news.puppy-snuggles.com/63694608/please-pray-for-taz-as-he-fights-for-his-life-today-as-well-as-the-fact-that-i-may-have-to-put-my-best-friend-down)
-- [OSCAR loves sunshine](https://news.puppy-snuggles.com/62632130/oscar-loves-sunshine)
-- [I swear I don&amp;#039;t know what title to put on this photo hahaha it just makes me laugh a lot](https://news.puppy-snuggles.com/62356785/i-swear-i-dont-know-what-title-to-put-on-this-photo-hahaha-it-just-makes-me-laugh-a-lot)
-- [Too adorable not to share](https://news.puppy-snuggles.com/61602690/too-adorable-not-to-share)
+- [Had to say goodbye to my boy yesterday 🥹](https://news.puppy-snuggles.com/64122165/had-to-say-goodbye-to-my-boy-yesterday)
+- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
+- [Just added a new family member today! His name is Bolt 😁🥰](https://news.puppy-snuggles.com/62908496/just-added-a-new-family-member-today-his-name-is-bolt)
+- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
