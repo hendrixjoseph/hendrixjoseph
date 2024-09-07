@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had to say goodbye to my boy yesterday 🥹](https://news.puppy-snuggles.com/64122165/had-to-say-goodbye-to-my-boy-yesterday)
+- [Miela &amp;amp;amp; Binky Enjoying The Last Few Days Of Warm Weather](https://news.puppy-snuggles.com/64187607/miela-amp-binky-enjoying-the-last-few-days-of-warm-weather)
+- [My sweet Gemma bean crossed the rainbow bridge this morning.](https://news.puppy-snuggles.com/64187602/my-sweet-gemma-bean-crossed-the-rainbow-bridge-this-morning)
+- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
+- [Okay](https://news.puppy-snuggles.com/63864586/okay)
 - [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
-- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
-- [Just added a new family member today! His name is Bolt 😁🥰](https://news.puppy-snuggles.com/62908496/just-added-a-new-family-member-today-his-name-is-bolt)
-- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
