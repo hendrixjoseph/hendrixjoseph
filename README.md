@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Miela &amp;amp;amp; Binky Enjoying The Last Few Days Of Warm Weather](https://news.puppy-snuggles.com/64187607/miela-amp-binky-enjoying-the-last-few-days-of-warm-weather)
-- [My sweet Gemma bean crossed the rainbow bridge this morning.](https://news.puppy-snuggles.com/64187602/my-sweet-gemma-bean-crossed-the-rainbow-bridge-this-morning)
-- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
-- [Okay](https://news.puppy-snuggles.com/63864586/okay)
-- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [Should I Boop The Nose?](https://news.puppy-snuggles.com/64314727/should-i-boop-the-nose)
+- [heart stealer](https://news.puppy-snuggles.com/63396724/heart-stealer)
+- [1.. 2.. 3 say cheese!](https://news.puppy-snuggles.com/60336527/1-2-3-say-cheese)
+- [Look mom i found you a stinky sock and i brought it to you!](https://news.puppy-snuggles.com/46928645/look-mom-i-found-you-a-stinky-sock-and-i-brought-it-to-you)
+- [Self Care With The Dogs](https://news.puppy-snuggles.com/44335187/self-care-with-the-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
