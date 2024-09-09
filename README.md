@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Should I Boop The Nose?](https://news.puppy-snuggles.com/64314727/should-i-boop-the-nose)
-- [heart stealer](https://news.puppy-snuggles.com/63396724/heart-stealer)
-- [1.. 2.. 3 say cheese!](https://news.puppy-snuggles.com/60336527/1-2-3-say-cheese)
-- [Look mom i found you a stinky sock and i brought it to you!](https://news.puppy-snuggles.com/46928645/look-mom-i-found-you-a-stinky-sock-and-i-brought-it-to-you)
-- [Self Care With The Dogs](https://news.puppy-snuggles.com/44335187/self-care-with-the-dogs)
+- [I&amp;#039;m remembrance of Vicky.. I miss you Vicky](https://news.puppy-snuggles.com/64375871/im-remembrance-of-vicky-i-miss-you-vicky)
+- [My baby Butch’s first time at the Park!](https://news.puppy-snuggles.com/63562081/my-baby-butchs-first-time-at-the-park)
+- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
+- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
+- [Our dog still smiling after two years from her rescue.](https://news.puppy-snuggles.com/61263616/our-dog-still-smiling-after-two-years-from-her-rescue)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
