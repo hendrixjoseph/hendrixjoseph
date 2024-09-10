@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&amp;#039;m remembrance of Vicky.. I miss you Vicky](https://news.puppy-snuggles.com/64375871/im-remembrance-of-vicky-i-miss-you-vicky)
-- [My baby Butch’s first time at the Park!](https://news.puppy-snuggles.com/63562081/my-baby-butchs-first-time-at-the-park)
-- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
-- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
-- [Our dog still smiling after two years from her rescue.](https://news.puppy-snuggles.com/61263616/our-dog-still-smiling-after-two-years-from-her-rescue)
+- [Do you think she likes her new bed?](https://news.puppy-snuggles.com/64437886/do-you-think-she-likes-her-new-bed)
+- [Show us your sleepy heads](https://news.puppy-snuggles.com/64375872/show-us-your-sleepy-heads)
+- [Looking at sunshine](https://news.puppy-snuggles.com/64375873/looking-at-sunshine)
+- [Lil buddy passed away a year ago today was just going through old pictures of him](https://news.puppy-snuggles.com/63300692/lil-buddy-passed-away-a-year-ago-today-was-just-going-through-old-pictures-of-him)
+- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
