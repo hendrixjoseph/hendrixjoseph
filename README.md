@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do you think she likes her new bed?](https://news.puppy-snuggles.com/64437886/do-you-think-she-likes-her-new-bed)
-- [Show us your sleepy heads](https://news.puppy-snuggles.com/64375872/show-us-your-sleepy-heads)
-- [Looking at sunshine](https://news.puppy-snuggles.com/64375873/looking-at-sunshine)
-- [Lil buddy passed away a year ago today was just going through old pictures of him](https://news.puppy-snuggles.com/63300692/lil-buddy-passed-away-a-year-ago-today-was-just-going-through-old-pictures-of-him)
-- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
+- [Blanche smiling](https://news.puppy-snuggles.com/57266140/blanche-smiling)
+- [Tilly learned shake!:&rpar;](https://news.puppy-snuggles.com/53129232/tilly-learned-shake)
+- [And just like that, he’s gone🌈](https://news.puppy-snuggles.com/49906707/and-just-like-that-hes-gone)
+- [My baby when he was 5 weeks vs 5 years](https://news.puppy-snuggles.com/43345983/my-baby-when-he-was-5-weeks-vs-5-years)
+- [can&amp;#039;t resist to draw this pup holder](https://news.puppy-snuggles.com/32873867/cant-resist-to-draw-this-pup-holder)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
