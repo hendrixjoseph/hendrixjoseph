@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Blanche smiling](https://news.puppy-snuggles.com/57266140/blanche-smiling)
-- [Tilly learned shake!:&rpar;](https://news.puppy-snuggles.com/53129232/tilly-learned-shake)
-- [And just like that, he’s gone🌈](https://news.puppy-snuggles.com/49906707/and-just-like-that-hes-gone)
-- [My baby when he was 5 weeks vs 5 years](https://news.puppy-snuggles.com/43345983/my-baby-when-he-was-5-weeks-vs-5-years)
-- [can&amp;#039;t resist to draw this pup holder](https://news.puppy-snuggles.com/32873867/cant-resist-to-draw-this-pup-holder)
+- [My 2 year old dog stole a kitten and I don&amp;#039;t know what to do.](https://news.puppy-snuggles.com/64578725/my-2-year-old-dog-stole-a-kitten-and-i-dont-know-what-to-do)
+- [Show me your dogs and I&amp;#039;ll draw them!](https://news.puppy-snuggles.com/64578726/show-me-your-dogs-and-ill-draw-them)
+- [She has been my faithful companion for almost 10 years, what is yours?](https://news.puppy-snuggles.com/64099513/she-has-been-my-faithful-companion-for-almost-10-years-what-is-yours)
+- [An old man living his best life ☺️](https://news.puppy-snuggles.com/63396723/an-old-man-living-his-best-life)
+- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
