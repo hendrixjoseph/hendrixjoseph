@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [My 2 year old dog stole a kitten and I don&amp;#039;t know what to do.](https://news.puppy-snuggles.com/64578725/my-2-year-old-dog-stole-a-kitten-and-i-dont-know-what-to-do)
-- [Show me your dogs and I&amp;#039;ll draw them!](https://news.puppy-snuggles.com/64578726/show-me-your-dogs-and-ill-draw-them)
-- [She has been my faithful companion for almost 10 years, what is yours?](https://news.puppy-snuggles.com/64099513/she-has-been-my-faithful-companion-for-almost-10-years-what-is-yours)
-- [An old man living his best life ☺️](https://news.puppy-snuggles.com/63396723/an-old-man-living-his-best-life)
-- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
+- [Who turned 13 yesterday? This pretty girl!](https://news.puppy-snuggles.com/64498652/who-turned-13-yesterday-this-pretty-girl)
+- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
+- [Lost my boy to cancer](https://news.puppy-snuggles.com/63377521/lost-my-boy-to-cancer)
+- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
