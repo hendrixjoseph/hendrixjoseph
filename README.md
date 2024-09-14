@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 2 year old dog stole a kitten and I don&amp;#039;t know what to do.](https://news.puppy-snuggles.com/64578725/my-2-year-old-dog-stole-a-kitten-and-i-dont-know-what-to-do)
-- [Who turned 13 yesterday? This pretty girl!](https://news.puppy-snuggles.com/64498652/who-turned-13-yesterday-this-pretty-girl)
-- [Pupper](https://news.puppy-snuggles.com/63970614/pupper)
-- [Lost my boy to cancer](https://news.puppy-snuggles.com/63377521/lost-my-boy-to-cancer)
-- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [Good Morning](https://news.puppy-snuggles.com/63736946/good-morning)
+- [Lost my little stinker yesterday. Love you Cookie, life won’t be the same without you 💔](https://news.puppy-snuggles.com/63672452/lost-my-little-stinker-yesterday-love-you-cookie-life-wont-be-the-same-without-you)
+- [happy baby](https://news.puppy-snuggles.com/63604662/happy-baby)
+- [Until we meet again Molly - We love you!](https://news.puppy-snuggles.com/63437776/until-we-meet-again-molly-we-love-you)
+- [Woke up this morning to find my boy passed](https://news.puppy-snuggles.com/62457753/woke-up-this-morning-to-find-my-boy-passed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
