@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Friends don&#39;t let friends reuse nonces](https://www.reddit.com/r/programming/comments/1fgte64/friends_dont_let_friends_reuse_nonces/ln5rxiu/)
 - [/u/joehx on Caucuses.](https://www.reddit.com/r/LibertarianPartyUSA/comments/1exjv4e/caucuses/ljapzjw/)
 - [/u/joehx on New &#39;Official&#39; Referral Thread](https://www.reddit.com/r/CapitalOne_/comments/1ew7oht/new_official_referral_thread/lj130zs/)
 - [/u/joehx on Do people actually believe Trickle-down economics works?](https://www.reddit.com/r/ask/comments/1ejtdr9/do_people_actually_believe_trickledown_economics/lgg5dio/)
 - [/u/joehx on JVM Language Summit — Agenda](https://www.reddit.com/r/java/comments/1ejft8r/jvm_language_summit_agenda/lgdrw96/)
-- [/u/joehx on 3 year old has been telling me &quot;I don&#39;t love you, I love mommy.&quot;](https://www.reddit.com/r/daddit/comments/1eg9g6q/3_year_old_has_been_telling_me_i_dont_love_you_i/lfr8by9/)
 <!-- REDDIT:END -->
