@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good Morning](https://news.puppy-snuggles.com/63736946/good-morning)
-- [Lost my little stinker yesterday. Love you Cookie, life won’t be the same without you 💔](https://news.puppy-snuggles.com/63672452/lost-my-little-stinker-yesterday-love-you-cookie-life-wont-be-the-same-without-you)
-- [happy baby](https://news.puppy-snuggles.com/63604662/happy-baby)
-- [Until we meet again Molly - We love you!](https://news.puppy-snuggles.com/63437776/until-we-meet-again-molly-we-love-you)
-- [Woke up this morning to find my boy passed](https://news.puppy-snuggles.com/62457753/woke-up-this-morning-to-find-my-boy-passed)
+- [Jason Kelce introduces new puppy after death of family dog: &amp;#039;Sweet&amp;#039; but a &amp;#039;terror&amp;#039;](https://news.puppy-snuggles.com/64788855/jason-kelce-introduces-new-puppy-after-death-of-family-dog-sweet-but-a-terror)
+- [Meet Echo! My new best friend! &lpar;he&amp;#039;s deaf, you have to wave&rpar;](https://news.puppy-snuggles.com/64736067/meet-echo-my-new-best-friend-hes-deaf-you-have-to-wave)
+- [My Cutie Pie :&rpar;](https://news.puppy-snuggles.com/64498651/my-cutie-pie)
+- [🌈 missing this one today 🌈](https://news.puppy-snuggles.com/64437891/missing-this-one-today)
+- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
