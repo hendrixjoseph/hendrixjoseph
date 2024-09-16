@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [Jason Kelce introduces new puppy after death of family dog: &amp;#039;Sweet&amp;#039; but a &amp;#039;terror&amp;#039;](https://news.puppy-snuggles.com/64788855/jason-kelce-introduces-new-puppy-after-death-of-family-dog-sweet-but-a-terror)
-- [Meet Echo! My new best friend! &lpar;he&amp;#039;s deaf, you have to wave&rpar;](https://news.puppy-snuggles.com/64736067/meet-echo-my-new-best-friend-hes-deaf-you-have-to-wave)
-- [My Cutie Pie :&rpar;](https://news.puppy-snuggles.com/64498651/my-cutie-pie)
-- [🌈 missing this one today 🌈](https://news.puppy-snuggles.com/64437891/missing-this-one-today)
-- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
+- [The best smile you can see in the day, right?🙈](https://news.puppy-snuggles.com/63672454/the-best-smile-you-can-see-in-the-day-right)
+- [Ophelia makes her triumphant return 😎](https://news.puppy-snuggles.com/63338897/ophelia-makes-her-triumphant-return)
+- [Who else has this problem?🤣](https://news.puppy-snuggles.com/62356786/who-else-has-this-problem)
+- [RIP My best friend of 19 years. He loved his trips. He was adopted from a shelter. &lpar;Younger picture I found&rpar;](https://news.puppy-snuggles.com/62117913/rip-my-best-friend-of-19-years-he-loved-his-trips-he-was-adopted-from-a-shelter-younger-picture-i-found)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
