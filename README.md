@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Jason Kelce introduces new puppy after death of family dog: &amp;#039;Sweet&amp;#039; but a &amp;#039;terror&amp;#039;](https://news.puppy-snuggles.com/64788855/jason-kelce-introduces-new-puppy-after-death-of-family-dog-sweet-but-a-terror)
-- [The best smile you can see in the day, right?🙈](https://news.puppy-snuggles.com/63672454/the-best-smile-you-can-see-in-the-day-right)
-- [Ophelia makes her triumphant return 😎](https://news.puppy-snuggles.com/63338897/ophelia-makes-her-triumphant-return)
-- [Who else has this problem?🤣](https://news.puppy-snuggles.com/62356786/who-else-has-this-problem)
-- [RIP My best friend of 19 years. He loved his trips. He was adopted from a shelter. &lpar;Younger picture I found&rpar;](https://news.puppy-snuggles.com/62117913/rip-my-best-friend-of-19-years-he-loved-his-trips-he-was-adopted-from-a-shelter-younger-picture-i-found)
+- [Cancer finally caught up with my sweet baby yesterday. Look at her, she’s so beautiful. I miss that wonderful waggy tail](https://news.puppy-snuggles.com/64963874/cancer-finally-caught-up-with-my-sweet-baby-yesterday-look-at-her-shes-so-beautiful-i-miss-that-wonderful-waggy-tail)
+- [Saying goodbye to my best friend of almost 10 years. I’ll be thinking of you forever and always Beau. I love you Beau.](https://news.puppy-snuggles.com/64904881/saying-goodbye-to-my-best-friend-of-almost-10-years-ill-be-thinking-of-you-forever-and-always-beau-i-love-you-beau)
+- [roast him for his permanent puppy eyes](https://news.puppy-snuggles.com/64904886/roast-him-for-his-permanent-puppy-eyes)
+- [Bubba B, my good boy](https://news.puppy-snuggles.com/64811251/bubba-b-my-good-boy)
+- [How do you deal with the loss of your dog?](https://news.puppy-snuggles.com/64811250/how-do-you-deal-with-the-loss-of-your-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
