@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cancer finally caught up with my sweet baby yesterday. Look at her, she’s so beautiful. I miss that wonderful waggy tail](https://news.puppy-snuggles.com/64963874/cancer-finally-caught-up-with-my-sweet-baby-yesterday-look-at-her-shes-so-beautiful-i-miss-that-wonderful-waggy-tail)
-- [Saying goodbye to my best friend of almost 10 years. I’ll be thinking of you forever and always Beau. I love you Beau.](https://news.puppy-snuggles.com/64904881/saying-goodbye-to-my-best-friend-of-almost-10-years-ill-be-thinking-of-you-forever-and-always-beau-i-love-you-beau)
-- [roast him for his permanent puppy eyes](https://news.puppy-snuggles.com/64904886/roast-him-for-his-permanent-puppy-eyes)
-- [Bubba B, my good boy](https://news.puppy-snuggles.com/64811251/bubba-b-my-good-boy)
-- [How do you deal with the loss of your dog?](https://news.puppy-snuggles.com/64811250/how-do-you-deal-with-the-loss-of-your-dog)
+- [I rescued a dog this week! First picture is day 1, second picture is day 2 with her new big brother. Look at that smile!](https://news.puppy-snuggles.com/64847802/i-rescued-a-dog-this-week-first-picture-is-day-1-second-picture-is-day-2-with-her-new-big-brother-look-at-that-smile)
+- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
+- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
+- [My boy Patrick during his morning wade at the pond.](https://news.puppy-snuggles.com/48003119/my-boy-patrick-during-his-morning-wade-at-the-pond)
+- [Peanut passed away. I hope he&amp;#039;s happy wherever he is.](https://news.puppy-snuggles.com/34577663/peanut-passed-away-i-hope-hes-happy-wherever-he-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
