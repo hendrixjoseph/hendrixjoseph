@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I rescued a dog this week! First picture is day 1, second picture is day 2 with her new big brother. Look at that smile!](https://news.puppy-snuggles.com/64847802/i-rescued-a-dog-this-week-first-picture-is-day-1-second-picture-is-day-2-with-her-new-big-brother-look-at-that-smile)
-- [This is as close to a smile as he gets. Fine by me!](https://news.puppy-snuggles.com/63338891/this-is-as-close-to-a-smile-as-he-gets-fine-by-me)
-- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
-- [My boy Patrick during his morning wade at the pond.](https://news.puppy-snuggles.com/48003119/my-boy-patrick-during-his-morning-wade-at-the-pond)
-- [Peanut passed away. I hope he&amp;#039;s happy wherever he is.](https://news.puppy-snuggles.com/34577663/peanut-passed-away-i-hope-hes-happy-wherever-he-is)
+- [My 12 year old good boy, Jax during and right after laser therapy treatment for arthritis and DDD](https://news.puppy-snuggles.com/65062862/my-12-year-old-good-boy-jax-during-and-right-after-laser-therapy-treatment-for-arthritis-and-ddd)
+- [It&amp;#039;s been two years, but whenever I come across her photo, I&amp;#039;m both happy &amp;amp;amp; sad at the same time. She was truly exceptional.](https://news.puppy-snuggles.com/65062856/its-been-two-years-but-whenever-i-come-across-her-photo-im-both-happy-amp-sad-at-the-same-time-she-was-truly-exceptional)
+- [Former District Dogs employee charged with animal cruelty for allegedly kicking puppy to death](https://news.puppy-snuggles.com/63616861/former-district-dogs-employee-charged-with-animal-cruelty-for-allegedly-kicking-puppy-to-death)
+- [I swear I don&amp;#039;t know what title to put on this photo hahaha it just makes me laugh a lot](https://news.puppy-snuggles.com/62356785/i-swear-i-dont-know-what-title-to-put-on-this-photo-hahaha-it-just-makes-me-laugh-a-lot)
+- [What breed is this good boy?](https://news.puppy-snuggles.com/58093972/what-breed-is-this-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
