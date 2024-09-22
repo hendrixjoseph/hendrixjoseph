@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 12 year old good boy, Jax during and right after laser therapy treatment for arthritis and DDD](https://news.puppy-snuggles.com/65062862/my-12-year-old-good-boy-jax-during-and-right-after-laser-therapy-treatment-for-arthritis-and-ddd)
-- [It&amp;#039;s been two years, but whenever I come across her photo, I&amp;#039;m both happy &amp;amp;amp; sad at the same time. She was truly exceptional.](https://news.puppy-snuggles.com/65062856/its-been-two-years-but-whenever-i-come-across-her-photo-im-both-happy-amp-sad-at-the-same-time-she-was-truly-exceptional)
-- [Former District Dogs employee charged with animal cruelty for allegedly kicking puppy to death](https://news.puppy-snuggles.com/63616861/former-district-dogs-employee-charged-with-animal-cruelty-for-allegedly-kicking-puppy-to-death)
-- [I swear I don&amp;#039;t know what title to put on this photo hahaha it just makes me laugh a lot](https://news.puppy-snuggles.com/62356785/i-swear-i-dont-know-what-title-to-put-on-this-photo-hahaha-it-just-makes-me-laugh-a-lot)
-- [What breed is this good boy?](https://news.puppy-snuggles.com/58093972/what-breed-is-this-good-boy)
+- [This is my baby, Coco. She was only with us for 6 months after we rescued her, but she made a huge impact in our lives. She had cerebral Hypoplasia &lpar;she wobbles and can’t walk straight&rpar;, which eventually gave her debilitating seizures. We miss her everyday.](https://news.puppy-snuggles.com/65164566/this-is-my-baby-coco-she-was-only-with-us-for-6-months-after-we-rescued-her-but-she-made-a-huge-impact-in-our-lives-she-had-cerebral-hypoplasia-she-wobbles-and-cant-walk-straight-which-eventually-gave-her-debilitating-seizures-we-miss-her-everyday)
+- [Can I see a picture of your dog? I&amp;#039;d like to pick one to design a Christmas-themed bag charm as a gift for him!](https://news.puppy-snuggles.com/64637769/can-i-see-a-picture-of-your-dog-id-like-to-pick-one-to-design-a-christmas-themed-bag-charm-as-a-gift-for-him)
+- [Happy birthday Reggae!! He’s a teenage rebel now! &lpar;Take 2&rpar;](https://news.puppy-snuggles.com/64417191/happy-birthday-reggae-hes-a-teenage-rebel-now-take-2)
+- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
+- [My boy Lou crossed the rainbow bridge today.](https://news.puppy-snuggles.com/62097881/my-boy-lou-crossed-the-rainbow-bridge-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
