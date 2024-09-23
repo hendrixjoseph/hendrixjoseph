@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is my baby, Coco. She was only with us for 6 months after we rescued her, but she made a huge impact in our lives. She had cerebral Hypoplasia &lpar;she wobbles and can’t walk straight&rpar;, which eventually gave her debilitating seizures. We miss her everyday.](https://news.puppy-snuggles.com/65164566/this-is-my-baby-coco-she-was-only-with-us-for-6-months-after-we-rescued-her-but-she-made-a-huge-impact-in-our-lives-she-had-cerebral-hypoplasia-she-wobbles-and-cant-walk-straight-which-eventually-gave-her-debilitating-seizures-we-miss-her-everyday)
-- [Can I see a picture of your dog? I&amp;#039;d like to pick one to design a Christmas-themed bag charm as a gift for him!](https://news.puppy-snuggles.com/64637769/can-i-see-a-picture-of-your-dog-id-like-to-pick-one-to-design-a-christmas-themed-bag-charm-as-a-gift-for-him)
-- [Happy birthday Reggae!! He’s a teenage rebel now! &lpar;Take 2&rpar;](https://news.puppy-snuggles.com/64417191/happy-birthday-reggae-hes-a-teenage-rebel-now-take-2)
-- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
-- [My boy Lou crossed the rainbow bridge today.](https://news.puppy-snuggles.com/62097881/my-boy-lou-crossed-the-rainbow-bridge-today)
+- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
+- [Up at our Happy Place! On the rocks running around getting sea spray on our furs. Always an adventure!](https://news.puppy-snuggles.com/65299165/up-at-our-happy-place-on-the-rocks-running-around-getting-sea-spray-on-our-furs-always-an-adventure)
+- [Howdy, I don&amp;#039;t share](https://news.puppy-snuggles.com/65261007/howdy-i-dont-share)
+- [Should I adopt a second dog?](https://news.puppy-snuggles.com/65242949/should-i-adopt-a-second-dog)
+- [Daaaaaaad. When are we going for a walk?](https://news.puppy-snuggles.com/65242950/daaaaaaad-when-are-we-going-for-a-walk)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
