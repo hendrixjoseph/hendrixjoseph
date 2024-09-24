@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
-- [Up at our Happy Place! On the rocks running around getting sea spray on our furs. Always an adventure!](https://news.puppy-snuggles.com/65299165/up-at-our-happy-place-on-the-rocks-running-around-getting-sea-spray-on-our-furs-always-an-adventure)
-- [Howdy, I don&amp;#039;t share](https://news.puppy-snuggles.com/65261007/howdy-i-dont-share)
-- [Should I adopt a second dog?](https://news.puppy-snuggles.com/65242949/should-i-adopt-a-second-dog)
-- [Daaaaaaad. When are we going for a walk?](https://news.puppy-snuggles.com/65242950/daaaaaaad-when-are-we-going-for-a-walk)
+- [Why people leave their dogs?](https://news.puppy-snuggles.com/65356924/why-people-leave-their-dogs)
+- [365 Days of Me &amp;amp;amp; Pepperoni Day 358](https://news.puppy-snuggles.com/65299162/365-days-of-me-amp-pepperoni-day-358)
+- [I’ll miss you](https://news.puppy-snuggles.com/65205097/ill-miss-you)
+- [Tw: euthanasia. Lost my dream dog](https://news.puppy-snuggles.com/65183634/tw-euthanasia-lost-my-dream-dog)
+- [RIP Georgie girl 7/18/2013-9/19/2024](https://news.puppy-snuggles.com/65164563/rip-georgie-girl-7182013-9192024)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
