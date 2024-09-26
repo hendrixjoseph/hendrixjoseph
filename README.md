@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does your puppy like baths? mine not, any suggeston？](https://news.puppy-snuggles.com/62713468/does-your-puppy-like-baths-mine-not-any-suggeston)
-- [Ain’t no smile bigger than a pitty pup smile.](https://news.puppy-snuggles.com/60145038/aint-no-smile-bigger-than-a-pitty-pup-smile)
-- [Neighbors doggo greets me like this every morning](https://news.puppy-snuggles.com/40707375/neighbors-doggo-greets-me-like-this-every-morning)
-- [Just a good boy enjoying the water](https://news.puppy-snuggles.com/37704875/just-a-good-boy-enjoying-the-water)
-- [My smiley princess](https://news.puppy-snuggles.com/35581482/my-smiley-princess)
+- [RIP Frankie](https://news.puppy-snuggles.com/65453272/rip-frankie)
+- [Yes Dad, I&amp;#039;ll eat 30 treats so you can take silly picture of me](https://news.puppy-snuggles.com/65434552/yes-dad-ill-eat-30-treats-so-you-can-take-silly-picture-of-me)
+- [Is your dog allowed in your sofa?](https://news.puppy-snuggles.com/65434551/is-your-dog-allowed-in-your-sofa)
+- [RIP Georgie girl 7/18/2013-9/19/2024](https://news.puppy-snuggles.com/65164563/rip-georgie-girl-7182013-9192024)
+- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
