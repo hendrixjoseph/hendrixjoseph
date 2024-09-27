@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Frankie](https://news.puppy-snuggles.com/65453272/rip-frankie)
-- [Yes Dad, I&amp;#039;ll eat 30 treats so you can take silly picture of me](https://news.puppy-snuggles.com/65434552/yes-dad-ill-eat-30-treats-so-you-can-take-silly-picture-of-me)
-- [Is your dog allowed in your sofa?](https://news.puppy-snuggles.com/65434551/is-your-dog-allowed-in-your-sofa)
-- [RIP Georgie girl 7/18/2013-9/19/2024](https://news.puppy-snuggles.com/65164563/rip-georgie-girl-7182013-9192024)
-- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
+- [She has been my faithful companion for almost 10 years, what is yours?](https://news.puppy-snuggles.com/64099513/she-has-been-my-faithful-companion-for-almost-10-years-what-is-yours)
+- [My foster, Maggie, went to her forever home!](https://news.puppy-snuggles.com/63562084/my-foster-maggie-went-to-her-forever-home)
+- [Does anyone else’s dog do this when they want a belly rub](https://news.puppy-snuggles.com/61422522/does-anyone-elses-dog-do-this-when-they-want-a-belly-rub)
+- [idk how he did it but is awesome](https://news.puppy-snuggles.com/60378581/idk-how-he-did-it-but-is-awesome)
+- [My neighbor died and left his dog, and it has been almost a year...](https://news.puppy-snuggles.com/34514508/my-neighbor-died-and-left-his-dog-and-it-has-been-almost-a-year)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
