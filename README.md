@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She has been my faithful companion for almost 10 years, what is yours?](https://news.puppy-snuggles.com/64099513/she-has-been-my-faithful-companion-for-almost-10-years-what-is-yours)
-- [My foster, Maggie, went to her forever home!](https://news.puppy-snuggles.com/63562084/my-foster-maggie-went-to-her-forever-home)
-- [Does anyone else’s dog do this when they want a belly rub](https://news.puppy-snuggles.com/61422522/does-anyone-elses-dog-do-this-when-they-want-a-belly-rub)
-- [idk how he did it but is awesome](https://news.puppy-snuggles.com/60378581/idk-how-he-did-it-but-is-awesome)
-- [My neighbor died and left his dog, and it has been almost a year...](https://news.puppy-snuggles.com/34514508/my-neighbor-died-and-left-his-dog-and-it-has-been-almost-a-year)
+- [parents aren’t home. you know what that means](https://news.puppy-snuggles.com/64099515/parents-arent-home-you-know-what-that-means)
+- [Moose and Willow. Happy Babies.](https://news.puppy-snuggles.com/63823723/moose-and-willow-happy-babies)
+- [Quick update on Pratt.](https://news.puppy-snuggles.com/63278412/quick-update-on-pratt)
+- [When you realize you&amp;#039;re at the vet and not the park](https://news.puppy-snuggles.com/61285057/when-you-realize-youre-at-the-vet-and-not-the-park)
+- [Happy doggie 😄](https://news.puppy-snuggles.com/60082551/happy-doggie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
