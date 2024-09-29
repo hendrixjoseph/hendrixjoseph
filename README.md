@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [parents aren’t home. you know what that means](https://news.puppy-snuggles.com/64099515/parents-arent-home-you-know-what-that-means)
-- [Moose and Willow. Happy Babies.](https://news.puppy-snuggles.com/63823723/moose-and-willow-happy-babies)
-- [Quick update on Pratt.](https://news.puppy-snuggles.com/63278412/quick-update-on-pratt)
-- [When you realize you&amp;#039;re at the vet and not the park](https://news.puppy-snuggles.com/61285057/when-you-realize-youre-at-the-vet-and-not-the-park)
-- [Happy doggie 😄](https://news.puppy-snuggles.com/60082551/happy-doggie)
+- [i love my dogs they are the only thing keeping me alive.](https://news.puppy-snuggles.com/65649198/i-love-my-dogs-they-are-the-only-thing-keeping-me-alive)
+- [Just a very handsome boy &amp;amp;amp; his self portrait](https://news.puppy-snuggles.com/65511211/just-a-very-handsome-boy-amp-his-self-portrait)
+- [Lady crossed the bridge this morning.](https://news.puppy-snuggles.com/64904883/lady-crossed-the-bridge-this-morning)
+- [My sweet girl who passed](https://news.puppy-snuggles.com/64617403/my-sweet-girl-who-passed)
+- [like my new shades?](https://news.puppy-snuggles.com/62097883/like-my-new-shades)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
