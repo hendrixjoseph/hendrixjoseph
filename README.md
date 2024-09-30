@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i love my dogs they are the only thing keeping me alive.](https://news.puppy-snuggles.com/65649198/i-love-my-dogs-they-are-the-only-thing-keeping-me-alive)
-- [Just a very handsome boy &amp;amp;amp; his self portrait](https://news.puppy-snuggles.com/65511211/just-a-very-handsome-boy-amp-his-self-portrait)
-- [Lady crossed the bridge this morning.](https://news.puppy-snuggles.com/64904883/lady-crossed-the-bridge-this-morning)
-- [My sweet girl who passed](https://news.puppy-snuggles.com/64617403/my-sweet-girl-who-passed)
-- [like my new shades?](https://news.puppy-snuggles.com/62097883/like-my-new-shades)
+- [365 Days of Me &amp;amp;amp; Pepperoni Day 364](https://news.puppy-snuggles.com/65725258/365-days-of-me-amp-pepperoni-day-364)
+- [hello! pls smile!!!](https://news.puppy-snuggles.com/65610807/hello-pls-smile)
+- [Rocky was taken from us last week by a juvenile snake, they are coming out for summer and are full of venom. We are all heartbroken...such a gentle giant. 💔](https://news.puppy-snuggles.com/65572565/rocky-was-taken-from-us-last-week-by-a-juvenile-snake-they-are-coming-out-for-summer-and-are-full-of-venom-we-are-all-heartbrokensuch-a-gentle-giant)
+- [My boy passed this morning](https://news.puppy-snuggles.com/65534238/my-boy-passed-this-morning)
+- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
