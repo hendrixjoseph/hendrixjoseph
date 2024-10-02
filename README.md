@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Me &amp;amp;amp; Pepperoni Day 364](https://news.puppy-snuggles.com/65725258/365-days-of-me-amp-pepperoni-day-364)
-- [hello! pls smile!!!](https://news.puppy-snuggles.com/65610807/hello-pls-smile)
-- [Rocky was taken from us last week by a juvenile snake, they are coming out for summer and are full of venom. We are all heartbroken...such a gentle giant. 💔](https://news.puppy-snuggles.com/65572565/rocky-was-taken-from-us-last-week-by-a-juvenile-snake-they-are-coming-out-for-summer-and-are-full-of-venom-we-are-all-heartbrokensuch-a-gentle-giant)
-- [My boy passed this morning](https://news.puppy-snuggles.com/65534238/my-boy-passed-this-morning)
-- [Somebody missed me while I was gone. All smiles now!](https://news.puppy-snuggles.com/60294151/somebody-missed-me-while-i-was-gone-all-smiles-now)
+- [Can I see a picture of your dog? I&amp;#039;d like to pick one to design a Christmas-themed bag charm as a gift for him!](https://news.puppy-snuggles.com/64637769/can-i-see-a-picture-of-your-dog-id-like-to-pick-one-to-design-a-christmas-themed-bag-charm-as-a-gift-for-him)
+- [like my new shades?](https://news.puppy-snuggles.com/62097883/like-my-new-shades)
+- [summer vacation - any title for this](https://news.puppy-snuggles.com/38891786/summer-vacation-any-title-for-this)
+- [Help us name this beautiful girl. We are so undecided.](https://news.puppy-snuggles.com/37074691/help-us-name-this-beautiful-girl-we-are-so-undecided)
+- [she is sooooo cuuute](https://news.puppy-snuggles.com/36889215/she-is-sooooo-cuuute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
