@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can I see a picture of your dog? I&amp;#039;d like to pick one to design a Christmas-themed bag charm as a gift for him!](https://news.puppy-snuggles.com/64637769/can-i-see-a-picture-of-your-dog-id-like-to-pick-one-to-design-a-christmas-themed-bag-charm-as-a-gift-for-him)
-- [like my new shades?](https://news.puppy-snuggles.com/62097883/like-my-new-shades)
-- [summer vacation - any title for this](https://news.puppy-snuggles.com/38891786/summer-vacation-any-title-for-this)
-- [Help us name this beautiful girl. We are so undecided.](https://news.puppy-snuggles.com/37074691/help-us-name-this-beautiful-girl-we-are-so-undecided)
-- [she is sooooo cuuute](https://news.puppy-snuggles.com/36889215/she-is-sooooo-cuuute)
+- [Big cheesy smiles from my lil buddy](https://news.puppy-snuggles.com/65688052/big-cheesy-smiles-from-my-lil-buddy)
+- [She had to go today, hardest day of my life in 45 years.](https://news.puppy-snuggles.com/65688048/she-had-to-go-today-hardest-day-of-my-life-in-45-years)
+- [My sweet girl who passed](https://news.puppy-snuggles.com/64617403/my-sweet-girl-who-passed)
+- [Conwy: Dog owner&amp;#039;s warning about bad breeders after &amp;#039;traumatising&amp;#039; puppy death](https://news.puppy-snuggles.com/63491923/conwy-dog-owners-warning-about-bad-breeders-after-traumatising-puppy-death)
+- [I have 16 dogs as of right now. 😅](https://news.puppy-snuggles.com/61666591/i-have-16-dogs-as-of-right-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
