@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big cheesy smiles from my lil buddy](https://news.puppy-snuggles.com/65688052/big-cheesy-smiles-from-my-lil-buddy)
-- [She had to go today, hardest day of my life in 45 years.](https://news.puppy-snuggles.com/65688048/she-had-to-go-today-hardest-day-of-my-life-in-45-years)
-- [My sweet girl who passed](https://news.puppy-snuggles.com/64617403/my-sweet-girl-who-passed)
-- [Conwy: Dog owner&amp;#039;s warning about bad breeders after &amp;#039;traumatising&amp;#039; puppy death](https://news.puppy-snuggles.com/63491923/conwy-dog-owners-warning-about-bad-breeders-after-traumatising-puppy-death)
-- [I have 16 dogs as of right now. 😅](https://news.puppy-snuggles.com/61666591/i-have-16-dogs-as-of-right-now)
+- [Hiding in the grass this morning](https://news.puppy-snuggles.com/65024611/hiding-in-the-grass-this-morning)
+- [Chloe being distinguished](https://news.puppy-snuggles.com/65024612/chloe-being-distinguished)
+- [My buddy!](https://news.puppy-snuggles.com/65024613/my-buddy)
+- [Excited to be at the park](https://news.puppy-snuggles.com/65024615/excited-to-be-at-the-park)
+- [Dog breeder found dead and as many as 10 of his Doberman puppies have vanished](https://news.puppy-snuggles.com/63616856/dog-breeder-found-dead-and-as-many-as-10-of-his-doberman-puppies-have-vanished)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
