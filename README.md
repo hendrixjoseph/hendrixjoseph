@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hiding in the grass this morning](https://news.puppy-snuggles.com/65024611/hiding-in-the-grass-this-morning)
-- [Chloe being distinguished](https://news.puppy-snuggles.com/65024612/chloe-being-distinguished)
-- [My buddy!](https://news.puppy-snuggles.com/65024613/my-buddy)
-- [Excited to be at the park](https://news.puppy-snuggles.com/65024615/excited-to-be-at-the-park)
-- [Dog breeder found dead and as many as 10 of his Doberman puppies have vanished](https://news.puppy-snuggles.com/63616856/dog-breeder-found-dead-and-as-many-as-10-of-his-doberman-puppies-have-vanished)
+- [Molly will be my first dog and ill give her a forever home because iam going to adopt her.](https://news.puppy-snuggles.com/65024610/molly-will-be-my-first-dog-and-ill-give-her-a-forever-home-because-iam-going-to-adopt-her)
+- [Dog appreciation post](https://news.puppy-snuggles.com/64963877/dog-appreciation-post)
+- [We bought a camper trailer so we can take the dogs on vacation with us and I think Onyx is pretty excited about it.](https://news.puppy-snuggles.com/54447021/we-bought-a-camper-trailer-so-we-can-take-the-dogs-on-vacation-with-us-and-i-think-onyx-is-pretty-excited-about-it)
+- [My baby girl Frankie](https://news.puppy-snuggles.com/44398907/my-baby-girl-frankie)
+- [When Dogs and Cows Become Family: Adorable Video of Unlikely Companionship!](https://news.puppy-snuggles.com/35960981/when-dogs-and-cows-become-family-adorable-video-of-unlikely-companionship)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
