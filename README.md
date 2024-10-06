@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Molly will be my first dog and ill give her a forever home because iam going to adopt her.](https://news.puppy-snuggles.com/65024610/molly-will-be-my-first-dog-and-ill-give-her-a-forever-home-because-iam-going-to-adopt-her)
-- [Dog appreciation post](https://news.puppy-snuggles.com/64963877/dog-appreciation-post)
-- [We bought a camper trailer so we can take the dogs on vacation with us and I think Onyx is pretty excited about it.](https://news.puppy-snuggles.com/54447021/we-bought-a-camper-trailer-so-we-can-take-the-dogs-on-vacation-with-us-and-i-think-onyx-is-pretty-excited-about-it)
-- [My baby girl Frankie](https://news.puppy-snuggles.com/44398907/my-baby-girl-frankie)
-- [When Dogs and Cows Become Family: Adorable Video of Unlikely Companionship!](https://news.puppy-snuggles.com/35960981/when-dogs-and-cows-become-family-adorable-video-of-unlikely-companionship)
+- [The world’s best boy on his final car ride this morning. I will miss him for the rest of my life.](https://news.puppy-snuggles.com/66207112/the-worlds-best-boy-on-his-final-car-ride-this-morning-i-will-miss-him-for-the-rest-of-my-life)
+- [Elmo loves his stick :&rpar;](https://news.puppy-snuggles.com/66207114/elmo-loves-his-stick)
+- [I will draw your dogs for the next 24 hours to see how many we can get done. Submit them below!](https://news.puppy-snuggles.com/66207116/i-will-draw-your-dogs-for-the-next-24-hours-to-see-how-many-we-can-get-done-submit-them-below)
+- [Good bye sweet girl.](https://news.puppy-snuggles.com/66207115/good-bye-sweet-girl)
+- [Goodbye, good boy](https://news.puppy-snuggles.com/66207113/goodbye-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
