@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The world’s best boy on his final car ride this morning. I will miss him for the rest of my life.](https://news.puppy-snuggles.com/66207112/the-worlds-best-boy-on-his-final-car-ride-this-morning-i-will-miss-him-for-the-rest-of-my-life)
-- [Elmo loves his stick :&rpar;](https://news.puppy-snuggles.com/66207114/elmo-loves-his-stick)
-- [I will draw your dogs for the next 24 hours to see how many we can get done. Submit them below!](https://news.puppy-snuggles.com/66207116/i-will-draw-your-dogs-for-the-next-24-hours-to-see-how-many-we-can-get-done-submit-them-below)
-- [Good bye sweet girl.](https://news.puppy-snuggles.com/66207115/good-bye-sweet-girl)
-- [Goodbye, good boy](https://news.puppy-snuggles.com/66207113/goodbye-good-boy)
+- [Lost my boy to cancer](https://news.puppy-snuggles.com/63377521/lost-my-boy-to-cancer)
+- [Lost my sweet girl Lu last week.](https://news.puppy-snuggles.com/62986192/lost-my-sweet-girl-lu-last-week)
+- [She’s been gone over a year now, but today would be her 13th birthday. Happy birthday, Winnie! 🎂](https://news.puppy-snuggles.com/61180360/shes-been-gone-over-a-year-now-but-today-would-be-her-13th-birthday-happy-birthday-winnie)
+- [Show me your dog with their friends](https://news.puppy-snuggles.com/56755300/show-me-your-dog-with-their-friends)
+- [Help me name this girl](https://news.puppy-snuggles.com/42883386/help-me-name-this-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
