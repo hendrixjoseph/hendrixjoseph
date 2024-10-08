@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [September 2024 Book Reading List](https://www.joehxblog.com/september-2024-book-reading-list/)
 - [September 2024 Blog Statistics](https://www.joehxblog.com/september-2024-blog-statistics/)
 - [August 2024 Book Reading List](https://www.joehxblog.com/august-2024-book-reading-list/)
 - [August 2024 Blog Statistics](https://www.joehxblog.com/august-2024-blog-statistics/)
 - [July 2024 Book Reading List](https://www.joehxblog.com/july-2024-book-reading-list/)
-- [Is Running a More Efficient Way to Travel Than Walking?](https://www.joehxblog.com/is-running-a-more-efficient-way-to-travel-than-walking/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
