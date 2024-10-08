@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lost my boy to cancer](https://news.puppy-snuggles.com/63377521/lost-my-boy-to-cancer)
-- [Lost my sweet girl Lu last week.](https://news.puppy-snuggles.com/62986192/lost-my-sweet-girl-lu-last-week)
-- [She’s been gone over a year now, but today would be her 13th birthday. Happy birthday, Winnie! 🎂](https://news.puppy-snuggles.com/61180360/shes-been-gone-over-a-year-now-but-today-would-be-her-13th-birthday-happy-birthday-winnie)
-- [Show me your dog with their friends](https://news.puppy-snuggles.com/56755300/show-me-your-dog-with-their-friends)
-- [Help me name this girl](https://news.puppy-snuggles.com/42883386/help-me-name-this-girl)
+- [My buddy Calvin went to sleep for the final time this weekend and I miss him dearly](https://news.puppy-snuggles.com/66336456/my-buddy-calvin-went-to-sleep-for-the-final-time-this-weekend-and-i-miss-him-dearly)
+- [what breed is this dog ?](https://news.puppy-snuggles.com/66336453/what-breed-is-this-dog)
+- [Daisy would like everyone to see her Halloween costume for this year](https://news.puppy-snuggles.com/66336454/daisy-would-like-everyone-to-see-her-halloween-costume-for-this-year)
+- [Always so happy in the mornings. Never seen her not be excited for her walks.](https://news.puppy-snuggles.com/66336455/always-so-happy-in-the-mornings-never-seen-her-not-be-excited-for-her-walks)
+- [hello! pls smile!!!](https://news.puppy-snuggles.com/65610807/hello-pls-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
