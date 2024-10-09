@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My buddy Calvin went to sleep for the final time this weekend and I miss him dearly](https://news.puppy-snuggles.com/66336456/my-buddy-calvin-went-to-sleep-for-the-final-time-this-weekend-and-i-miss-him-dearly)
-- [what breed is this dog ?](https://news.puppy-snuggles.com/66336453/what-breed-is-this-dog)
-- [Daisy would like everyone to see her Halloween costume for this year](https://news.puppy-snuggles.com/66336454/daisy-would-like-everyone-to-see-her-halloween-costume-for-this-year)
-- [Always so happy in the mornings. Never seen her not be excited for her walks.](https://news.puppy-snuggles.com/66336455/always-so-happy-in-the-mornings-never-seen-her-not-be-excited-for-her-walks)
-- [hello! pls smile!!!](https://news.puppy-snuggles.com/65610807/hello-pls-smile)
+- [My Cinnamon Roll](https://news.puppy-snuggles.com/66392814/my-cinnamon-roll)
+- [Does your pup have interesting eyes? Can I see?](https://news.puppy-snuggles.com/64417190/does-your-pup-have-interesting-eyes-can-i-see)
+- [A Goldie a day, keeps the doctor away!](https://news.puppy-snuggles.com/64099509/a-goldie-a-day-keeps-the-doctor-away)
+- [The best smile you can see in the day, right?🙈](https://news.puppy-snuggles.com/63672454/the-best-smile-you-can-see-in-the-day-right)
+- [My 10y/o still looks like a baby](https://news.puppy-snuggles.com/62986197/my-10yo-still-looks-like-a-baby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
