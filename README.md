@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Cinnamon Roll](https://news.puppy-snuggles.com/66392814/my-cinnamon-roll)
-- [Does your pup have interesting eyes? Can I see?](https://news.puppy-snuggles.com/64417190/does-your-pup-have-interesting-eyes-can-i-see)
-- [A Goldie a day, keeps the doctor away!](https://news.puppy-snuggles.com/64099509/a-goldie-a-day-keeps-the-doctor-away)
-- [The best smile you can see in the day, right?🙈](https://news.puppy-snuggles.com/63672454/the-best-smile-you-can-see-in-the-day-right)
-- [My 10y/o still looks like a baby](https://news.puppy-snuggles.com/62986197/my-10yo-still-looks-like-a-baby)
+- [R.I.P Finn. You will be missed.](https://news.puppy-snuggles.com/66469328/rip-finn-you-will-be-missed)
+- [always happy :&rpar;](https://news.puppy-snuggles.com/66469330/always-happy)
+- [Please don’t leave Pa!](https://news.puppy-snuggles.com/66469331/please-dont-leave-pa)
+- [What did the caramel do to get arrested?](https://news.puppy-snuggles.com/66469332/what-did-the-caramel-do-to-get-arrested)
+- [This is my beloved boy Rocky, we never let him on the table but he looked so cute I couldn&amp;#039;t not capture the moment!](https://news.puppy-snuggles.com/66469329/this-is-my-beloved-boy-rocky-we-never-let-him-on-the-table-but-he-looked-so-cute-i-couldnt-not-capture-the-moment)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
