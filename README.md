@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [R.I.P Finn. You will be missed.](https://news.puppy-snuggles.com/66469328/rip-finn-you-will-be-missed)
-- [always happy :&rpar;](https://news.puppy-snuggles.com/66469330/always-happy)
-- [Please don’t leave Pa!](https://news.puppy-snuggles.com/66469331/please-dont-leave-pa)
-- [What did the caramel do to get arrested?](https://news.puppy-snuggles.com/66469332/what-did-the-caramel-do-to-get-arrested)
-- [This is my beloved boy Rocky, we never let him on the table but he looked so cute I couldn&amp;#039;t not capture the moment!](https://news.puppy-snuggles.com/66469329/this-is-my-beloved-boy-rocky-we-never-let-him-on-the-table-but-he-looked-so-cute-i-couldnt-not-capture-the-moment)
+- [Last picture we have of our sweet Laika, please send warm thoughts for her she was truly a wonderful soul. We were blessed to have her in our lives. ♥️](https://news.puppy-snuggles.com/64144724/last-picture-we-have-of-our-sweet-laika-please-send-warm-thoughts-for-her-she-was-truly-a-wonderful-soul-we-were-blessed-to-have-her-in-our-lives)
+- [This is my baby doggo 🐶 I actually said smile 🤣🫶🏼](https://news.puppy-snuggles.com/63396725/this-is-my-baby-doggo-i-actually-said-smile)
+- [I need a na...her name is Bunny, she&amp;#039;s my little womble](https://news.puppy-snuggles.com/62574621/i-need-a-naher-name-is-bunny-shes-my-little-womble)
+- [a stylish dog seen in retiro, argentina](https://news.puppy-snuggles.com/59644057/a-stylish-dog-seen-in-retiro-argentina)
+- [Dog found nearly beaten to death in York County, police investigating](https://news.puppy-snuggles.com/40117183/dog-found-nearly-beaten-to-death-in-york-county-police-investigating)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
