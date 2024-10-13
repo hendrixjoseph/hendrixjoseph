@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Last picture we have of our sweet Laika, please send warm thoughts for her she was truly a wonderful soul. We were blessed to have her in our lives. ♥️](https://news.puppy-snuggles.com/64144724/last-picture-we-have-of-our-sweet-laika-please-send-warm-thoughts-for-her-she-was-truly-a-wonderful-soul-we-were-blessed-to-have-her-in-our-lives)
-- [This is my baby doggo 🐶 I actually said smile 🤣🫶🏼](https://news.puppy-snuggles.com/63396725/this-is-my-baby-doggo-i-actually-said-smile)
-- [I need a na...her name is Bunny, she&amp;#039;s my little womble](https://news.puppy-snuggles.com/62574621/i-need-a-naher-name-is-bunny-shes-my-little-womble)
-- [a stylish dog seen in retiro, argentina](https://news.puppy-snuggles.com/59644057/a-stylish-dog-seen-in-retiro-argentina)
-- [Dog found nearly beaten to death in York County, police investigating](https://news.puppy-snuggles.com/40117183/dog-found-nearly-beaten-to-death-in-york-county-police-investigating)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 13](https://news.puppy-snuggles.com/66680591/365-days-of-pepperoni-amp-her-mama-day-13)
+- [My buddy Calvin went to sleep for the final time this weekend and I miss him dearly](https://news.puppy-snuggles.com/66336456/my-buddy-calvin-went-to-sleep-for-the-final-time-this-weekend-and-i-miss-him-dearly)
+- [Cheeky chops!](https://news.puppy-snuggles.com/65356921/cheeky-chops)
+- [what greets me when i come home from my 9.5 hour shifts](https://news.puppy-snuggles.com/65164567/what-greets-me-when-i-come-home-from-my-95-hour-shifts)
+- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
