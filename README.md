@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 13](https://news.puppy-snuggles.com/66680591/365-days-of-pepperoni-amp-her-mama-day-13)
-- [My buddy Calvin went to sleep for the final time this weekend and I miss him dearly](https://news.puppy-snuggles.com/66336456/my-buddy-calvin-went-to-sleep-for-the-final-time-this-weekend-and-i-miss-him-dearly)
-- [Cheeky chops!](https://news.puppy-snuggles.com/65356921/cheeky-chops)
-- [what greets me when i come home from my 9.5 hour shifts](https://news.puppy-snuggles.com/65164567/what-greets-me-when-i-come-home-from-my-95-hour-shifts)
-- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
+- [Three months today since my beautiful baby boy went to the rainbow bridge. Brutus, mummy misses you so very much and I&amp;#039;ll love you forever.](https://news.puppy-snuggles.com/66734855/three-months-today-since-my-beautiful-baby-boy-went-to-the-rainbow-bridge-brutus-mummy-misses-you-so-very-much-and-ill-love-you-forever)
+- [365 Days of Me &amp;amp;amp; Pepperoni Day 364](https://news.puppy-snuggles.com/65725258/365-days-of-me-amp-pepperoni-day-364)
+- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
+- [Howdy, I don&amp;#039;t share](https://news.puppy-snuggles.com/65261007/howdy-i-dont-share)
+- [Moose and Willow. Happy Babies.](https://news.puppy-snuggles.com/63823723/moose-and-willow-happy-babies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
