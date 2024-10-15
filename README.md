@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Three months today since my beautiful baby boy went to the rainbow bridge. Brutus, mummy misses you so very much and I&amp;#039;ll love you forever.](https://news.puppy-snuggles.com/66734855/three-months-today-since-my-beautiful-baby-boy-went-to-the-rainbow-bridge-brutus-mummy-misses-you-so-very-much-and-ill-love-you-forever)
-- [365 Days of Me &amp;amp;amp; Pepperoni Day 364](https://news.puppy-snuggles.com/65725258/365-days-of-me-amp-pepperoni-day-364)
-- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
-- [Howdy, I don&amp;#039;t share](https://news.puppy-snuggles.com/65261007/howdy-i-dont-share)
-- [Moose and Willow. Happy Babies.](https://news.puppy-snuggles.com/63823723/moose-and-willow-happy-babies)
+- [A very happy boy enjoying time with Dad](https://news.puppy-snuggles.com/65781437/a-very-happy-boy-enjoying-time-with-dad)
+- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
+- [I lost Pratt](https://news.puppy-snuggles.com/63518778/i-lost-pratt)
+- [If only love could prevent the effects of time](https://news.puppy-snuggles.com/63199212/if-only-love-could-prevent-the-effects-of-time)
+- [Happy girl](https://news.puppy-snuggles.com/62986194/happy-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
