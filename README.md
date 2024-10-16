@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A very happy boy enjoying time with Dad](https://news.puppy-snuggles.com/65781437/a-very-happy-boy-enjoying-time-with-dad)
-- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
-- [I lost Pratt](https://news.puppy-snuggles.com/63518778/i-lost-pratt)
-- [If only love could prevent the effects of time](https://news.puppy-snuggles.com/63199212/if-only-love-could-prevent-the-effects-of-time)
-- [Happy girl](https://news.puppy-snuggles.com/62986194/happy-girl)
+- [Said ‘goodbye’ to my faithful companion Scout today.](https://news.puppy-snuggles.com/66884842/said-goodbye-to-my-faithful-companion-scout-today)
+- [A unicorn and a moose walk into a bar …….](https://news.puppy-snuggles.com/66884843/a-unicorn-and-a-moose-walk-into-a-bar)
+- [R.I.P Finn. You will be missed.](https://news.puppy-snuggles.com/66469328/rip-finn-you-will-be-missed)
+- [Bindi, the rescue dog with the broken spine, just did the one thing the vet said was impossible!!! SHE WAGGED HER TAIL!!!!! Progress video for those following her journey ^_^](https://news.puppy-snuggles.com/66281664/bindi-the-rescue-dog-with-the-broken-spine-just-did-the-one-thing-the-vet-said-was-impossible-she-wagged-her-tail-progress-video-for-those-following-her-journey)
+- [When someone calls you a good boy](https://news.puppy-snuggles.com/65781442/when-someone-calls-you-a-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
