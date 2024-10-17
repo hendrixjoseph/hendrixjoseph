@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said ‘goodbye’ to my faithful companion Scout today.](https://news.puppy-snuggles.com/66884842/said-goodbye-to-my-faithful-companion-scout-today)
-- [A unicorn and a moose walk into a bar …….](https://news.puppy-snuggles.com/66884843/a-unicorn-and-a-moose-walk-into-a-bar)
-- [R.I.P Finn. You will be missed.](https://news.puppy-snuggles.com/66469328/rip-finn-you-will-be-missed)
-- [Bindi, the rescue dog with the broken spine, just did the one thing the vet said was impossible!!! SHE WAGGED HER TAIL!!!!! Progress video for those following her journey ^_^](https://news.puppy-snuggles.com/66281664/bindi-the-rescue-dog-with-the-broken-spine-just-did-the-one-thing-the-vet-said-was-impossible-she-wagged-her-tail-progress-video-for-those-following-her-journey)
-- [When someone calls you a good boy](https://news.puppy-snuggles.com/65781442/when-someone-calls-you-a-good-boy)
+- [Stopped at a red light to give an unhoused woman some cash - she took it, but also gave me a puppy, telling me “give her a better life than I can.”](https://news.puppy-snuggles.com/66945599/stopped-at-a-red-light-to-give-an-unhoused-woman-some-cash-she-took-it-but-also-gave-me-a-puppy-telling-me-give-her-a-better-life-than-i-can)
+- [Show me your Yoda! This is my 10 month old baby Yoda today.](https://news.puppy-snuggles.com/60378582/show-me-your-yoda-this-is-my-10-month-old-baby-yoda-today)
+- [Show me your dogs with ridiculous ears](https://news.puppy-snuggles.com/59107650/show-me-your-dogs-with-ridiculous-ears)
+- [Adopted this abandoned dog, and this is first time he sees the beach :D](https://news.puppy-snuggles.com/44250705/adopted-this-abandoned-dog-and-this-is-first-time-he-sees-the-beach-d)
+- [He really is happy](https://news.puppy-snuggles.com/24324639/he-really-is-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
