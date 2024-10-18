@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Stopped at a red light to give an unhoused woman some cash - she took it, but also gave me a puppy, telling me “give her a better life than I can.”](https://news.puppy-snuggles.com/66945599/stopped-at-a-red-light-to-give-an-unhoused-woman-some-cash-she-took-it-but-also-gave-me-a-puppy-telling-me-give-her-a-better-life-than-i-can)
-- [Show me your Yoda! This is my 10 month old baby Yoda today.](https://news.puppy-snuggles.com/60378582/show-me-your-yoda-this-is-my-10-month-old-baby-yoda-today)
-- [Show me your dogs with ridiculous ears](https://news.puppy-snuggles.com/59107650/show-me-your-dogs-with-ridiculous-ears)
-- [Adopted this abandoned dog, and this is first time he sees the beach :D](https://news.puppy-snuggles.com/44250705/adopted-this-abandoned-dog-and-this-is-first-time-he-sees-the-beach-d)
-- [He really is happy](https://news.puppy-snuggles.com/24324639/he-really-is-happy)
+- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
+- [Just found out my boy has stage 4 lymphoma at 12 years old😔](https://news.puppy-snuggles.com/61708237/just-found-out-my-boy-has-stage-4-lymphoma-at-12-years-old)
+- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
+- [This is Ozzie. If today is a bad day, feel free to boop his nose. He says it&amp;#039;s ok.](https://news.puppy-snuggles.com/60561826/this-is-ozzie-if-today-is-a-bad-day-feel-free-to-boop-his-nose-he-says-its-ok)
+- [Guess who just found out they are 51% pomsky!](https://news.puppy-snuggles.com/52252929/guess-who-just-found-out-they-are-51-pomsky)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
