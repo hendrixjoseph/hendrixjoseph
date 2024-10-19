@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
-- [Just found out my boy has stage 4 lymphoma at 12 years old😔](https://news.puppy-snuggles.com/61708237/just-found-out-my-boy-has-stage-4-lymphoma-at-12-years-old)
-- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
-- [This is Ozzie. If today is a bad day, feel free to boop his nose. He says it&amp;#039;s ok.](https://news.puppy-snuggles.com/60561826/this-is-ozzie-if-today-is-a-bad-day-feel-free-to-boop-his-nose-he-says-its-ok)
-- [Guess who just found out they are 51% pomsky!](https://news.puppy-snuggles.com/52252929/guess-who-just-found-out-they-are-51-pomsky)
+- [Immediately after her first hike with my parents and brothers](https://news.puppy-snuggles.com/65725260/immediately-after-her-first-hike-with-my-parents-and-brothers)
+- [Colorado dog breeder found dead: Investigators asking for help finding 10 missing puppies](https://news.puppy-snuggles.com/63616863/colorado-dog-breeder-found-dead-investigators-asking-for-help-finding-10-missing-puppies)
+- [Faking an accident to get me in trouble because I didn’t pay the cheese tax](https://news.puppy-snuggles.com/61624977/faking-an-accident-to-get-me-in-trouble-because-i-didnt-pay-the-cheese-tax)
+- [Show my your pup&amp;#039;s vehicle safety set up.](https://news.puppy-snuggles.com/61263620/show-my-your-pups-vehicle-safety-set-up)
+- [My sweet boy Tony Stark crossed the rainbow bridge last night, I’ll miss you forever buddy](https://news.puppy-snuggles.com/53073508/my-sweet-boy-tony-stark-crossed-the-rainbow-bridge-last-night-ill-miss-you-forever-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
