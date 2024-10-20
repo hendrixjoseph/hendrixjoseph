@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Immediately after her first hike with my parents and brothers](https://news.puppy-snuggles.com/65725260/immediately-after-her-first-hike-with-my-parents-and-brothers)
-- [Colorado dog breeder found dead: Investigators asking for help finding 10 missing puppies](https://news.puppy-snuggles.com/63616863/colorado-dog-breeder-found-dead-investigators-asking-for-help-finding-10-missing-puppies)
-- [Faking an accident to get me in trouble because I didn’t pay the cheese tax](https://news.puppy-snuggles.com/61624977/faking-an-accident-to-get-me-in-trouble-because-i-didnt-pay-the-cheese-tax)
-- [Show my your pup&amp;#039;s vehicle safety set up.](https://news.puppy-snuggles.com/61263620/show-my-your-pups-vehicle-safety-set-up)
-- [My sweet boy Tony Stark crossed the rainbow bridge last night, I’ll miss you forever buddy](https://news.puppy-snuggles.com/53073508/my-sweet-boy-tony-stark-crossed-the-rainbow-bridge-last-night-ill-miss-you-forever-buddy)
+- [My lil Delilah](https://news.puppy-snuggles.com/67138372/my-lil-delilah)
+- [A unicorn and a moose walk into a bar …….](https://news.puppy-snuggles.com/66884843/a-unicorn-and-a-moose-walk-into-a-bar)
+- [My beautiful boy has gained his wings and gone to the rainbow bridge. Thank you for 17 amazing years diesel. I’ll never forget you old friend 🙏❤️](https://news.puppy-snuggles.com/66627031/my-beautiful-boy-has-gained-his-wings-and-gone-to-the-rainbow-bridge-thank-you-for-17-amazing-years-diesel-ill-never-forget-you-old-friend)
+- [Post-walk &amp;amp;amp; belly rub smiles 🐶](https://news.puppy-snuggles.com/66281666/post-walk-amp-belly-rub-smiles)
+- [one year ago today, i said goodbye to my little toilet paper monster](https://news.puppy-snuggles.com/65062866/one-year-ago-today-i-said-goodbye-to-my-little-toilet-paper-monster)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
