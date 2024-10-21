@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My lil Delilah](https://news.puppy-snuggles.com/67138372/my-lil-delilah)
-- [A unicorn and a moose walk into a bar …….](https://news.puppy-snuggles.com/66884843/a-unicorn-and-a-moose-walk-into-a-bar)
-- [My beautiful boy has gained his wings and gone to the rainbow bridge. Thank you for 17 amazing years diesel. I’ll never forget you old friend 🙏❤️](https://news.puppy-snuggles.com/66627031/my-beautiful-boy-has-gained-his-wings-and-gone-to-the-rainbow-bridge-thank-you-for-17-amazing-years-diesel-ill-never-forget-you-old-friend)
-- [Post-walk &amp;amp;amp; belly rub smiles 🐶](https://news.puppy-snuggles.com/66281666/post-walk-amp-belly-rub-smiles)
-- [one year ago today, i said goodbye to my little toilet paper monster](https://news.puppy-snuggles.com/65062866/one-year-ago-today-i-said-goodbye-to-my-little-toilet-paper-monster)
+- [My baby Butch’s first time at the Park!](https://news.puppy-snuggles.com/63562081/my-baby-butchs-first-time-at-the-park)
+- [Let’s see those “you gonna give me a piece of the food you’re eating?” pictures 🤤🤤](https://news.puppy-snuggles.com/62269928/lets-see-those-you-gonna-give-me-a-piece-of-the-food-youre-eating-pictures)
+- [I don&amp;#039;t have a dog, I have a ✨self-charging solar alarm system✨](https://news.puppy-snuggles.com/62248720/i-dont-have-a-dog-i-have-a-self-charging-solar-alarm-system)
+- [Dog starts a house fire after chewing through a portable lithium-ion battery. all pets escaped safely](https://news.puppy-snuggles.com/62183809/dog-starts-a-house-fire-after-chewing-through-a-portable-lithium-ion-battery-all-pets-escaped-safely)
+- [Is my pup super patient just to please me or because he actually likes our kitten ? &lpar;we have her for 2 weeks now&rpar;](https://news.puppy-snuggles.com/61987312/is-my-pup-super-patient-just-to-please-me-or-because-he-actually-likes-our-kitten-we-have-her-for-2-weeks-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
