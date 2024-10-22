@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby Butch’s first time at the Park!](https://news.puppy-snuggles.com/63562081/my-baby-butchs-first-time-at-the-park)
-- [Let’s see those “you gonna give me a piece of the food you’re eating?” pictures 🤤🤤](https://news.puppy-snuggles.com/62269928/lets-see-those-you-gonna-give-me-a-piece-of-the-food-youre-eating-pictures)
-- [I don&amp;#039;t have a dog, I have a ✨self-charging solar alarm system✨](https://news.puppy-snuggles.com/62248720/i-dont-have-a-dog-i-have-a-self-charging-solar-alarm-system)
-- [Dog starts a house fire after chewing through a portable lithium-ion battery. all pets escaped safely](https://news.puppy-snuggles.com/62183809/dog-starts-a-house-fire-after-chewing-through-a-portable-lithium-ion-battery-all-pets-escaped-safely)
-- [Is my pup super patient just to please me or because he actually likes our kitten ? &lpar;we have her for 2 weeks now&rpar;](https://news.puppy-snuggles.com/61987312/is-my-pup-super-patient-just-to-please-me-or-because-he-actually-likes-our-kitten-we-have-her-for-2-weeks-now)
+- [Is my doggy a good boy???](https://news.puppy-snuggles.com/67203280/is-my-doggy-a-good-boy)
+- [I suspect my daughter isn&amp;#039;t securing her chore money out of puppy-reach](https://news.puppy-snuggles.com/65299164/i-suspect-my-daughter-isnt-securing-her-chore-money-out-of-puppy-reach)
+- [Letting my mom&amp;#039;s dogs see her body](https://news.puppy-snuggles.com/62097878/letting-my-moms-dogs-see-her-body)
+- [The Shelter VS. Forever Home](https://news.puppy-snuggles.com/19951059/the-shelter-vs-forever-home)
+- [My own little Sith Lord](https://news.puppy-snuggles.com/16681046/my-own-little-sith-lord)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
