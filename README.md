@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She came into my life when I needed her, and left when she knew I&amp;#039;d be okay. Rest in peace, Mouse.](https://news.puppy-snuggles.com/67296897/she-came-into-my-life-when-i-needed-her-and-left-when-she-knew-id-be-okay-rest-in-peace-mouse)
-- [Dog walker just sent me this... Think she was having a good time!](https://news.puppy-snuggles.com/66543730/dog-walker-just-sent-me-this-think-she-was-having-a-good-time)
-- [It&amp;#039;s been two years, but whenever I come across her photo, I&amp;#039;m both happy &amp;amp;amp; sad at the same time. She was truly exceptional.](https://news.puppy-snuggles.com/65062856/its-been-two-years-but-whenever-i-come-across-her-photo-im-both-happy-amp-sad-at-the-same-time-she-was-truly-exceptional)
-- [Yesterday, I lost my best friend of 14 years](https://news.puppy-snuggles.com/63758750/yesterday-i-lost-my-best-friend-of-14-years)
-- [What do you think he is and what should his name be?](https://news.puppy-snuggles.com/56965570/what-do-you-think-he-is-and-what-should-his-name-be)
+- [4 years old today!](https://news.puppy-snuggles.com/67203286/4-years-old-today)
+- [Franny picked out her own dog bed. Please peep the ponytail 😂](https://news.puppy-snuggles.com/49185077/franny-picked-out-her-own-dog-bed-please-peep-the-ponytail)
+- [I&amp;#039;m about to go into hospital for an operation and my parents are dog sitting while i recover, send me your goofiest photos of your pooches! Im in need of a laugh](https://news.puppy-snuggles.com/46270113/im-about-to-go-into-hospital-for-an-operation-and-my-parents-are-dog-sitting-while-i-recover-send-me-your-goofiest-photos-of-your-pooches-im-in-need-of-a-laugh)
+- [Lost a piece of me 3 days ago](https://news.puppy-snuggles.com/43471690/lost-a-piece-of-me-3-days-ago)
+- [Said goodbye to a member of the family today](https://news.puppy-snuggles.com/39643088/said-goodbye-to-a-member-of-the-family-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
