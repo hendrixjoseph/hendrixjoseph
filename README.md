@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [4 years old today!](https://news.puppy-snuggles.com/67203286/4-years-old-today)
-- [Franny picked out her own dog bed. Please peep the ponytail 😂](https://news.puppy-snuggles.com/49185077/franny-picked-out-her-own-dog-bed-please-peep-the-ponytail)
-- [I&amp;#039;m about to go into hospital for an operation and my parents are dog sitting while i recover, send me your goofiest photos of your pooches! Im in need of a laugh](https://news.puppy-snuggles.com/46270113/im-about-to-go-into-hospital-for-an-operation-and-my-parents-are-dog-sitting-while-i-recover-send-me-your-goofiest-photos-of-your-pooches-im-in-need-of-a-laugh)
-- [Lost a piece of me 3 days ago](https://news.puppy-snuggles.com/43471690/lost-a-piece-of-me-3-days-ago)
-- [Said goodbye to a member of the family today](https://news.puppy-snuggles.com/39643088/said-goodbye-to-a-member-of-the-family-today)
+- [Forever have my boy on me. 💕 gone but never ever forgotten.](https://news.puppy-snuggles.com/67483521/forever-have-my-boy-on-me-gone-but-never-ever-forgotten)
+- [Rest in peace my fat b##turd](https://news.puppy-snuggles.com/66260908/rest-in-peace-my-fat-bturd)
+- [Good morning!](https://news.puppy-snuggles.com/65299160/good-morning)
+- [Molly will be my first dog and ill give her a forever home because iam going to adopt her.](https://news.puppy-snuggles.com/65024610/molly-will-be-my-first-dog-and-ill-give-her-a-forever-home-because-iam-going-to-adopt-her)
+- [My dog Malee when she was rescued from the dog meat trade in Thailand](https://news.puppy-snuggles.com/64847801/my-dog-malee-when-she-was-rescued-from-the-dog-meat-trade-in-thailand)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
