@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Forever have my boy on me. 💕 gone but never ever forgotten.](https://news.puppy-snuggles.com/67483521/forever-have-my-boy-on-me-gone-but-never-ever-forgotten)
-- [Rest in peace my fat b##turd](https://news.puppy-snuggles.com/66260908/rest-in-peace-my-fat-bturd)
-- [Good morning!](https://news.puppy-snuggles.com/65299160/good-morning)
-- [Molly will be my first dog and ill give her a forever home because iam going to adopt her.](https://news.puppy-snuggles.com/65024610/molly-will-be-my-first-dog-and-ill-give-her-a-forever-home-because-iam-going-to-adopt-her)
-- [My dog Malee when she was rescued from the dog meat trade in Thailand](https://news.puppy-snuggles.com/64847801/my-dog-malee-when-she-was-rescued-from-the-dog-meat-trade-in-thailand)
+- [Marly, i love my dog, she was Marly. She died in peace. I love you my little girl, I hope you rest in heaven.](https://news.puppy-snuggles.com/66565573/marly-i-love-my-dog-she-was-marly-she-died-in-peace-i-love-you-my-little-girl-i-hope-you-rest-in-heaven)
+- [Pre-op selfie](https://news.puppy-snuggles.com/65610806/pre-op-selfie)
+- [such a good boi](https://news.puppy-snuggles.com/24272079/such-a-good-boi)
+- [all dem dam dogs&amp;amp;lt;3 lot of dog, le crew](https://news.puppy-snuggles.com/24161958/all-dem-dam-dogslt3-lot-of-dog-le-crew)
+- [I have never loved anyone or anything like my dog](https://news.puppy-snuggles.com/20143273/i-have-never-loved-anyone-or-anything-like-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
