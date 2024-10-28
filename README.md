@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Marly, i love my dog, she was Marly. She died in peace. I love you my little girl, I hope you rest in heaven.](https://news.puppy-snuggles.com/66565573/marly-i-love-my-dog-she-was-marly-she-died-in-peace-i-love-you-my-little-girl-i-hope-you-rest-in-heaven)
-- [Pre-op selfie](https://news.puppy-snuggles.com/65610806/pre-op-selfie)
-- [such a good boi](https://news.puppy-snuggles.com/24272079/such-a-good-boi)
-- [all dem dam dogs&amp;amp;lt;3 lot of dog, le crew](https://news.puppy-snuggles.com/24161958/all-dem-dam-dogslt3-lot-of-dog-le-crew)
-- [I have never loved anyone or anything like my dog](https://news.puppy-snuggles.com/20143273/i-have-never-loved-anyone-or-anything-like-my-dog)
+- [What is the first picture you took of your dog in your camera roll? We got Scooby two months ago and this is the first picture I took](https://news.puppy-snuggles.com/46514372/what-is-the-first-picture-you-took-of-your-dog-in-your-camera-roll-we-got-scooby-two-months-ago-and-this-is-the-first-picture-i-took)
+- [It doesn&amp;#039;t even require words.](https://news.puppy-snuggles.com/32622427/it-doesnt-even-require-words)
+- [those innocent eeeyyesss](https://news.puppy-snuggles.com/24161957/those-innocent-eeeyyesss)
+- [This six month old baby is just too cute!](https://news.puppy-snuggles.com/23386203/this-six-month-old-baby-is-just-too-cute)
+- [Guess what mom? The snow has melted 🙄](https://news.puppy-snuggles.com/22987145/guess-what-mom-the-snow-has-melted)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
