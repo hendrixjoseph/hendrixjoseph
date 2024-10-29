@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What is the first picture you took of your dog in your camera roll? We got Scooby two months ago and this is the first picture I took](https://news.puppy-snuggles.com/46514372/what-is-the-first-picture-you-took-of-your-dog-in-your-camera-roll-we-got-scooby-two-months-ago-and-this-is-the-first-picture-i-took)
-- [It doesn&amp;#039;t even require words.](https://news.puppy-snuggles.com/32622427/it-doesnt-even-require-words)
-- [those innocent eeeyyesss](https://news.puppy-snuggles.com/24161957/those-innocent-eeeyyesss)
-- [This six month old baby is just too cute!](https://news.puppy-snuggles.com/23386203/this-six-month-old-baby-is-just-too-cute)
-- [Guess what mom? The snow has melted 🙄](https://news.puppy-snuggles.com/22987145/guess-what-mom-the-snow-has-melted)
+- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
+- [We commissioned an artist from Muskoka, Ontario &lpar;Canada&rpar; to do a finger painting of our boy. It turned out so beautiful](https://news.puppy-snuggles.com/23261890/we-commissioned-an-artist-from-muskoka-ontario-canada-to-do-a-finger-painting-of-our-boy-it-turned-out-so-beautiful)
+- [Did a photo shoot with my sweet boy](https://news.puppy-snuggles.com/23024098/did-a-photo-shoot-with-my-sweet-boy)
+- [sleep time](https://news.puppy-snuggles.com/22405821/sleep-time)
+- [My older dog seems to be happy about new dog in the family.](https://news.puppy-snuggles.com/22086924/my-older-dog-seems-to-be-happy-about-new-dog-in-the-family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
