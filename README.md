@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Found this old little fella.](https://news.puppy-snuggles.com/64099510/found-this-old-little-fella)
-- [We commissioned an artist from Muskoka, Ontario &lpar;Canada&rpar; to do a finger painting of our boy. It turned out so beautiful](https://news.puppy-snuggles.com/23261890/we-commissioned-an-artist-from-muskoka-ontario-canada-to-do-a-finger-painting-of-our-boy-it-turned-out-so-beautiful)
-- [Did a photo shoot with my sweet boy](https://news.puppy-snuggles.com/23024098/did-a-photo-shoot-with-my-sweet-boy)
-- [sleep time](https://news.puppy-snuggles.com/22405821/sleep-time)
-- [My older dog seems to be happy about new dog in the family.](https://news.puppy-snuggles.com/22086924/my-older-dog-seems-to-be-happy-about-new-dog-in-the-family)
+- [Freya had the best day at her doggy party 😁](https://news.puppy-snuggles.com/55784518/freya-had-the-best-day-at-her-doggy-party)
+- [Loki the shepsky](https://news.puppy-snuggles.com/50989261/loki-the-shepsky)
+- [What a smart boy](https://news.puppy-snuggles.com/49072203/what-a-smart-boy)
+- [The happiest boy 🥹](https://news.puppy-snuggles.com/48516529/the-happiest-boy)
+- [Name suggestions??](https://news.puppy-snuggles.com/41616679/name-suggestions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
