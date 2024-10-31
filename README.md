@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Freya had the best day at her doggy party 😁](https://news.puppy-snuggles.com/55784518/freya-had-the-best-day-at-her-doggy-party)
-- [Loki the shepsky](https://news.puppy-snuggles.com/50989261/loki-the-shepsky)
-- [What a smart boy](https://news.puppy-snuggles.com/49072203/what-a-smart-boy)
-- [The happiest boy 🥹](https://news.puppy-snuggles.com/48516529/the-happiest-boy)
-- [Name suggestions??](https://news.puppy-snuggles.com/41616679/name-suggestions)
+- [She fought for as long as she could but we lost my darling Betty yesterday. Hug your fur babies for us tonight. 💔](https://news.puppy-snuggles.com/63604661/she-fought-for-as-long-as-she-could-but-we-lost-my-darling-betty-yesterday-hug-your-fur-babies-for-us-tonight)
+- [Let me sketch a funny pic of your dogs! send in the comments](https://news.puppy-snuggles.com/61872659/let-me-sketch-a-funny-pic-of-your-dogs-send-in-the-comments)
+- [This is my adopted dog Toby](https://news.puppy-snuggles.com/60208907/this-is-my-adopted-dog-toby)
+- [Show me your dog absolutely loving life!](https://news.puppy-snuggles.com/57502542/show-me-your-dog-absolutely-loving-life)
+- [Party mood here! Enjoying his birthday](https://news.puppy-snuggles.com/57123262/party-mood-here-enjoying-his-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
