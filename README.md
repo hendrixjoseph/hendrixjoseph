@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She fought for as long as she could but we lost my darling Betty yesterday. Hug your fur babies for us tonight. 💔](https://news.puppy-snuggles.com/63604661/she-fought-for-as-long-as-she-could-but-we-lost-my-darling-betty-yesterday-hug-your-fur-babies-for-us-tonight)
-- [Let me sketch a funny pic of your dogs! send in the comments](https://news.puppy-snuggles.com/61872659/let-me-sketch-a-funny-pic-of-your-dogs-send-in-the-comments)
-- [This is my adopted dog Toby](https://news.puppy-snuggles.com/60208907/this-is-my-adopted-dog-toby)
-- [Show me your dog absolutely loving life!](https://news.puppy-snuggles.com/57502542/show-me-your-dog-absolutely-loving-life)
-- [Party mood here! Enjoying his birthday](https://news.puppy-snuggles.com/57123262/party-mood-here-enjoying-his-birthday)
+- [Daisy is all smiles. She missed her friends.](https://news.puppy-snuggles.com/31877878/daisy-is-all-smiles-she-missed-her-friends)
+- [Thought this was funny plz enjoy](https://news.puppy-snuggles.com/24432910/thought-this-was-funny-plz-enjoy)
+- [Big tongue](https://news.puppy-snuggles.com/19847902/big-tongue)
+- [Gnocchi is a 5 year old I recently adopted. No idea what breed of dog he is, just that he&amp;#039;s a very good boy!](https://news.puppy-snuggles.com/19631486/gnocchi-is-a-5-year-old-i-recently-adopted-no-idea-what-breed-of-dog-he-is-just-that-hes-a-very-good-boy)
+- [Dora turned 9 years old today. I wasn’t sure she’d make it to her bday as she has cancer, but we did it!](https://news.puppy-snuggles.com/19553164/dora-turned-9-years-old-today-i-wasnt-sure-shed-make-it-to-her-bday-as-she-has-cancer-but-we-did-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
