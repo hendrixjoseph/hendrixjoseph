@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daisy is all smiles. She missed her friends.](https://news.puppy-snuggles.com/31877878/daisy-is-all-smiles-she-missed-her-friends)
-- [Thought this was funny plz enjoy](https://news.puppy-snuggles.com/24432910/thought-this-was-funny-plz-enjoy)
-- [Big tongue](https://news.puppy-snuggles.com/19847902/big-tongue)
-- [Gnocchi is a 5 year old I recently adopted. No idea what breed of dog he is, just that he&amp;#039;s a very good boy!](https://news.puppy-snuggles.com/19631486/gnocchi-is-a-5-year-old-i-recently-adopted-no-idea-what-breed-of-dog-he-is-just-that-hes-a-very-good-boy)
-- [Dora turned 9 years old today. I wasn’t sure she’d make it to her bday as she has cancer, but we did it!](https://news.puppy-snuggles.com/19553164/dora-turned-9-years-old-today-i-wasnt-sure-shed-make-it-to-her-bday-as-she-has-cancer-but-we-did-it)
+- [What is your dog’s costume for Halloween?! Pics please!](https://news.puppy-snuggles.com/67954581/what-is-your-dogs-costume-for-halloween-pics-please)
+- [This is my baby, her name is Daisy.](https://news.puppy-snuggles.com/67072468/this-is-my-baby-her-name-is-daisy)
+- [I said goodbye to my beautiful little girl today. We called her Orlaigh the Brave](https://news.puppy-snuggles.com/66925683/i-said-goodbye-to-my-beautiful-little-girl-today-we-called-her-orlaigh-the-brave)
+- [My Buddy is Gone. RIP💔🐕](https://news.puppy-snuggles.com/23839542/my-buddy-is-gone-rip)
+- [the goodest boy](https://news.puppy-snuggles.com/19751013/the-goodest-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
