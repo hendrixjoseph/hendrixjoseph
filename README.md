@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What is your dog’s costume for Halloween?! Pics please!](https://news.puppy-snuggles.com/67954581/what-is-your-dogs-costume-for-halloween-pics-please)
-- [This is my baby, her name is Daisy.](https://news.puppy-snuggles.com/67072468/this-is-my-baby-her-name-is-daisy)
-- [I said goodbye to my beautiful little girl today. We called her Orlaigh the Brave](https://news.puppy-snuggles.com/66925683/i-said-goodbye-to-my-beautiful-little-girl-today-we-called-her-orlaigh-the-brave)
-- [My Buddy is Gone. RIP💔🐕](https://news.puppy-snuggles.com/23839542/my-buddy-is-gone-rip)
-- [the goodest boy](https://news.puppy-snuggles.com/19751013/the-goodest-boy)
+- [I know I’m biased but I think she’s the most photogenic dog](https://news.puppy-snuggles.com/67665333/i-know-im-biased-but-i-think-shes-the-most-photogenic-dog)
+- [Celebrating the 5th anniversary of my boy’s “gotcha day” today!](https://news.puppy-snuggles.com/67483520/celebrating-the-5th-anniversary-of-my-boys-gotcha-day-today)
+- [Dog names. Go!](https://news.puppy-snuggles.com/56231144/dog-names-go)
+- [Doyle turns 13 tomorrow!](https://news.puppy-snuggles.com/23122454/doyle-turns-13-tomorrow)
+- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
