@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I know I’m biased but I think she’s the most photogenic dog](https://news.puppy-snuggles.com/67665333/i-know-im-biased-but-i-think-shes-the-most-photogenic-dog)
-- [Celebrating the 5th anniversary of my boy’s “gotcha day” today!](https://news.puppy-snuggles.com/67483520/celebrating-the-5th-anniversary-of-my-boys-gotcha-day-today)
-- [Dog names. Go!](https://news.puppy-snuggles.com/56231144/dog-names-go)
-- [Doyle turns 13 tomorrow!](https://news.puppy-snuggles.com/23122454/doyle-turns-13-tomorrow)
-- [What breed? Can it be mixed with Coyote? Hey everyone my girlfriend and I have this German shepherd puppy and we think it may be mixed with part wolf. I don’t see it but she does. Photos attached!](https://news.puppy-snuggles.com/22590708/what-breed-can-it-be-mixed-with-coyote-hey-everyone-my-girlfriend-and-i-have-this-german-shepherd-puppy-and-we-think-it-may-be-mixed-with-part-wolf-i-dont-see-it-but-she-does-photos-attached)
+- [Let’s see your dog’s frog leg pics!](https://news.puppy-snuggles.com/61263617/lets-see-your-dogs-frog-leg-pics)
+- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
+- [This video made me cry, how do you deal with your puppy&amp;#039;s growth? I listen to your testimonies](https://news.puppy-snuggles.com/55363929/this-video-made-me-cry-how-do-you-deal-with-your-puppys-growth-i-listen-to-your-testimonies)
+- [rocky doesnt know hes not a cat](https://news.puppy-snuggles.com/22351701/rocky-doesnt-know-hes-not-a-cat)
+- [Hello need help this is my dog called George we had him for 8 years but we are not sure what breed he is any help will be appreciate.](https://news.puppy-snuggles.com/20284258/hello-need-help-this-is-my-dog-called-george-we-had-him-for-8-years-but-we-are-not-sure-what-breed-he-is-any-help-will-be-appreciate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
