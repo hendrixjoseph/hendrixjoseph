@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
-- [Got her a new hat today. Can someone tell me what she is thinking?](https://news.puppy-snuggles.com/44150119/got-her-a-new-hat-today-can-someone-tell-me-what-she-is-thinking)
-- [I didn&amp;#039;t know where else to post this. we had to say goodbye to our girl, Zelda today. I have never felt such pain in my life. I&amp;#039;ll always love you, Zel.](https://news.puppy-snuggles.com/23944217/i-didnt-know-where-else-to-post-this-we-had-to-say-goodbye-to-our-girl-zelda-today-i-have-never-felt-such-pain-in-my-life-ill-always-love-you-zel)
-- [90 days old today!](https://news.puppy-snuggles.com/22066876/90-days-old-today)
-- [A handsome fella](https://news.puppy-snuggles.com/18549865/a-handsome-fella)
+- [My pups momma](https://news.puppy-snuggles.com/67573274/my-pups-momma)
+- [Does anyone know what breed they are?](https://news.puppy-snuggles.com/36272816/does-anyone-know-what-breed-they-are)
+- [My baby girl Zoie is going to be leaving us forever tomorrow. I just don&amp;#039;t know how to deal with this, I never knew my heart could break into so many pieces. I wanted to share her beauty one last time, she always did love attention.](https://news.puppy-snuggles.com/25583672/my-baby-girl-zoie-is-going-to-be-leaving-us-forever-tomorrow-i-just-dont-know-how-to-deal-with-this-i-never-knew-my-heart-could-break-into-so-many-pieces-i-wanted-to-share-her-beauty-one-last-time-she-always-did-love-attention)
+- [Hope you&amp;#039;re all having a wonderful holiday season!](https://news.puppy-snuggles.com/24243036/hope-youre-all-having-a-wonderful-holiday-season)
+- [John Wick IRL.](https://news.puppy-snuggles.com/22448330/john-wick-irl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
