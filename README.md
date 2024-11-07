@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pups momma](https://news.puppy-snuggles.com/67573274/my-pups-momma)
-- [Does anyone know what breed they are?](https://news.puppy-snuggles.com/36272816/does-anyone-know-what-breed-they-are)
-- [My baby girl Zoie is going to be leaving us forever tomorrow. I just don&amp;#039;t know how to deal with this, I never knew my heart could break into so many pieces. I wanted to share her beauty one last time, she always did love attention.](https://news.puppy-snuggles.com/25583672/my-baby-girl-zoie-is-going-to-be-leaving-us-forever-tomorrow-i-just-dont-know-how-to-deal-with-this-i-never-knew-my-heart-could-break-into-so-many-pieces-i-wanted-to-share-her-beauty-one-last-time-she-always-did-love-attention)
-- [Hope you&amp;#039;re all having a wonderful holiday season!](https://news.puppy-snuggles.com/24243036/hope-youre-all-having-a-wonderful-holiday-season)
-- [John Wick IRL.](https://news.puppy-snuggles.com/22448330/john-wick-irl)
+- [My girly girl Sally](https://news.puppy-snuggles.com/68310225/my-girly-girl-sally)
+- [Bagel the Everything Beagle](https://news.puppy-snuggles.com/67954577/bagel-the-everything-beagle)
+- [Nicki My little companion waiting for me to go for a walk.](https://news.puppy-snuggles.com/56608335/nicki-my-little-companion-waiting-for-me-to-go-for-a-walk)
+- [Sweet Pea, belly full of roast chicken, takes a nap happy](https://news.puppy-snuggles.com/22687717/sweet-pea-belly-full-of-roast-chicken-takes-a-nap-happy)
+- [My bundle of joy](https://news.puppy-snuggles.com/21839062/my-bundle-of-joy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
