@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My girly girl Sally](https://news.puppy-snuggles.com/68310225/my-girly-girl-sally)
-- [Bagel the Everything Beagle](https://news.puppy-snuggles.com/67954577/bagel-the-everything-beagle)
-- [Nicki My little companion waiting for me to go for a walk.](https://news.puppy-snuggles.com/56608335/nicki-my-little-companion-waiting-for-me-to-go-for-a-walk)
-- [Sweet Pea, belly full of roast chicken, takes a nap happy](https://news.puppy-snuggles.com/22687717/sweet-pea-belly-full-of-roast-chicken-takes-a-nap-happy)
-- [My bundle of joy](https://news.puppy-snuggles.com/21839062/my-bundle-of-joy)
+- [“Really mom? MORE pictures?”](https://news.puppy-snuggles.com/22579625/really-mom-more-pictures)
+- [Happy out playing ball.](https://news.puppy-snuggles.com/20284255/happy-out-playing-ball)
+- [We&amp;#039;ve started cycling to the dog park!](https://news.puppy-snuggles.com/18950198/weve-started-cycling-to-the-dog-park)
+- [This best girl has been fighting lung cancer for two whole months.](https://news.puppy-snuggles.com/18793311/this-best-girl-has-been-fighting-lung-cancer-for-two-whole-months)
+- [Meet Brawndo](https://news.puppy-snuggles.com/18110354/meet-brawndo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
