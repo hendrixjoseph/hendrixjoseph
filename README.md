@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Really mom? MORE pictures?”](https://news.puppy-snuggles.com/22579625/really-mom-more-pictures)
-- [Happy out playing ball.](https://news.puppy-snuggles.com/20284255/happy-out-playing-ball)
-- [We&amp;#039;ve started cycling to the dog park!](https://news.puppy-snuggles.com/18950198/weve-started-cycling-to-the-dog-park)
-- [This best girl has been fighting lung cancer for two whole months.](https://news.puppy-snuggles.com/18793311/this-best-girl-has-been-fighting-lung-cancer-for-two-whole-months)
-- [Meet Brawndo](https://news.puppy-snuggles.com/18110354/meet-brawndo)
+- [Oakley says Hi](https://news.puppy-snuggles.com/55590736/oakley-says-hi)
+- [Buck says remember to smile!](https://news.puppy-snuggles.com/50849282/buck-says-remember-to-smile)
+- [Derp Cloud](https://news.puppy-snuggles.com/35254541/derp-cloud)
+- [Can someone help identify her?](https://news.puppy-snuggles.com/23336178/can-someone-help-identify-her)
+- [Enjoying the cold weather?](https://news.puppy-snuggles.com/23122455/enjoying-the-cold-weather)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
