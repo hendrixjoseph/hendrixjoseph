@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Oakley says Hi](https://news.puppy-snuggles.com/55590736/oakley-says-hi)
-- [Buck says remember to smile!](https://news.puppy-snuggles.com/50849282/buck-says-remember-to-smile)
-- [Derp Cloud](https://news.puppy-snuggles.com/35254541/derp-cloud)
-- [Can someone help identify her?](https://news.puppy-snuggles.com/23336178/can-someone-help-identify-her)
-- [Enjoying the cold weather?](https://news.puppy-snuggles.com/23122455/enjoying-the-cold-weather)
+- [Just adopted this scruffy boy!](https://news.puppy-snuggles.com/51995163/just-adopted-this-scruffy-boy)
+- [Lost my best friend last night](https://news.puppy-snuggles.com/49364682/lost-my-best-friend-last-night)
+- [Let me see your Christmas pet photos!!](https://news.puppy-snuggles.com/47944894/let-me-see-your-christmas-pet-photos)
+- [Just discovered this sub, I think my dogs belong](https://news.puppy-snuggles.com/40545105/just-discovered-this-sub-i-think-my-dogs-belong)
+- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
