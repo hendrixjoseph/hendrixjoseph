@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just adopted this scruffy boy!](https://news.puppy-snuggles.com/51995163/just-adopted-this-scruffy-boy)
-- [Lost my best friend last night](https://news.puppy-snuggles.com/49364682/lost-my-best-friend-last-night)
-- [Let me see your Christmas pet photos!!](https://news.puppy-snuggles.com/47944894/let-me-see-your-christmas-pet-photos)
-- [Just discovered this sub, I think my dogs belong](https://news.puppy-snuggles.com/40545105/just-discovered-this-sub-i-think-my-dogs-belong)
-- [The dog brought home for the owner](https://news.puppy-snuggles.com/36320239/the-dog-brought-home-for-the-owner)
+- [My girl survived cancer!](https://news.puppy-snuggles.com/67296896/my-girl-survived-cancer)
+- [this is my favorite picture of my dog](https://news.puppy-snuggles.com/55484874/this-is-my-favorite-picture-of-my-dog)
+- [I try so hard to not cave in to giving her some of my food. Failure is inevitable.](https://news.puppy-snuggles.com/42883390/i-try-so-hard-to-not-cave-in-to-giving-her-some-of-my-food-failure-is-inevitable)
+- [New Year, New Puppy Celebration](https://news.puppy-snuggles.com/24138731/new-year-new-puppy-celebration)
+- [My 12.5 years old goodest boy. He had a very rough start at life, as a puppy he was shot at and abused. We adopted him when he was 1.5-2 years old. He is our sweetheart. He is a husky mix and often sings the song of his people when things don&amp;#039;t go his way.](https://news.puppy-snuggles.com/22384419/my-125-years-old-goodest-boy-he-had-a-very-rough-start-at-life-as-a-puppy-he-was-shot-at-and-abused-we-adopted-him-when-he-was-15-2-years-old-he-is-our-sweetheart-he-is-a-husky-mix-and-often-sings-the-song-of-his-people-when-things-dont-go-his-way)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
