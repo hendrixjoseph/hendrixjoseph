@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How cute is my dog🥰🥰🥰](https://news.puppy-snuggles.com/56733392/how-cute-is-my-dog)
-- [Scooby’s first snow! Show pictures of your dog playing in the snow!](https://news.puppy-snuggles.com/49225634/scoobys-first-snow-show-pictures-of-your-dog-playing-in-the-snow)
-- [Sheppard/Mastiff???](https://news.puppy-snuggles.com/41287438/sheppardmastiff)
-- [Happy Boys stopped to smell the flowers](https://news.puppy-snuggles.com/35895251/happy-boys-stopped-to-smell-the-flowers)
-- [Ludo in the morning light](https://news.puppy-snuggles.com/23072308/ludo-in-the-morning-light)
+- [My friends dog all smiles after a grooming!](https://news.puppy-snuggles.com/57101472/my-friends-dog-all-smiles-after-a-grooming)
+- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
+- [We love big smiles here &lpar;:](https://news.puppy-snuggles.com/43712241/we-love-big-smiles-here)
+- [Pencil handmade portrait of a dog commission pencil drawing for my client](https://news.puppy-snuggles.com/23360375/pencil-handmade-portrait-of-a-dog-commission-pencil-drawing-for-my-client)
+- [Nice dog picture](https://news.puppy-snuggles.com/22602976/nice-dog-picture)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
