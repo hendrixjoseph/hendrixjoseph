@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My friends dog all smiles after a grooming!](https://news.puppy-snuggles.com/57101472/my-friends-dog-all-smiles-after-a-grooming)
-- [We laid my dog Moxie to rest today, until we meet again my beautiful golden girl](https://news.puppy-snuggles.com/44398909/we-laid-my-dog-moxie-to-rest-today-until-we-meet-again-my-beautiful-golden-girl)
-- [We love big smiles here &lpar;:](https://news.puppy-snuggles.com/43712241/we-love-big-smiles-here)
-- [Pencil handmade portrait of a dog commission pencil drawing for my client](https://news.puppy-snuggles.com/23360375/pencil-handmade-portrait-of-a-dog-commission-pencil-drawing-for-my-client)
-- [Nice dog picture](https://news.puppy-snuggles.com/22602976/nice-dog-picture)
+- [Thinking about my best bud I lost 60 days ago today. I would love to see a pic of your best friend you have lost.](https://news.puppy-snuggles.com/68699609/thinking-about-my-best-bud-i-lost-60-days-ago-today-i-would-love-to-see-a-pic-of-your-best-friend-you-have-lost)
+- [Forever have my boy on me. 💕 gone but never ever forgotten.](https://news.puppy-snuggles.com/67483521/forever-have-my-boy-on-me-gone-but-never-ever-forgotten)
+- [My best friend is gone, but I&amp;#039;m happy.](https://news.puppy-snuggles.com/67449897/my-best-friend-is-gone-but-im-happy)
+- [Chloe being distinguished](https://news.puppy-snuggles.com/65024612/chloe-being-distinguished)
+- [What breed/s do you think they are?](https://news.puppy-snuggles.com/58321463/what-breeds-do-you-think-they-are)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
