@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thinking about my best bud I lost 60 days ago today. I would love to see a pic of your best friend you have lost.](https://news.puppy-snuggles.com/68699609/thinking-about-my-best-bud-i-lost-60-days-ago-today-i-would-love-to-see-a-pic-of-your-best-friend-you-have-lost)
-- [Forever have my boy on me. 💕 gone but never ever forgotten.](https://news.puppy-snuggles.com/67483521/forever-have-my-boy-on-me-gone-but-never-ever-forgotten)
-- [My best friend is gone, but I&amp;#039;m happy.](https://news.puppy-snuggles.com/67449897/my-best-friend-is-gone-but-im-happy)
-- [Chloe being distinguished](https://news.puppy-snuggles.com/65024612/chloe-being-distinguished)
-- [What breed/s do you think they are?](https://news.puppy-snuggles.com/58321463/what-breeds-do-you-think-they-are)
+- [My boy is a super mutt! 100% Good Boy!](https://news.puppy-snuggles.com/67412281/my-boy-is-a-super-mutt-100-good-boy)
+- [Our dog Roxy passed away the other day. RIP girl, i miss you so much ❤️](https://news.puppy-snuggles.com/37563598/our-dog-roxy-passed-away-the-other-day-rip-girl-i-miss-you-so-much)
+- [Truvy Blue, love of my life.](https://news.puppy-snuggles.com/16386775/truvy-blue-love-of-my-life)
+- [Here&amp;#039;s my good boi with his biggest smile pictured to date.](https://news.puppy-snuggles.com/16188371/heres-my-good-boi-with-his-biggest-smile-pictured-to-date)
+- [Mr. Coops❤️](https://news.puppy-snuggles.com/15928174/mr-coops)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
