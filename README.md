@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy is a super mutt! 100% Good Boy!](https://news.puppy-snuggles.com/67412281/my-boy-is-a-super-mutt-100-good-boy)
-- [Our dog Roxy passed away the other day. RIP girl, i miss you so much ❤️](https://news.puppy-snuggles.com/37563598/our-dog-roxy-passed-away-the-other-day-rip-girl-i-miss-you-so-much)
-- [Truvy Blue, love of my life.](https://news.puppy-snuggles.com/16386775/truvy-blue-love-of-my-life)
-- [Here&amp;#039;s my good boi with his biggest smile pictured to date.](https://news.puppy-snuggles.com/16188371/heres-my-good-boi-with-his-biggest-smile-pictured-to-date)
-- [Mr. Coops❤️](https://news.puppy-snuggles.com/15928174/mr-coops)
+- [5 month old Pickles](https://news.puppy-snuggles.com/67704725/5-month-old-pickles)
+- [Just had to put down my first dog..no I&amp;#039;m not ok](https://news.puppy-snuggles.com/67374482/just-had-to-put-down-my-first-dogno-im-not-ok)
+- [Whenever I feel down I remember my dog survived a tumor and a skin eating bacteria, a warrior indeed!](https://news.puppy-snuggles.com/66319404/whenever-i-feel-down-i-remember-my-dog-survived-a-tumor-and-a-skin-eating-bacteria-a-warrior-indeed)
+- [My Name is daruk i am 16 😌](https://news.puppy-snuggles.com/64187605/my-name-is-daruk-i-am-16)
+- [This little beagle just finished her chemo and beat cancer. I’m so grateful](https://news.puppy-snuggles.com/40178843/this-little-beagle-just-finished-her-chemo-and-beat-cancer-im-so-grateful)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
