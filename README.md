@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It&amp;#039;s Athenas 12th birthday!](https://news.puppy-snuggles.com/68621798/its-athenas-12th-birthday)
-- [Neighbor leaving dog at backyard 24/7](https://news.puppy-snuggles.com/68034633/neighbor-leaving-dog-at-backyard-247)
-- [My big handsome baby boy, almost 8 months old.](https://news.puppy-snuggles.com/63156396/my-big-handsome-baby-boy-almost-8-months-old)
-- [Worm is almost 1! 🎉](https://news.puppy-snuggles.com/62713464/worm-is-almost-1)
-- [This is a dog named Whiskey](https://news.puppy-snuggles.com/59456740/this-is-a-dog-named-whiskey)
+- [RIP my sweet freckles](https://news.puppy-snuggles.com/68661457/rip-my-sweet-freckles)
+- [This is one of my favourite photos of my dog](https://news.puppy-snuggles.com/68310217/this-is-one-of-my-favourite-photos-of-my-dog)
+- [RIP TO MY BOY SONNY](https://news.puppy-snuggles.com/67910985/rip-to-my-boy-sonny)
+- [This fluffy goober never gets tired of going on a walk](https://news.puppy-snuggles.com/67665331/this-fluffy-goober-never-gets-tired-of-going-on-a-walk)
+- [Freya is convinced she&amp;#039;s still a puppy and fits on your lap np](https://news.puppy-snuggles.com/67483515/freya-is-convinced-shes-still-a-puppy-and-fits-on-your-lap-np)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
