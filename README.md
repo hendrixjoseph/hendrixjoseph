@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP my sweet freckles](https://news.puppy-snuggles.com/68661457/rip-my-sweet-freckles)
-- [This is one of my favourite photos of my dog](https://news.puppy-snuggles.com/68310217/this-is-one-of-my-favourite-photos-of-my-dog)
-- [RIP TO MY BOY SONNY](https://news.puppy-snuggles.com/67910985/rip-to-my-boy-sonny)
-- [This fluffy goober never gets tired of going on a walk](https://news.puppy-snuggles.com/67665331/this-fluffy-goober-never-gets-tired-of-going-on-a-walk)
-- [Freya is convinced she&amp;#039;s still a puppy and fits on your lap np](https://news.puppy-snuggles.com/67483515/freya-is-convinced-shes-still-a-puppy-and-fits-on-your-lap-np)
+- [Always happy :&rpar;](https://news.puppy-snuggles.com/68824798/always-happy)
+- [dont go to work](https://news.puppy-snuggles.com/68739211/dont-go-to-work)
+- [Lilly&amp;#039;s crossing rainbow Bridge](https://news.puppy-snuggles.com/26487770/lillys-crossing-rainbow-bridge)
+- [A Dogs Digital Illustration chart Poster I drew, featuring the current top 25 dog breeds! Hope everyone likes it!](https://news.puppy-snuggles.com/23122457/a-dogs-digital-illustration-chart-poster-i-drew-featuring-the-current-top-25-dog-breeds-hope-everyone-likes-it)
+- [Are you guys looking at other dogs again?!](https://news.puppy-snuggles.com/20241491/are-you-guys-looking-at-other-dogs-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
