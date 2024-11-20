@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Always happy :&rpar;](https://news.puppy-snuggles.com/68824798/always-happy)
-- [dont go to work](https://news.puppy-snuggles.com/68739211/dont-go-to-work)
-- [Lilly&amp;#039;s crossing rainbow Bridge](https://news.puppy-snuggles.com/26487770/lillys-crossing-rainbow-bridge)
-- [A Dogs Digital Illustration chart Poster I drew, featuring the current top 25 dog breeds! Hope everyone likes it!](https://news.puppy-snuggles.com/23122457/a-dogs-digital-illustration-chart-poster-i-drew-featuring-the-current-top-25-dog-breeds-hope-everyone-likes-it)
-- [Are you guys looking at other dogs again?!](https://news.puppy-snuggles.com/20241491/are-you-guys-looking-at-other-dogs-again)
+- [RIP TO MY BOY SONNY](https://news.puppy-snuggles.com/67910985/rip-to-my-boy-sonny)
+- [Had to say goodbye to my boy yesterday 🥹](https://news.puppy-snuggles.com/64122165/had-to-say-goodbye-to-my-boy-yesterday)
+- [This is the face of a dog that doesn’t understand why there are only 4 nuggets in her Wendy’s 4 count.](https://news.puppy-snuggles.com/63377522/this-is-the-face-of-a-dog-that-doesnt-understand-why-there-are-only-4-nuggets-in-her-wendys-4-count)
+- [365 Days of Me &amp;amp;amp; Pepperoni Day 311](https://news.puppy-snuggles.com/62097884/365-days-of-me-amp-pepperoni-day-311)
+- [When we got Pepper, her breeder warned us that she has a thing for stealing socks. She&amp;#039;s 3 now, and nothing has changed.](https://news.puppy-snuggles.com/61666594/when-we-got-pepper-her-breeder-warned-us-that-she-has-a-thing-for-stealing-socks-shes-3-now-and-nothing-has-changed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
