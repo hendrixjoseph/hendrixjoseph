@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP TO MY BOY SONNY](https://news.puppy-snuggles.com/67910985/rip-to-my-boy-sonny)
-- [Had to say goodbye to my boy yesterday 🥹](https://news.puppy-snuggles.com/64122165/had-to-say-goodbye-to-my-boy-yesterday)
-- [This is the face of a dog that doesn’t understand why there are only 4 nuggets in her Wendy’s 4 count.](https://news.puppy-snuggles.com/63377522/this-is-the-face-of-a-dog-that-doesnt-understand-why-there-are-only-4-nuggets-in-her-wendys-4-count)
-- [365 Days of Me &amp;amp;amp; Pepperoni Day 311](https://news.puppy-snuggles.com/62097884/365-days-of-me-amp-pepperoni-day-311)
-- [When we got Pepper, her breeder warned us that she has a thing for stealing socks. She&amp;#039;s 3 now, and nothing has changed.](https://news.puppy-snuggles.com/61666594/when-we-got-pepper-her-breeder-warned-us-that-she-has-a-thing-for-stealing-socks-shes-3-now-and-nothing-has-changed)
+- [I lost my best friend. Mason was the best dog, the best boy there ever was. For 12 years, he stayed by my side. This is the first time I’ll ever be home without him. He was daddies baby bird. I will see you again.](https://news.puppy-snuggles.com/66945611/i-lost-my-best-friend-mason-was-the-best-dog-the-best-boy-there-ever-was-for-12-years-he-stayed-by-my-side-this-is-the-first-time-ill-ever-be-home-without-him-he-was-daddies-baby-bird-i-will-see-you-again)
+- [Let’s see your dogs’ judgey/side eye/eye roll pics.](https://news.puppy-snuggles.com/59090849/lets-see-your-dogs-judgeyside-eyeeye-roll-pics)
+- [Today is a good day](https://news.puppy-snuggles.com/52796104/today-is-a-good-day)
+- [They all made sure to come check up on their friend](https://news.puppy-snuggles.com/52543367/they-all-made-sure-to-come-check-up-on-their-friend)
+- [Need a potato-related name!](https://news.puppy-snuggles.com/52058140/need-a-potato-related-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
