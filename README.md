@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I lost my best friend. Mason was the best dog, the best boy there ever was. For 12 years, he stayed by my side. This is the first time I’ll ever be home without him. He was daddies baby bird. I will see you again.](https://news.puppy-snuggles.com/66945611/i-lost-my-best-friend-mason-was-the-best-dog-the-best-boy-there-ever-was-for-12-years-he-stayed-by-my-side-this-is-the-first-time-ill-ever-be-home-without-him-he-was-daddies-baby-bird-i-will-see-you-again)
-- [Let’s see your dogs’ judgey/side eye/eye roll pics.](https://news.puppy-snuggles.com/59090849/lets-see-your-dogs-judgeyside-eyeeye-roll-pics)
-- [Today is a good day](https://news.puppy-snuggles.com/52796104/today-is-a-good-day)
-- [They all made sure to come check up on their friend](https://news.puppy-snuggles.com/52543367/they-all-made-sure-to-come-check-up-on-their-friend)
-- [Need a potato-related name!](https://news.puppy-snuggles.com/52058140/need-a-potato-related-name)
+- [Nano With His New Friend :&rpar;](https://news.puppy-snuggles.com/62206005/nano-with-his-new-friend)
+- [Happy Bonnie at the park](https://news.puppy-snuggles.com/59808426/happy-bonnie-at-the-park)
+- [Is this a special effect?](https://news.puppy-snuggles.com/51794638/is-this-a-special-effect)
+- [Said goodbye 3 weeks ago](https://news.puppy-snuggles.com/47811243/said-goodbye-3-weeks-ago)
+- [What do we call this dog?](https://news.puppy-snuggles.com/43129781/what-do-we-call-this-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
