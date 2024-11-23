@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nano With His New Friend :&rpar;](https://news.puppy-snuggles.com/62206005/nano-with-his-new-friend)
-- [Happy Bonnie at the park](https://news.puppy-snuggles.com/59808426/happy-bonnie-at-the-park)
-- [Is this a special effect?](https://news.puppy-snuggles.com/51794638/is-this-a-special-effect)
-- [Said goodbye 3 weeks ago](https://news.puppy-snuggles.com/47811243/said-goodbye-3-weeks-ago)
-- [What do we call this dog?](https://news.puppy-snuggles.com/43129781/what-do-we-call-this-dog)
+- [I met this guide dog puppy in training today. Uma 😭🥰](https://news.puppy-snuggles.com/69139361/i-met-this-guide-dog-puppy-in-training-today-uma)
+- [5 month old Pickles](https://news.puppy-snuggles.com/67704725/5-month-old-pickles)
+- [My little cutie pie is in doggie heaven](https://news.puppy-snuggles.com/67573265/my-little-cutie-pie-is-in-doggie-heaven)
+- [My boy is a super mutt! 100% Good Boy!](https://news.puppy-snuggles.com/67412281/my-boy-is-a-super-mutt-100-good-boy)
+- [I suspect my daughter isn&amp;#039;t securing her chore money out of puppy-reach](https://news.puppy-snuggles.com/65299164/i-suspect-my-daughter-isnt-securing-her-chore-money-out-of-puppy-reach)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
