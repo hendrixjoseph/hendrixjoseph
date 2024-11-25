@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thought he looked cute today, might delete later.](https://news.puppy-snuggles.com/48294546/thought-he-looked-cute-today-might-delete-later)
-- [Looked over and saw this](https://news.puppy-snuggles.com/45807378/looked-over-and-saw-this)
-- [First 4th of July parade 🇺🇸](https://news.puppy-snuggles.com/36758478/first-4th-of-july-parade)
-- [Someone wants all the pets](https://news.puppy-snuggles.com/23451209/someone-wants-all-the-pets)
-- [Ladies and Gentleman....let me introduce you to Winston, our newest family member.](https://news.puppy-snuggles.com/22753256/ladies-and-gentlemanlet-me-introduce-you-to-winston-our-newest-family-member)
+- [I just melted and Evaporated 🧿](https://news.puppy-snuggles.com/68739208/i-just-melted-and-evaporated)
+- [This massive unit doesn&amp;#039;t seem to have been shared here yet... astounding.](https://news.puppy-snuggles.com/34066353/this-massive-unit-doesnt-seem-to-have-been-shared-here-yet-astounding)
+- [it doesn&amp;#039;t look too happy](https://news.puppy-snuggles.com/23605477/it-doesnt-look-too-happy)
+- [Something blue, soft pastel art by me.](https://news.puppy-snuggles.com/23284749/something-blue-soft-pastel-art-by-me)
+- [so hard weekend](https://news.puppy-snuggles.com/23242001/so-hard-weekend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
