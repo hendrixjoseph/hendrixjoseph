@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I just melted and Evaporated 🧿](https://news.puppy-snuggles.com/68739208/i-just-melted-and-evaporated)
-- [This massive unit doesn&amp;#039;t seem to have been shared here yet... astounding.](https://news.puppy-snuggles.com/34066353/this-massive-unit-doesnt-seem-to-have-been-shared-here-yet-astounding)
-- [it doesn&amp;#039;t look too happy](https://news.puppy-snuggles.com/23605477/it-doesnt-look-too-happy)
-- [Something blue, soft pastel art by me.](https://news.puppy-snuggles.com/23284749/something-blue-soft-pastel-art-by-me)
-- [so hard weekend](https://news.puppy-snuggles.com/23242001/so-hard-weekend)
+- [&lpar;14/F&rpar; Just a sweet old gal- 2 years since adoption.](https://news.puppy-snuggles.com/68739209/14f-just-a-sweet-old-gal-2-years-since-adoption)
+- [Cancer was removed, stitches from surgery are out!](https://news.puppy-snuggles.com/68739204/cancer-was-removed-stitches-from-surgery-are-out)
+- [Say hi to Violet, our rescue pup!](https://news.puppy-snuggles.com/63736944/say-hi-to-violet-our-rescue-pup)
+- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
+- [My beautiful girl](https://news.puppy-snuggles.com/56546746/my-beautiful-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
