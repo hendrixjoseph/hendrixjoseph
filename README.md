@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&lpar;14/F&rpar; Just a sweet old gal- 2 years since adoption.](https://news.puppy-snuggles.com/68739209/14f-just-a-sweet-old-gal-2-years-since-adoption)
-- [Cancer was removed, stitches from surgery are out!](https://news.puppy-snuggles.com/68739204/cancer-was-removed-stitches-from-surgery-are-out)
-- [Say hi to Violet, our rescue pup!](https://news.puppy-snuggles.com/63736944/say-hi-to-violet-our-rescue-pup)
-- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
-- [My beautiful girl](https://news.puppy-snuggles.com/56546746/my-beautiful-girl)
+- [Rescued this fun crazy guy](https://news.puppy-snuggles.com/69322134/rescued-this-fun-crazy-guy)
+- [Rocky was taken from us last week by a juvenile snake, they are coming out for summer and are full of venom. We are all heartbroken...such a gentle giant. 💔](https://news.puppy-snuggles.com/65572565/rocky-was-taken-from-us-last-week-by-a-juvenile-snake-they-are-coming-out-for-summer-and-are-full-of-venom-we-are-all-heartbrokensuch-a-gentle-giant)
+- [Happy birthday to my fur baby](https://news.puppy-snuggles.com/61180359/happy-birthday-to-my-fur-baby)
+- [the beach is one of his favorite places](https://news.puppy-snuggles.com/55414439/the-beach-is-one-of-his-favorite-places)
+- [This is Chico. No. It is not photoshopped.](https://news.puppy-snuggles.com/54913557/this-is-chico-no-it-is-not-photoshopped)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
