@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rescued this fun crazy guy](https://news.puppy-snuggles.com/69322134/rescued-this-fun-crazy-guy)
-- [Rocky was taken from us last week by a juvenile snake, they are coming out for summer and are full of venom. We are all heartbroken...such a gentle giant. 💔](https://news.puppy-snuggles.com/65572565/rocky-was-taken-from-us-last-week-by-a-juvenile-snake-they-are-coming-out-for-summer-and-are-full-of-venom-we-are-all-heartbrokensuch-a-gentle-giant)
-- [Happy birthday to my fur baby](https://news.puppy-snuggles.com/61180359/happy-birthday-to-my-fur-baby)
-- [the beach is one of his favorite places](https://news.puppy-snuggles.com/55414439/the-beach-is-one-of-his-favorite-places)
-- [This is Chico. No. It is not photoshopped.](https://news.puppy-snuggles.com/54913557/this-is-chico-no-it-is-not-photoshopped)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 57](https://news.puppy-snuggles.com/69416970/365-days-of-pepperoni-amp-her-mama-day-57)
+- [This is what I get when my work is running over a little into park time](https://news.puppy-snuggles.com/69416971/this-is-what-i-get-when-my-work-is-running-over-a-little-into-park-time)
+- [Smiling for a good harvest](https://news.puppy-snuggles.com/69416964/smiling-for-a-good-harvest)
+- [This is Henry. He was 17 and loved to steal food. This is him begging for blueberries 🫐](https://news.puppy-snuggles.com/69416966/this-is-henry-he-was-17-and-loved-to-steal-food-this-is-him-begging-for-blueberries)
+- [It&amp;#039;s Athenas 12th birthday!](https://news.puppy-snuggles.com/68621798/its-athenas-12th-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
