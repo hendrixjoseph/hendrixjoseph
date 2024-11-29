@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 57](https://news.puppy-snuggles.com/69416970/365-days-of-pepperoni-amp-her-mama-day-57)
-- [This is what I get when my work is running over a little into park time](https://news.puppy-snuggles.com/69416971/this-is-what-i-get-when-my-work-is-running-over-a-little-into-park-time)
-- [Smiling for a good harvest](https://news.puppy-snuggles.com/69416964/smiling-for-a-good-harvest)
-- [This is Henry. He was 17 and loved to steal food. This is him begging for blueberries 🫐](https://news.puppy-snuggles.com/69416966/this-is-henry-he-was-17-and-loved-to-steal-food-this-is-him-begging-for-blueberries)
-- [It&amp;#039;s Athenas 12th birthday!](https://news.puppy-snuggles.com/68621798/its-athenas-12th-birthday)
+- [jasper woke up this morning to pee and chose violence](https://news.puppy-snuggles.com/55784522/jasper-woke-up-this-morning-to-pee-and-chose-violence)
+- [Help me name my new puppy!](https://news.puppy-snuggles.com/54576377/help-me-name-my-new-puppy)
+- [the dog&lpar;s&rpar; that guarded the place I stayed at yesterday](https://news.puppy-snuggles.com/54491433/the-dogs-that-guarded-the-place-i-stayed-at-yesterday)
+- [Best driver](https://news.puppy-snuggles.com/48741518/best-driver)
+- [What kind of Dog is this?](https://news.puppy-snuggles.com/35430503/what-kind-of-dog-is-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
