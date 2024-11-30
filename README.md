@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [jasper woke up this morning to pee and chose violence](https://news.puppy-snuggles.com/55784522/jasper-woke-up-this-morning-to-pee-and-chose-violence)
-- [Help me name my new puppy!](https://news.puppy-snuggles.com/54576377/help-me-name-my-new-puppy)
-- [the dog&lpar;s&rpar; that guarded the place I stayed at yesterday](https://news.puppy-snuggles.com/54491433/the-dogs-that-guarded-the-place-i-stayed-at-yesterday)
-- [Best driver](https://news.puppy-snuggles.com/48741518/best-driver)
-- [What kind of Dog is this?](https://news.puppy-snuggles.com/35430503/what-kind-of-dog-is-this)
+- [Said goodbye to Jasper today, my boy of 15 years. I knew it was coming and I thought I was ready to absorb the blow but I so so was not.](https://news.puppy-snuggles.com/69042279/said-goodbye-to-jasper-today-my-boy-of-15-years-i-knew-it-was-coming-and-i-thought-i-was-ready-to-absorb-the-blow-but-i-so-so-was-not)
+- [Does your dog ever get annoyed with you and give you “the look”? Let’s see it!](https://news.puppy-snuggles.com/62160608/does-your-dog-ever-get-annoyed-with-you-and-give-you-the-look-lets-see-it)
+- [Please share your worst dog pic. I’ll start!](https://news.puppy-snuggles.com/54229539/please-share-your-worst-dog-pic-ill-start)
+- [Good Boy](https://news.puppy-snuggles.com/51905266/good-boy)
+- [Just chilling..](https://news.puppy-snuggles.com/49925680/just-chilling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
