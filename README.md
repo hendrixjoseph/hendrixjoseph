@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to Jasper today, my boy of 15 years. I knew it was coming and I thought I was ready to absorb the blow but I so so was not.](https://news.puppy-snuggles.com/69042279/said-goodbye-to-jasper-today-my-boy-of-15-years-i-knew-it-was-coming-and-i-thought-i-was-ready-to-absorb-the-blow-but-i-so-so-was-not)
-- [Does your dog ever get annoyed with you and give you “the look”? Let’s see it!](https://news.puppy-snuggles.com/62160608/does-your-dog-ever-get-annoyed-with-you-and-give-you-the-look-lets-see-it)
-- [Please share your worst dog pic. I’ll start!](https://news.puppy-snuggles.com/54229539/please-share-your-worst-dog-pic-ill-start)
-- [Good Boy](https://news.puppy-snuggles.com/51905266/good-boy)
-- [Just chilling..](https://news.puppy-snuggles.com/49925680/just-chilling)
+- [Christmas is coming !](https://news.puppy-snuggles.com/69633188/christmas-is-coming)
+- [If only love could save you, you would’ve lived forever.](https://news.puppy-snuggles.com/57458635/if-only-love-could-save-you-you-wouldve-lived-forever)
+- [Can someone tell me what this is](https://news.puppy-snuggles.com/41720184/can-someone-tell-me-what-this-is)
+- [Have you ever seen puppy split to drink?](https://news.puppy-snuggles.com/35088412/have-you-ever-seen-puppy-split-to-drink)
+- [This is Dior and she is my best friend!](https://news.puppy-snuggles.com/23957369/this-is-dior-and-she-is-my-best-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
