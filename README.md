@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Christmas is coming !](https://news.puppy-snuggles.com/69633188/christmas-is-coming)
-- [If only love could save you, you would’ve lived forever.](https://news.puppy-snuggles.com/57458635/if-only-love-could-save-you-you-wouldve-lived-forever)
-- [Can someone tell me what this is](https://news.puppy-snuggles.com/41720184/can-someone-tell-me-what-this-is)
-- [Have you ever seen puppy split to drink?](https://news.puppy-snuggles.com/35088412/have-you-ever-seen-puppy-split-to-drink)
-- [This is Dior and she is my best friend!](https://news.puppy-snuggles.com/23957369/this-is-dior-and-she-is-my-best-friend)
+- [Anyone else have a dog who sits like this?](https://news.puppy-snuggles.com/61872660/anyone-else-have-a-dog-who-sits-like-this)
+- [mixed breed or aging weird?](https://news.puppy-snuggles.com/52990154/mixed-breed-or-aging-weird)
+- [Did someone say chesse?](https://news.puppy-snuggles.com/50849283/did-someone-say-chesse)
+- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
+- [That dog is so serene it makes me so happy](https://news.puppy-snuggles.com/37114233/that-dog-is-so-serene-it-makes-me-so-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
