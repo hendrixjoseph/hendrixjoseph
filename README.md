@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Anyone else have a dog who sits like this?](https://news.puppy-snuggles.com/61872660/anyone-else-have-a-dog-who-sits-like-this)
-- [mixed breed or aging weird?](https://news.puppy-snuggles.com/52990154/mixed-breed-or-aging-weird)
-- [Did someone say chesse?](https://news.puppy-snuggles.com/50849283/did-someone-say-chesse)
-- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
-- [That dog is so serene it makes me so happy](https://news.puppy-snuggles.com/37114233/that-dog-is-so-serene-it-makes-me-so-happy)
+- [Rest in peace Cash Money February 14th 2010-November 8th 2024 you&amp;#039;ll wear the best dog in the whole world💙](https://news.puppy-snuggles.com/69660643/rest-in-peace-cash-money-february-14th-2010-november-8th-2024-youll-wear-the-best-dog-in-the-whole-world)
+- [I would take a bullet for this baby 🥺](https://news.puppy-snuggles.com/68782239/i-would-take-a-bullet-for-this-baby)
+- [My boy is a super mutt! 100% Good Boy!](https://news.puppy-snuggles.com/67412281/my-boy-is-a-super-mutt-100-good-boy)
+- [Just had to put down my first dog..no I&amp;#039;m not ok](https://news.puppy-snuggles.com/67374482/just-had-to-put-down-my-first-dogno-im-not-ok)
+- [Adopted this cutie today, already falling in love](https://news.puppy-snuggles.com/65062861/adopted-this-cutie-today-already-falling-in-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
