@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rest in peace Cash Money February 14th 2010-November 8th 2024 you&amp;#039;ll wear the best dog in the whole world💙](https://news.puppy-snuggles.com/69660643/rest-in-peace-cash-money-february-14th-2010-november-8th-2024-youll-wear-the-best-dog-in-the-whole-world)
-- [I would take a bullet for this baby 🥺](https://news.puppy-snuggles.com/68782239/i-would-take-a-bullet-for-this-baby)
-- [My boy is a super mutt! 100% Good Boy!](https://news.puppy-snuggles.com/67412281/my-boy-is-a-super-mutt-100-good-boy)
-- [Just had to put down my first dog..no I&amp;#039;m not ok](https://news.puppy-snuggles.com/67374482/just-had-to-put-down-my-first-dogno-im-not-ok)
-- [Adopted this cutie today, already falling in love](https://news.puppy-snuggles.com/65062861/adopted-this-cutie-today-already-falling-in-love)
+- [I present to you Lucia 💪🏻🥹](https://news.puppy-snuggles.com/69747295/i-present-to-you-lucia)
+- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
+- [My sweet little Charlie.](https://news.puppy-snuggles.com/57545082/my-sweet-little-charlie)
+- [Jack is happy](https://news.puppy-snuggles.com/56034477/jack-is-happy)
+- [My big round boy](https://news.puppy-snuggles.com/54913560/my-big-round-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
