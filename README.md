@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [GameStop Gift Card Invalid? Here&#39;s What Worked for Me](https://www.joehxblog.com/gamestop-gift-card-invalid-heres-what-worked-for-me/)
 - [November 2024 Blog Statistics](https://www.joehxblog.com/november-2024-blog-statistics/)
 - [ChatGPT Slow Cooker Chicken Curry](https://www.joehxblog.com/chatgpt-slow-cooker-chicken-curry/)
 - [October 2024 Book Reading List](https://www.joehxblog.com/october-2024-book-reading-list/)
 - [October 2024 Blog Statistics](https://www.joehxblog.com/october-2024-blog-statistics/)
-- [Conditionally Display a Single Line of JavaScript in AEM](https://www.joehxblog.com/conditionally-display-a-single-line-of-javascript-in-aem/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
