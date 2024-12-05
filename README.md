@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Would you rather get $100 every time you pee or $500 every time you poop? Why?](https://www.reddit.com/r/AskMen/comments/1h6adkt/would_you_rather_get_100_every_time_you_pee_or/m0gcbh3/)
 - [/u/joehx on What&#39;s something you pretend to agree with because it&#39;s way too much work to explain why it&#39;s incorrect?](https://www.reddit.com/r/AskReddit/comments/1grpl8h/whats_something_you_pretend_to_agree_with_because/lxabywe/)
 - [/u/joehx on What’s a fact you recently learned, but should have already known for a long time?](https://www.reddit.com/r/AskReddit/comments/1gqe2z2/whats_a_fact_you_recently_learned_but_should_have/lx02xpx/)
 - [/u/joehx on Friends don&#39;t let friends reuse nonces](https://www.reddit.com/r/programming/comments/1fgte64/friends_dont_let_friends_reuse_nonces/ln5rxiu/)
 - [/u/joehx on Caucuses.](https://www.reddit.com/r/LibertarianPartyUSA/comments/1exjv4e/caucuses/ljapzjw/)
-- [/u/joehx on New &#39;Official&#39; Referral Thread](https://www.reddit.com/r/CapitalOne_/comments/1ew7oht/new_official_referral_thread/lj130zs/)
 <!-- REDDIT:END -->
