@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I present to you Lucia 💪🏻🥹](https://news.puppy-snuggles.com/69747295/i-present-to-you-lucia)
-- [Today, I lost my beloved dog. He was more than just a pet, he was my companion and friend. I&amp;#039;ll miss his wagging tail and the way he brightened up my days. Saying goodbye is incredibly tough, but I find solace in knowing he&amp;#039;s in a better place now. Rest in peace, my dear Jack.](https://news.puppy-snuggles.com/60661414/today-i-lost-my-beloved-dog-he-was-more-than-just-a-pet-he-was-my-companion-and-friend-ill-miss-his-wagging-tail-and-the-way-he-brightened-up-my-days-saying-goodbye-is-incredibly-tough-but-i-find-solace-in-knowing-hes-in-a-better-place-now-rest-in-peace-my-dear-jack)
-- [My sweet little Charlie.](https://news.puppy-snuggles.com/57545082/my-sweet-little-charlie)
-- [Jack is happy](https://news.puppy-snuggles.com/56034477/jack-is-happy)
-- [My big round boy](https://news.puppy-snuggles.com/54913560/my-big-round-boy)
+- [Maverick Smiles](https://news.puppy-snuggles.com/69840751/maverick-smiles)
+- [Even under anthesia he still wags his tail... I&amp;#039;m not sure what to do](https://news.puppy-snuggles.com/69840752/even-under-anthesia-he-still-wags-his-tail-im-not-sure-what-to-do)
+- [What breed is Caramel](https://news.puppy-snuggles.com/69840753/what-breed-is-caramel)
+- [It&amp;#039;s my dog&amp;#039;s 1st Birthday today!](https://news.puppy-snuggles.com/69840749/its-my-dogs-1st-birthday-today)
+- [Would you “boop” his nose](https://news.puppy-snuggles.com/69840754/would-you-boop-his-nose)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
