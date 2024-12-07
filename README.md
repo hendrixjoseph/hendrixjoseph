@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“ I LOVE my bum scritches and scratches after a long walk! Anyone else love a human who always hits the right spot ?](https://news.puppy-snuggles.com/68863224/i-love-my-bum-scritches-and-scratches-after-a-long-walk-anyone-else-love-a-human-who-always-hits-the-right-spot)
-- [Who else lost a fight to a squirrel? 🐿️](https://news.puppy-snuggles.com/67995920/who-else-lost-a-fight-to-a-squirrel)
-- [A Colorado dog breeder has been found dead and his Doberman pinscher puppies are missing](https://news.puppy-snuggles.com/63616857/a-colorado-dog-breeder-has-been-found-dead-and-his-doberman-pinscher-puppies-are-missing)
-- [Wink](https://news.puppy-snuggles.com/51546832/wink)
-- [Pumpkin Poppy](https://news.puppy-snuggles.com/45170521/pumpkin-poppy)
+- [Sometimes I get so used to having Kody around that I forget just how pretty he really is😂🤍](https://news.puppy-snuggles.com/69874919/sometimes-i-get-so-used-to-having-kody-around-that-i-forget-just-how-pretty-he-really-is)
+- [My buddy Mapache protected my wife from a loose aggressive dog.](https://news.puppy-snuggles.com/69874917/my-buddy-mapache-protected-my-wife-from-a-loose-aggressive-dog)
+- [Maverick Smiles](https://news.puppy-snuggles.com/69840751/maverick-smiles)
+- [Even under anthesia he still wags his tail... I&amp;#039;m not sure what to do](https://news.puppy-snuggles.com/69840752/even-under-anthesia-he-still-wags-his-tail-im-not-sure-what-to-do)
+- [What breed is Caramel](https://news.puppy-snuggles.com/69840753/what-breed-is-caramel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
