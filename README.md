@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sometimes I get so used to having Kody around that I forget just how pretty he really is😂🤍](https://news.puppy-snuggles.com/69874919/sometimes-i-get-so-used-to-having-kody-around-that-i-forget-just-how-pretty-he-really-is)
-- [My buddy Mapache protected my wife from a loose aggressive dog.](https://news.puppy-snuggles.com/69874917/my-buddy-mapache-protected-my-wife-from-a-loose-aggressive-dog)
-- [Maverick Smiles](https://news.puppy-snuggles.com/69840751/maverick-smiles)
-- [Even under anthesia he still wags his tail... I&amp;#039;m not sure what to do](https://news.puppy-snuggles.com/69840752/even-under-anthesia-he-still-wags-his-tail-im-not-sure-what-to-do)
-- [What breed is Caramel](https://news.puppy-snuggles.com/69840753/what-breed-is-caramel)
+- [Never give up on your doggo](https://news.puppy-snuggles.com/70001922/never-give-up-on-your-doggo)
+- [RIP my best friend](https://news.puppy-snuggles.com/70001918/rip-my-best-friend)
+- [Yesterday was my dogs birthday](https://news.puppy-snuggles.com/70001921/yesterday-was-my-dogs-birthday)
+- [Before &amp;amp; after being called a good girl &lpar;very excited&rpar; 🤭](https://news.puppy-snuggles.com/70001923/before-after-being-called-a-good-girl-very-excited)
+- [The pure joy in his voice is everything](https://news.puppy-snuggles.com/70001919/the-pure-joy-in-his-voice-is-everything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
