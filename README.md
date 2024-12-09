@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Gentleman, when was the last time you got a compliment?](https://www.reddit.com/r/AskMen/comments/1h9n30d/gentleman_when_was_the_last_time_you_got_a/m12wyrn/)
 - [/u/joehx on Why are so many people afraid-of / opposed-to rebasing their local branches?](https://www.reddit.com/r/git/comments/1h8aurv/why_are_so_many_people_afraidof_opposedto/m0s8stf/)
 - [/u/joehx on Would you rather get $100 every time you pee or $500 every time you poop? Why?](https://www.reddit.com/r/AskMen/comments/1h6adkt/would_you_rather_get_100_every_time_you_pee_or/m0gcbh3/)
 - [/u/joehx on What&#39;s something you pretend to agree with because it&#39;s way too much work to explain why it&#39;s incorrect?](https://www.reddit.com/r/AskReddit/comments/1grpl8h/whats_something_you_pretend_to_agree_with_because/lxabywe/)
 - [/u/joehx on What’s a fact you recently learned, but should have already known for a long time?](https://www.reddit.com/r/AskReddit/comments/1gqe2z2/whats_a_fact_you_recently_learned_but_should_have/lx02xpx/)
-- [/u/joehx on Friends don&#39;t let friends reuse nonces](https://www.reddit.com/r/programming/comments/1fgte64/friends_dont_let_friends_reuse_nonces/ln5rxiu/)
 <!-- REDDIT:END -->
