@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Never give up on your doggo](https://news.puppy-snuggles.com/70001922/never-give-up-on-your-doggo)
-- [RIP my best friend](https://news.puppy-snuggles.com/70001918/rip-my-best-friend)
-- [Yesterday was my dogs birthday](https://news.puppy-snuggles.com/70001921/yesterday-was-my-dogs-birthday)
-- [Before &amp;amp; after being called a good girl &lpar;very excited&rpar; 🤭](https://news.puppy-snuggles.com/70001923/before-after-being-called-a-good-girl-very-excited)
-- [The pure joy in his voice is everything](https://news.puppy-snuggles.com/70001919/the-pure-joy-in-his-voice-is-everything)
+- [My Belgian Malinois](https://news.puppy-snuggles.com/69322131/my-belgian-malinois)
+- [Every time I arrive, my dog greets me with his heart pillow 🥹💕🫶🏽🧚🏽‍♂️](https://news.puppy-snuggles.com/69322129/every-time-i-arrive-my-dog-greets-me-with-his-heart-pillow)
+- [Rescued this fun crazy guy](https://news.puppy-snuggles.com/69322134/rescued-this-fun-crazy-guy)
+- [My Dixie girl growing over the years](https://news.puppy-snuggles.com/68350643/my-dixie-girl-growing-over-the-years)
+- [Bagel the Everything Beagle](https://news.puppy-snuggles.com/67954577/bagel-the-everything-beagle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
