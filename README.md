@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Belgian Malinois](https://news.puppy-snuggles.com/69322131/my-belgian-malinois)
-- [Every time I arrive, my dog greets me with his heart pillow 🥹💕🫶🏽🧚🏽‍♂️](https://news.puppy-snuggles.com/69322129/every-time-i-arrive-my-dog-greets-me-with-his-heart-pillow)
-- [Rescued this fun crazy guy](https://news.puppy-snuggles.com/69322134/rescued-this-fun-crazy-guy)
-- [My Dixie girl growing over the years](https://news.puppy-snuggles.com/68350643/my-dixie-girl-growing-over-the-years)
-- [Bagel the Everything Beagle](https://news.puppy-snuggles.com/67954577/bagel-the-everything-beagle)
+- [This is Maggie. She loves sunsets.](https://news.puppy-snuggles.com/69322126/this-is-maggie-she-loves-sunsets)
+- [I lost my best friend. Mason was the best dog, the best boy there ever was. For 12 years, he stayed by my side. This is the first time I’ll ever be home without him. He was daddies baby bird. I will see you again.](https://news.puppy-snuggles.com/66945611/i-lost-my-best-friend-mason-was-the-best-dog-the-best-boy-there-ever-was-for-12-years-he-stayed-by-my-side-this-is-the-first-time-ill-ever-be-home-without-him-he-was-daddies-baby-bird-i-will-see-you-again)
+- [What dog is this, we found her lost, cold, and hungry?](https://news.puppy-snuggles.com/54656581/what-dog-is-this-we-found-her-lost-cold-and-hungry)
+- [From a farm rescue to couch princess 🐶❤️](https://news.puppy-snuggles.com/49557559/from-a-farm-rescue-to-couch-princess)
+- [This farmer is sad, and first, dogs try to cheer him. When they can&amp;#039;t, they call cows &amp;amp;amp; donkeys](https://news.puppy-snuggles.com/47850708/this-farmer-is-sad-and-first-dogs-try-to-cheer-him-when-they-cant-they-call-cows-amp-donkeys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
