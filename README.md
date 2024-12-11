@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Maggie. She loves sunsets.](https://news.puppy-snuggles.com/69322126/this-is-maggie-she-loves-sunsets)
-- [I lost my best friend. Mason was the best dog, the best boy there ever was. For 12 years, he stayed by my side. This is the first time I’ll ever be home without him. He was daddies baby bird. I will see you again.](https://news.puppy-snuggles.com/66945611/i-lost-my-best-friend-mason-was-the-best-dog-the-best-boy-there-ever-was-for-12-years-he-stayed-by-my-side-this-is-the-first-time-ill-ever-be-home-without-him-he-was-daddies-baby-bird-i-will-see-you-again)
-- [What dog is this, we found her lost, cold, and hungry?](https://news.puppy-snuggles.com/54656581/what-dog-is-this-we-found-her-lost-cold-and-hungry)
-- [From a farm rescue to couch princess 🐶❤️](https://news.puppy-snuggles.com/49557559/from-a-farm-rescue-to-couch-princess)
-- [This farmer is sad, and first, dogs try to cheer him. When they can&amp;#039;t, they call cows &amp;amp;amp; donkeys](https://news.puppy-snuggles.com/47850708/this-farmer-is-sad-and-first-dogs-try-to-cheer-him-when-they-cant-they-call-cows-amp-donkeys)
+- [Saying goodbye today...](https://news.puppy-snuggles.com/67747953/saying-goodbye-today)
+- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
+- [Maco says Hi! 🐶](https://news.puppy-snuggles.com/43163205/maco-says-hi)
+- [Just chilling...](https://news.puppy-snuggles.com/41506637/just-chilling)
+- [My boy cannoli!](https://news.puppy-snuggles.com/36201374/my-boy-cannoli)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
