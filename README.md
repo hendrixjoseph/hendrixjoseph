@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Saying goodbye today...](https://news.puppy-snuggles.com/67747953/saying-goodbye-today)
-- [‘Dis My Nephew Riding in the Truck](https://news.puppy-snuggles.com/63072187/dis-my-nephew-riding-in-the-truck)
-- [Maco says Hi! 🐶](https://news.puppy-snuggles.com/43163205/maco-says-hi)
-- [Just chilling...](https://news.puppy-snuggles.com/41506637/just-chilling)
-- [My boy cannoli!](https://news.puppy-snuggles.com/36201374/my-boy-cannoli)
+- [Our Bugaboo. 9 months old &amp;amp;amp; a lot of fun &lpar;and mischief&rpar;](https://news.puppy-snuggles.com/69542649/our-bugaboo-9-months-old-amp-a-lot-of-fun-and-mischief)
+- [365 days of walking Moxie 🐾❤️ day 6](https://news.puppy-snuggles.com/66864008/365-days-of-walking-moxie-day-6)
+- [i swear he knows how cute he is](https://news.puppy-snuggles.com/66823222/i-swear-he-knows-how-cute-he-is)
+- [What dog is this, we found her lost, cold, and hungry?](https://news.puppy-snuggles.com/54656581/what-dog-is-this-we-found-her-lost-cold-and-hungry)
+- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
