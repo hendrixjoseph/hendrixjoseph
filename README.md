@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our Bugaboo. 9 months old &amp;amp;amp; a lot of fun &lpar;and mischief&rpar;](https://news.puppy-snuggles.com/69542649/our-bugaboo-9-months-old-amp-a-lot-of-fun-and-mischief)
-- [365 days of walking Moxie 🐾❤️ day 6](https://news.puppy-snuggles.com/66864008/365-days-of-walking-moxie-day-6)
-- [i swear he knows how cute he is](https://news.puppy-snuggles.com/66823222/i-swear-he-knows-how-cute-he-is)
-- [What dog is this, we found her lost, cold, and hungry?](https://news.puppy-snuggles.com/54656581/what-dog-is-this-we-found-her-lost-cold-and-hungry)
-- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
+- [Name this band](https://news.puppy-snuggles.com/69479665/name-this-band)
+- [I said goodbye to my beautiful little girl today. We called her Orlaigh the Brave](https://news.puppy-snuggles.com/66925683/i-said-goodbye-to-my-beautiful-little-girl-today-we-called-her-orlaigh-the-brave)
+- [She had to go today, hardest day of my life in 45 years.](https://news.puppy-snuggles.com/65688048/she-had-to-go-today-hardest-day-of-my-life-in-45-years)
+- [Best friends!](https://news.puppy-snuggles.com/61666593/best-friends)
+- [Show me some teefers](https://news.puppy-snuggles.com/60145037/show-me-some-teefers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
