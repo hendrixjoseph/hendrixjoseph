@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Name this band](https://news.puppy-snuggles.com/69479665/name-this-band)
-- [I said goodbye to my beautiful little girl today. We called her Orlaigh the Brave](https://news.puppy-snuggles.com/66925683/i-said-goodbye-to-my-beautiful-little-girl-today-we-called-her-orlaigh-the-brave)
-- [She had to go today, hardest day of my life in 45 years.](https://news.puppy-snuggles.com/65688048/she-had-to-go-today-hardest-day-of-my-life-in-45-years)
-- [Best friends!](https://news.puppy-snuggles.com/61666593/best-friends)
-- [Show me some teefers](https://news.puppy-snuggles.com/60145037/show-me-some-teefers)
+- [He thinks he’s cute 🙄](https://news.puppy-snuggles.com/50577378/he-thinks-hes-cute)
+- [This good boy’s birthday is coming up, what should I get him?](https://news.puppy-snuggles.com/50577382/this-good-boys-birthday-is-coming-up-what-should-i-get-him)
+- [Wiener puppy](https://news.puppy-snuggles.com/50577380/wiener-puppy)
+- [said goodbye to Bella today after the best 15 years I could ask for, please say a prayer for her](https://news.puppy-snuggles.com/50577377/said-goodbye-to-bella-today-after-the-best-15-years-i-could-ask-for-please-say-a-prayer-for-her)
+- [Siblings!](https://news.puppy-snuggles.com/50577379/siblings)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
