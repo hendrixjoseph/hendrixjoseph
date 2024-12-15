@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He thinks he’s cute 🙄](https://news.puppy-snuggles.com/50577378/he-thinks-hes-cute)
-- [This good boy’s birthday is coming up, what should I get him?](https://news.puppy-snuggles.com/50577382/this-good-boys-birthday-is-coming-up-what-should-i-get-him)
-- [Wiener puppy](https://news.puppy-snuggles.com/50577380/wiener-puppy)
-- [said goodbye to Bella today after the best 15 years I could ask for, please say a prayer for her](https://news.puppy-snuggles.com/50577377/said-goodbye-to-bella-today-after-the-best-15-years-i-could-ask-for-please-say-a-prayer-for-her)
-- [Siblings!](https://news.puppy-snuggles.com/50577379/siblings)
+- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
+- [Ideas on the breed of this dumpster puppy?](https://news.puppy-snuggles.com/58514431/ideas-on-the-breed-of-this-dumpster-puppy)
+- [Lexi and Rambo](https://news.puppy-snuggles.com/56289023/lexi-and-rambo)
+- [Sweet Uma](https://news.puppy-snuggles.com/38820414/sweet-uma)
+- [Their first night together.](https://news.puppy-snuggles.com/34269781/their-first-night-together)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
