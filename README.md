@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
-- [Ideas on the breed of this dumpster puppy?](https://news.puppy-snuggles.com/58514431/ideas-on-the-breed-of-this-dumpster-puppy)
-- [Lexi and Rambo](https://news.puppy-snuggles.com/56289023/lexi-and-rambo)
-- [Sweet Uma](https://news.puppy-snuggles.com/38820414/sweet-uma)
-- [Their first night together.](https://news.puppy-snuggles.com/34269781/their-first-night-together)
+- [Is it dumb to adopt a dog who looks a lot like your dog that died 3 weeks ago?](https://news.puppy-snuggles.com/70419608/is-it-dumb-to-adopt-a-dog-who-looks-a-lot-like-your-dog-that-died-3-weeks-ago)
+- [Happy 3rd birthday Reese.](https://news.puppy-snuggles.com/70419609/happy-3rd-birthday-reese)
+- [Help w a name for this baby](https://news.puppy-snuggles.com/70419614/help-w-a-name-for-this-baby)
+- [Me and my beloved dog Tayah.](https://news.puppy-snuggles.com/70419611/me-and-my-beloved-dog-tayah)
+- [Ethel having a lovely walk on the dunes.](https://news.puppy-snuggles.com/70419617/ethel-having-a-lovely-walk-on-the-dunes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
