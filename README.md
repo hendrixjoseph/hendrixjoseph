@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is it dumb to adopt a dog who looks a lot like your dog that died 3 weeks ago?](https://news.puppy-snuggles.com/70419608/is-it-dumb-to-adopt-a-dog-who-looks-a-lot-like-your-dog-that-died-3-weeks-ago)
-- [Happy 3rd birthday Reese.](https://news.puppy-snuggles.com/70419609/happy-3rd-birthday-reese)
-- [Help w a name for this baby](https://news.puppy-snuggles.com/70419614/help-w-a-name-for-this-baby)
-- [Me and my beloved dog Tayah.](https://news.puppy-snuggles.com/70419611/me-and-my-beloved-dog-tayah)
-- [Ethel having a lovely walk on the dunes.](https://news.puppy-snuggles.com/70419617/ethel-having-a-lovely-walk-on-the-dunes)
+- [This is Lucas. He has never worked a day in his life, but is taking a much needed vacation.](https://news.puppy-snuggles.com/70476600/this-is-lucas-he-has-never-worked-a-day-in-his-life-but-is-taking-a-much-needed-vacation)
+- [Had to put our best buddy Oscar to sleep today. We don’t deserve dogs](https://news.puppy-snuggles.com/70476605/had-to-put-our-best-buddy-oscar-to-sleep-today-we-dont-deserve-dogs)
+- [My old girl turned 11 today](https://news.puppy-snuggles.com/70476601/my-old-girl-turned-11-today)
+- [Those little eyes are looking at me with love I&amp;#039;m so lucky](https://news.puppy-snuggles.com/70476604/those-little-eyes-are-looking-at-me-with-love-im-so-lucky)
+- [My dog is a groundhog](https://news.puppy-snuggles.com/69511656/my-dog-is-a-groundhog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
