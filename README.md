@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Lucas. He has never worked a day in his life, but is taking a much needed vacation.](https://news.puppy-snuggles.com/70476600/this-is-lucas-he-has-never-worked-a-day-in-his-life-but-is-taking-a-much-needed-vacation)
-- [Had to put our best buddy Oscar to sleep today. We don’t deserve dogs](https://news.puppy-snuggles.com/70476605/had-to-put-our-best-buddy-oscar-to-sleep-today-we-dont-deserve-dogs)
-- [My old girl turned 11 today](https://news.puppy-snuggles.com/70476601/my-old-girl-turned-11-today)
-- [Those little eyes are looking at me with love I&amp;#039;m so lucky](https://news.puppy-snuggles.com/70476604/those-little-eyes-are-looking-at-me-with-love-im-so-lucky)
-- [My dog is a groundhog](https://news.puppy-snuggles.com/69511656/my-dog-is-a-groundhog)
+- [My foster puppy smiling in his sleep](https://news.puppy-snuggles.com/69042275/my-foster-puppy-smiling-in-his-sleep)
+- [This is Bruce. He is good boi.](https://news.puppy-snuggles.com/62248718/this-is-bruce-he-is-good-boi)
+- [My old girl &lpar;Stella&rpar; crossed the Rainbow Bridge](https://news.puppy-snuggles.com/57144117/my-old-girl-stella-crossed-the-rainbow-bridge)
+- [Happy faces!!!](https://news.puppy-snuggles.com/49443273/happy-faces)
+- [My tini dachshund needs a name please &amp;amp;lt;3](https://news.puppy-snuggles.com/41131939/my-tini-dachshund-needs-a-name-please-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
