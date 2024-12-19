@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My foster puppy smiling in his sleep](https://news.puppy-snuggles.com/69042275/my-foster-puppy-smiling-in-his-sleep)
-- [This is Bruce. He is good boi.](https://news.puppy-snuggles.com/62248718/this-is-bruce-he-is-good-boi)
-- [My old girl &lpar;Stella&rpar; crossed the Rainbow Bridge](https://news.puppy-snuggles.com/57144117/my-old-girl-stella-crossed-the-rainbow-bridge)
-- [Happy faces!!!](https://news.puppy-snuggles.com/49443273/happy-faces)
-- [My tini dachshund needs a name please &amp;amp;lt;3](https://news.puppy-snuggles.com/41131939/my-tini-dachshund-needs-a-name-please-lt3)
+- [This is Toothless. His tongue sticks out not because of a lack of teeth, but because he&amp;#039;s so full of love he ran out of space.](https://news.puppy-snuggles.com/70194583/this-is-toothless-his-tongue-sticks-out-not-because-of-a-lack-of-teeth-but-because-hes-so-full-of-love-he-ran-out-of-space)
+- [It&amp;#039;s my dog&amp;#039;s 1st Birthday today!](https://news.puppy-snuggles.com/69840749/its-my-dogs-1st-birthday-today)
+- [New Christmas Sweater!](https://news.puppy-snuggles.com/69779199/new-christmas-sweater)
+- [Say hello to Havanese](https://news.puppy-snuggles.com/69572526/say-hello-to-havanese)
+- [I just melted and Evaporated 🧿](https://news.puppy-snuggles.com/68739208/i-just-melted-and-evaporated)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
