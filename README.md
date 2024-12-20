@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Toothless. His tongue sticks out not because of a lack of teeth, but because he&amp;#039;s so full of love he ran out of space.](https://news.puppy-snuggles.com/70194583/this-is-toothless-his-tongue-sticks-out-not-because-of-a-lack-of-teeth-but-because-hes-so-full-of-love-he-ran-out-of-space)
-- [It&amp;#039;s my dog&amp;#039;s 1st Birthday today!](https://news.puppy-snuggles.com/69840749/its-my-dogs-1st-birthday-today)
-- [New Christmas Sweater!](https://news.puppy-snuggles.com/69779199/new-christmas-sweater)
-- [Say hello to Havanese](https://news.puppy-snuggles.com/69572526/say-hello-to-havanese)
-- [I just melted and Evaporated 🧿](https://news.puppy-snuggles.com/68739208/i-just-melted-and-evaporated)
+- [Said goodbye to Rosie aged 15 recently.](https://news.puppy-snuggles.com/67412284/said-goodbye-to-rosie-aged-15-recently)
+- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
+- [I have a real og at home. Brendo is almost two years old and is saying Hi to all his fans](https://news.puppy-snuggles.com/32375234/i-have-a-real-og-at-home-brendo-is-almost-two-years-old-and-is-saying-hi-to-all-his-fans)
+- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
+- [The ugliest dog I have ever seen](https://news.puppy-snuggles.com/27395276/the-ugliest-dog-i-have-ever-seen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
