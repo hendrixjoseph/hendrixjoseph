@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to Rosie aged 15 recently.](https://news.puppy-snuggles.com/67412284/said-goodbye-to-rosie-aged-15-recently)
-- [That’s one happy Luna](https://news.puppy-snuggles.com/33838813/thats-one-happy-luna)
-- [I have a real og at home. Brendo is almost two years old and is saying Hi to all his fans](https://news.puppy-snuggles.com/32375234/i-have-a-real-og-at-home-brendo-is-almost-two-years-old-and-is-saying-hi-to-all-his-fans)
-- [Sundae doesn’t like being ignored](https://news.puppy-snuggles.com/31605218/sundae-doesnt-like-being-ignored)
-- [The ugliest dog I have ever seen](https://news.puppy-snuggles.com/27395276/the-ugliest-dog-i-have-ever-seen)
+- [Is it dumb to adopt a dog who looks a lot like your dog that died 3 weeks ago?](https://news.puppy-snuggles.com/70419608/is-it-dumb-to-adopt-a-dog-who-looks-a-lot-like-your-dog-that-died-3-weeks-ago)
+- [My 16 year old rescue puppy](https://news.puppy-snuggles.com/38637710/my-16-year-old-rescue-puppy)
+- [Hi everyone this is Tonka, he&amp;#039;s 15 years old today. He&amp;#039;s such a good boy. These days he mostly enjoys sniffing most things and getting scritches. Send him a birthday scritch and I&amp;#039;ll make sure that he gets it!](https://news.puppy-snuggles.com/25889674/hi-everyone-this-is-tonka-hes-15-years-old-today-hes-such-a-good-boy-these-days-he-mostly-enjoys-sniffing-most-things-and-getting-scritches-send-him-a-birthday-scritch-and-ill-make-sure-that-he-gets-it)
+- [my old boy looking sad 😥](https://news.puppy-snuggles.com/23214211/my-old-boy-looking-sad)
+- [Recently my dog has been doing these small head shakes a lot. Just started recently. Should I be worried about anything?](https://news.puppy-snuggles.com/22774028/recently-my-dog-has-been-doing-these-small-head-shakes-a-lot-just-started-recently-should-i-be-worried-about-anything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
