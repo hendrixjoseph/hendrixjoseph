@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ve never had a dog live past 13 🥺 Today Howie turned 14 🥳](https://news.puppy-snuggles.com/70751473/ive-never-had-a-dog-live-past-13-today-howie-turned-14)
-- [i am sorry but we love each other so much](https://news.puppy-snuggles.com/70642671/i-am-sorry-but-we-love-each-other-so-much)
-- [Very happy because they took me for a walk](https://news.puppy-snuggles.com/67483514/very-happy-because-they-took-me-for-a-walk)
-- [I feel like non-pet owners actually have no idea how much we love our doggos](https://news.puppy-snuggles.com/62097886/i-feel-like-non-pet-owners-actually-have-no-idea-how-much-we-love-our-doggos)
-- [Picked him off the street a few weeks ago, completely stumped on what he is. Thinking Kangaroo?](https://news.puppy-snuggles.com/61542362/picked-him-off-the-street-a-few-weeks-ago-completely-stumped-on-what-he-is-thinking-kangaroo)
+- [Guess who turned 11](https://news.puppy-snuggles.com/68739205/guess-who-turned-11)
+- [Is my dog cute](https://news.puppy-snuggles.com/54447015/is-my-dog-cute)
+- [Just a boy and his ball ☺️💙](https://news.puppy-snuggles.com/43163197/just-a-boy-and-his-ball)
+- [He’s a happy boy.](https://news.puppy-snuggles.com/41757418/hes-a-happy-boy)
+- [I lost my old lady yesterday](https://news.puppy-snuggles.com/41200202/i-lost-my-old-lady-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
