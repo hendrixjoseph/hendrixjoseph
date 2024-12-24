@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Guess who turned 11](https://news.puppy-snuggles.com/68739205/guess-who-turned-11)
-- [Is my dog cute](https://news.puppy-snuggles.com/54447015/is-my-dog-cute)
-- [Just a boy and his ball ☺️💙](https://news.puppy-snuggles.com/43163197/just-a-boy-and-his-ball)
-- [He’s a happy boy.](https://news.puppy-snuggles.com/41757418/hes-a-happy-boy)
-- [I lost my old lady yesterday](https://news.puppy-snuggles.com/41200202/i-lost-my-old-lady-yesterday)
+- [I don’t think I’ll ever recover](https://news.puppy-snuggles.com/70328595/i-dont-think-ill-ever-recover)
+- [Sister’s silly time!](https://news.puppy-snuggles.com/70295158/sisters-silly-time)
+- [This is candy, she’s 8 weeks old . What, if anything do you think she’s mixed with?](https://news.puppy-snuggles.com/70262144/this-is-candy-shes-8-weeks-old-what-if-anything-do-you-think-shes-mixed-with)
+- [I need everyone to see this 2.5lb pup my step brother got it&amp;#039;s so small and so soft!](https://news.puppy-snuggles.com/70262143/i-need-everyone-to-see-this-25lb-pup-my-step-brother-got-its-so-small-and-so-soft)
+- [Even under anthesia he still wags his tail... I&amp;#039;m not sure what to do](https://news.puppy-snuggles.com/69840752/even-under-anthesia-he-still-wags-his-tail-im-not-sure-what-to-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
