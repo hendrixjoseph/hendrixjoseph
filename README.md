@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I don’t think I’ll ever recover](https://news.puppy-snuggles.com/70328595/i-dont-think-ill-ever-recover)
-- [Sister’s silly time!](https://news.puppy-snuggles.com/70295158/sisters-silly-time)
-- [This is candy, she’s 8 weeks old . What, if anything do you think she’s mixed with?](https://news.puppy-snuggles.com/70262144/this-is-candy-shes-8-weeks-old-what-if-anything-do-you-think-shes-mixed-with)
-- [I need everyone to see this 2.5lb pup my step brother got it&amp;#039;s so small and so soft!](https://news.puppy-snuggles.com/70262143/i-need-everyone-to-see-this-25lb-pup-my-step-brother-got-its-so-small-and-so-soft)
-- [Even under anthesia he still wags his tail... I&amp;#039;m not sure what to do](https://news.puppy-snuggles.com/69840752/even-under-anthesia-he-still-wags-his-tail-im-not-sure-what-to-do)
+- [5 years ago today, I lost my buddy Sam. Still hurts.](https://news.puppy-snuggles.com/70914932/5-years-ago-today-i-lost-my-buddy-sam-still-hurts)
+- [This is Gus. He has an excellent smile and a great hat.](https://news.puppy-snuggles.com/69416962/this-is-gus-he-has-an-excellent-smile-and-a-great-hat)
+- [Saved with 3 minutes to spare!](https://news.puppy-snuggles.com/69385267/saved-with-3-minutes-to-spare)
+- [Say hello to my new rescue dog](https://news.puppy-snuggles.com/69353031/say-hello-to-my-new-rescue-dog)
+- [Can I see your pups in the long leg teenage stage please🤞🤗♥️](https://news.puppy-snuggles.com/67011553/can-i-see-your-pups-in-the-long-leg-teenage-stage-please)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
