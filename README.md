@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [5 years ago today, I lost my buddy Sam. Still hurts.](https://news.puppy-snuggles.com/70914932/5-years-ago-today-i-lost-my-buddy-sam-still-hurts)
-- [This is Gus. He has an excellent smile and a great hat.](https://news.puppy-snuggles.com/69416962/this-is-gus-he-has-an-excellent-smile-and-a-great-hat)
-- [Saved with 3 minutes to spare!](https://news.puppy-snuggles.com/69385267/saved-with-3-minutes-to-spare)
-- [Say hello to my new rescue dog](https://news.puppy-snuggles.com/69353031/say-hello-to-my-new-rescue-dog)
-- [Can I see your pups in the long leg teenage stage please🤞🤗♥️](https://news.puppy-snuggles.com/67011553/can-i-see-your-pups-in-the-long-leg-teenage-stage-please)
+- [I told myself I wasn&amp;#039;t going to dress my dog up. This is 3rd costume](https://news.puppy-snuggles.com/67954575/i-told-myself-i-wasnt-going-to-dress-my-dog-up-this-is-3rd-costume)
+- [Met her at the gas station yesterday](https://news.puppy-snuggles.com/66945609/met-her-at-the-gas-station-yesterday)
+- [Wait buddy, let me just take a picture of you](https://news.puppy-snuggles.com/59264758/wait-buddy-let-me-just-take-a-picture-of-you)
+- [Just wanted to share our new boy!](https://news.puppy-snuggles.com/55840306/just-wanted-to-share-our-new-boy)
+- [Blind dog has his own guide dog](https://news.puppy-snuggles.com/44973426/blind-dog-has-his-own-guide-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
