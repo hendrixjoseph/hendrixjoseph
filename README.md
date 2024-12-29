@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I was petting her so aggressively just to bother her a bit, she didn&amp;#039;t mind tho.](https://news.puppy-snuggles.com/71086665/i-was-petting-her-so-aggressively-just-to-bother-her-a-bit-she-didnt-mind-tho)
-- [Caught this gem of a photo this morning at the park 😂](https://news.puppy-snuggles.com/70751477/caught-this-gem-of-a-photo-this-morning-at-the-park)
-- [Always happy :&rpar;](https://news.puppy-snuggles.com/68824798/always-happy)
-- [Neighbor leaving dog at backyard 24/7](https://news.puppy-snuggles.com/68034633/neighbor-leaving-dog-at-backyard-247)
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [My old gal](https://news.puppy-snuggles.com/71105252/my-old-gal)
+- [We adopted you exactly 5 months ago](https://news.puppy-snuggles.com/71086659/we-adopted-you-exactly-5-months-ago)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 66](https://news.puppy-snuggles.com/70161556/365-days-of-pepperoni-her-mama-day-66)
+- [I know dogs can dance but everytime I see it always surprises me!](https://news.puppy-snuggles.com/47767291/i-know-dogs-can-dance-but-everytime-i-see-it-always-surprises-me)
+- [love this cute dog](https://news.puppy-snuggles.com/23957367/love-this-cute-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
