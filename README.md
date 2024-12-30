@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My old gal](https://news.puppy-snuggles.com/71105252/my-old-gal)
-- [We adopted you exactly 5 months ago](https://news.puppy-snuggles.com/71086659/we-adopted-you-exactly-5-months-ago)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 66](https://news.puppy-snuggles.com/70161556/365-days-of-pepperoni-her-mama-day-66)
-- [I know dogs can dance but everytime I see it always surprises me!](https://news.puppy-snuggles.com/47767291/i-know-dogs-can-dance-but-everytime-i-see-it-always-surprises-me)
-- [love this cute dog](https://news.puppy-snuggles.com/23957367/love-this-cute-dog)
+- [Goodbye, Thor. You will always be the absolute goodest of boys.](https://news.puppy-snuggles.com/70660764/goodbye-thor-you-will-always-be-the-absolute-goodest-of-boys)
+- [Hey there 🤪](https://news.puppy-snuggles.com/70229300/hey-there)
+- [Leftover baked potato, any takers?](https://news.puppy-snuggles.com/69572528/leftover-baked-potato-any-takers)
+- [Name this band](https://news.puppy-snuggles.com/69479665/name-this-band)
+- [Proficient in tummy rubs receivables](https://news.puppy-snuggles.com/69238917/proficient-in-tummy-rubs-receivables)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
