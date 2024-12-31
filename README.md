@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye, Thor. You will always be the absolute goodest of boys.](https://news.puppy-snuggles.com/70660764/goodbye-thor-you-will-always-be-the-absolute-goodest-of-boys)
-- [Hey there 🤪](https://news.puppy-snuggles.com/70229300/hey-there)
-- [Leftover baked potato, any takers?](https://news.puppy-snuggles.com/69572528/leftover-baked-potato-any-takers)
-- [Name this band](https://news.puppy-snuggles.com/69479665/name-this-band)
-- [Proficient in tummy rubs receivables](https://news.puppy-snuggles.com/69238917/proficient-in-tummy-rubs-receivables)
+- [We adopted you exactly 5 months ago](https://news.puppy-snuggles.com/71086659/we-adopted-you-exactly-5-months-ago)
+- [Fell asleep on the couch and woke up to this](https://news.puppy-snuggles.com/70444996/fell-asleep-on-the-couch-and-woke-up-to-this)
+- [We all think we have the most handsome dog. I’m throwing my hat in for my boy Chester who’s a 2 yr old Jack Russell terrier.](https://news.puppy-snuggles.com/70129132/we-all-think-we-have-the-most-handsome-dog-im-throwing-my-hat-in-for-my-boy-chester-whos-a-2-yr-old-jack-russell-terrier)
+- [Goodbye my bestest, sweetest Watson ♡](https://news.puppy-snuggles.com/70097076/goodbye-my-bestest-sweetest-watson)
+- [what breed do y’all think the silly is](https://news.puppy-snuggles.com/70097080/what-breed-do-yall-think-the-silly-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
