@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We adopted you exactly 5 months ago](https://news.puppy-snuggles.com/71086659/we-adopted-you-exactly-5-months-ago)
-- [Fell asleep on the couch and woke up to this](https://news.puppy-snuggles.com/70444996/fell-asleep-on-the-couch-and-woke-up-to-this)
-- [We all think we have the most handsome dog. I’m throwing my hat in for my boy Chester who’s a 2 yr old Jack Russell terrier.](https://news.puppy-snuggles.com/70129132/we-all-think-we-have-the-most-handsome-dog-im-throwing-my-hat-in-for-my-boy-chester-whos-a-2-yr-old-jack-russell-terrier)
-- [Goodbye my bestest, sweetest Watson ♡](https://news.puppy-snuggles.com/70097076/goodbye-my-bestest-sweetest-watson)
-- [what breed do y’all think the silly is](https://news.puppy-snuggles.com/70097080/what-breed-do-yall-think-the-silly-is)
+- [Mocha is a happy girl](https://news.puppy-snuggles.com/64637770/mocha-is-a-happy-girl)
+- [I giggle every time he smiles at me, and I say - Hey cheeky](https://news.puppy-snuggles.com/56755298/i-giggle-every-time-he-smiles-at-me-and-i-say-hey-cheeky)
+- [Best friends](https://news.puppy-snuggles.com/51995162/best-friends)
+- [the birthday boy!](https://news.puppy-snuggles.com/45987337/the-birthday-boy)
+- [Big smile from Zeke!](https://news.puppy-snuggles.com/44200285/big-smile-from-zeke)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
