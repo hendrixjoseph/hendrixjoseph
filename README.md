@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mocha is a happy girl](https://news.puppy-snuggles.com/64637770/mocha-is-a-happy-girl)
-- [I giggle every time he smiles at me, and I say - Hey cheeky](https://news.puppy-snuggles.com/56755298/i-giggle-every-time-he-smiles-at-me-and-i-say-hey-cheeky)
-- [Best friends](https://news.puppy-snuggles.com/51995162/best-friends)
-- [the birthday boy!](https://news.puppy-snuggles.com/45987337/the-birthday-boy)
-- [Big smile from Zeke!](https://news.puppy-snuggles.com/44200285/big-smile-from-zeke)
+- [I named him Chandler. Yes! Chandler from FRIENDS :&rpar;](https://news.puppy-snuggles.com/71352032/i-named-him-chandler-yes-chandler-from-friends)
+- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
+- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
+- [Rest in piece, my loyal friend](https://news.puppy-snuggles.com/49884165/rest-in-piece-my-loyal-friend)
+- [DustyDoll the Workin Dog! And she has a birthday!!](https://news.puppy-snuggles.com/49364679/dustydoll-the-workin-dog-and-she-has-a-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
