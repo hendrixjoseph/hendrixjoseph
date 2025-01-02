@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What’s a rule in society that everyone agrees is pointless, but we all still follow?](https://www.reddit.com/r/AskReddit/comments/1hql89c/whats_a_rule_in_society_that_everyone_agrees_is/m4ufpuw/)
 - [/u/joehx on What’s a rule in society that everyone agrees is pointless, but we all still follow?](https://www.reddit.com/r/AskReddit/comments/1hql89c/whats_a_rule_in_society_that_everyone_agrees_is/m4r42jq/)
 - [/u/joehx on Start a health insurance company](https://www.reddit.com/r/startups/comments/1hkaoat/start_a_health_insurance_company/m3cyeqd/)
 - [/u/joehx on Every year I bake a ton of cookies for family and friends. Here’s all 2,162 now that Cookie Chaos 2024 is over!](https://www.reddit.com/r/Baking/comments/1hfn4a3/every_year_i_bake_a_ton_of_cookies_for_family_and/m2ebjkm/)
 - [/u/joehx on I dont really get the hate that NIMBYs get.](https://www.reddit.com/r/homeowners/comments/1hedq2a/i_dont_really_get_the_hate_that_nimbys_get/m22xucp/)
-- [/u/joehx on Gentleman, when was the last time you got a compliment?](https://www.reddit.com/r/AskMen/comments/1h9n30d/gentleman_when_was_the_last_time_you_got_a/m12wyrn/)
 <!-- REDDIT:END -->
