@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I named him Chandler. Yes! Chandler from FRIENDS :&rpar;](https://news.puppy-snuggles.com/71352032/i-named-him-chandler-yes-chandler-from-friends)
-- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
-- [After a stressful week, today we found out Pumpkin DOES NOT have liver failure!!! Wanted to share our happiness!](https://news.puppy-snuggles.com/52421361/after-a-stressful-week-today-we-found-out-pumpkin-does-not-have-liver-failure-wanted-to-share-our-happiness)
-- [Rest in piece, my loyal friend](https://news.puppy-snuggles.com/49884165/rest-in-piece-my-loyal-friend)
-- [DustyDoll the Workin Dog! And she has a birthday!!](https://news.puppy-snuggles.com/49364679/dustydoll-the-workin-dog-and-she-has-a-birthday)
+- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
+- [for those who wanted to see a other picture of her on her 10th birthday!](https://news.puppy-snuggles.com/69416967/for-those-who-wanted-to-see-a-other-picture-of-her-on-her-10th-birthday)
+- [Sister came by with her dogs, only got pictures of only one though 😕](https://news.puppy-snuggles.com/55131867/sister-came-by-with-her-dogs-only-got-pictures-of-only-one-though)
+- [Lost my best friend today 😭](https://news.puppy-snuggles.com/48360554/lost-my-best-friend-today)
+- [Mother, why have you forsaken me](https://news.puppy-snuggles.com/35981479/mother-why-have-you-forsaken-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
