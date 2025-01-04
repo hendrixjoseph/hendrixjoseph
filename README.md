@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
-- [for those who wanted to see a other picture of her on her 10th birthday!](https://news.puppy-snuggles.com/69416967/for-those-who-wanted-to-see-a-other-picture-of-her-on-her-10th-birthday)
-- [Sister came by with her dogs, only got pictures of only one though 😕](https://news.puppy-snuggles.com/55131867/sister-came-by-with-her-dogs-only-got-pictures-of-only-one-though)
-- [Lost my best friend today 😭](https://news.puppy-snuggles.com/48360554/lost-my-best-friend-today)
-- [Mother, why have you forsaken me](https://news.puppy-snuggles.com/35981479/mother-why-have-you-forsaken-me)
+- [Ruby turned 14 today](https://news.puppy-snuggles.com/66606033/ruby-turned-14-today)
+- [I wanna see your zoomie dogs](https://news.puppy-snuggles.com/60921550/i-wanna-see-your-zoomie-dogs)
+- [My girl just turned 4!](https://news.puppy-snuggles.com/59808431/my-girl-just-turned-4)
+- [Just wanted to share Suchi’s story, a rescue on Christmas day. Hope you’ll get inspire to adopt rescue’s too.](https://news.puppy-snuggles.com/57565248/just-wanted-to-share-suchis-story-a-rescue-on-christmas-day-hope-youll-get-inspire-to-adopt-rescues-too)
+- [What do you think he is and what should his name be?](https://news.puppy-snuggles.com/56965570/what-do-you-think-he-is-and-what-should-his-name-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
