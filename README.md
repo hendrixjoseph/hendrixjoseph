@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ruby turned 14 today](https://news.puppy-snuggles.com/66606033/ruby-turned-14-today)
-- [I wanna see your zoomie dogs](https://news.puppy-snuggles.com/60921550/i-wanna-see-your-zoomie-dogs)
-- [My girl just turned 4!](https://news.puppy-snuggles.com/59808431/my-girl-just-turned-4)
-- [Just wanted to share Suchi’s story, a rescue on Christmas day. Hope you’ll get inspire to adopt rescue’s too.](https://news.puppy-snuggles.com/57565248/just-wanted-to-share-suchis-story-a-rescue-on-christmas-day-hope-youll-get-inspire-to-adopt-rescues-too)
-- [What do you think he is and what should his name be?](https://news.puppy-snuggles.com/56965570/what-do-you-think-he-is-and-what-should-his-name-be)
+- [Had him for 11 years, no clue what his breed is.](https://news.puppy-snuggles.com/71514785/had-him-for-11-years-no-clue-what-his-breed-is)
+- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
+- [He insists on walking with his toy now](https://news.puppy-snuggles.com/68509257/he-insists-on-walking-with-his-toy-now)
+- [When your big brother is a fluffly giant](https://news.puppy-snuggles.com/55510286/when-your-big-brother-is-a-fluffly-giant)
+- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
