@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Had him for 11 years, no clue what his breed is.](https://news.puppy-snuggles.com/71514785/had-him-for-11-years-no-clue-what-his-breed-is)
-- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
-- [He insists on walking with his toy now](https://news.puppy-snuggles.com/68509257/he-insists-on-walking-with-his-toy-now)
-- [When your big brother is a fluffly giant](https://news.puppy-snuggles.com/55510286/when-your-big-brother-is-a-fluffly-giant)
-- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
+- [I didn’t share my lunch](https://news.puppy-snuggles.com/69572527/i-didnt-share-my-lunch)
+- [I hope you’re not allergic to bees](https://news.puppy-snuggles.com/67995926/i-hope-youre-not-allergic-to-bees)
+- [Just a big happy puppy on a walk with flowers](https://news.puppy-snuggles.com/67868859/just-a-big-happy-puppy-on-a-walk-with-flowers)
+- [Pepper is not a Beetlejuice fan.](https://news.puppy-snuggles.com/67620186/pepper-is-not-a-beetlejuice-fan)
+- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
