@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I didn’t share my lunch](https://news.puppy-snuggles.com/69572527/i-didnt-share-my-lunch)
-- [I hope you’re not allergic to bees](https://news.puppy-snuggles.com/67995926/i-hope-youre-not-allergic-to-bees)
-- [Just a big happy puppy on a walk with flowers](https://news.puppy-snuggles.com/67868859/just-a-big-happy-puppy-on-a-walk-with-flowers)
-- [Pepper is not a Beetlejuice fan.](https://news.puppy-snuggles.com/67620186/pepper-is-not-a-beetlejuice-fan)
-- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
+- [One more Pratt update for now...](https://news.puppy-snuggles.com/63417568/one-more-pratt-update-for-now)
+- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
+- [Everyone, meet Cheese ❤️](https://news.puppy-snuggles.com/58668020/everyone-meet-cheese)
+- [Tennis balls make me smile 🎾](https://news.puppy-snuggles.com/52139617/tennis-balls-make-me-smile)
+- [Today is my birthday, I know I&amp;#039;m very sick but no one ever blessed me!](https://news.puppy-snuggles.com/36889217/today-is-my-birthday-i-know-im-very-sick-but-no-one-ever-blessed-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
