@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One more Pratt update for now...](https://news.puppy-snuggles.com/63417568/one-more-pratt-update-for-now)
-- [He has a name and I know his breed. He’s just awesome.](https://news.puppy-snuggles.com/58788220/he-has-a-name-and-i-know-his-breed-hes-just-awesome)
-- [Everyone, meet Cheese ❤️](https://news.puppy-snuggles.com/58668020/everyone-meet-cheese)
-- [Tennis balls make me smile 🎾](https://news.puppy-snuggles.com/52139617/tennis-balls-make-me-smile)
-- [Today is my birthday, I know I&amp;#039;m very sick but no one ever blessed me!](https://news.puppy-snuggles.com/36889217/today-is-my-birthday-i-know-im-very-sick-but-no-one-ever-blessed-me)
+- [My happy girl scout](https://news.puppy-snuggles.com/68863223/my-happy-girl-scout)
+- [Shoutout to my sweet boy battling cancer](https://news.puppy-snuggles.com/68739210/shoutout-to-my-sweet-boy-battling-cancer)
+- [it&amp;#039;s Duke again.](https://news.puppy-snuggles.com/27498749/its-duke-again)
+- [He’s just so happy all the time I love him 😍](https://news.puppy-snuggles.com/23839550/hes-just-so-happy-all-the-time-i-love-him)
+- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
