@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My happy girl scout](https://news.puppy-snuggles.com/68863223/my-happy-girl-scout)
-- [Shoutout to my sweet boy battling cancer](https://news.puppy-snuggles.com/68739210/shoutout-to-my-sweet-boy-battling-cancer)
-- [it&amp;#039;s Duke again.](https://news.puppy-snuggles.com/27498749/its-duke-again)
-- [He’s just so happy all the time I love him 😍](https://news.puppy-snuggles.com/23839550/hes-just-so-happy-all-the-time-i-love-him)
-- [Guess her breed](https://news.puppy-snuggles.com/23024100/guess-her-breed)
+- [Yesterday we adopted Frank the mini dachshund](https://news.puppy-snuggles.com/69715894/yesterday-we-adopted-frank-the-mini-dachshund)
+- [I think my dog &lpar;chomp&rpar; just got extremely offended🤣](https://news.puppy-snuggles.com/69633185/i-think-my-dog-chomp-just-got-extremely-offended)
+- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 11](https://news.puppy-snuggles.com/66525949/365-days-of-pepperoni-amp-her-mama-day-11)
+- [Rest in Peace little man](https://news.puppy-snuggles.com/63417567/rest-in-peace-little-man)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
