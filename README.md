@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yesterday we adopted Frank the mini dachshund](https://news.puppy-snuggles.com/69715894/yesterday-we-adopted-frank-the-mini-dachshund)
-- [I think my dog &lpar;chomp&rpar; just got extremely offended🤣](https://news.puppy-snuggles.com/69633185/i-think-my-dog-chomp-just-got-extremely-offended)
-- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 11](https://news.puppy-snuggles.com/66525949/365-days-of-pepperoni-amp-her-mama-day-11)
-- [Rest in Peace little man](https://news.puppy-snuggles.com/63417567/rest-in-peace-little-man)
+- [RIP Peaches. Gone Too Soon](https://news.puppy-snuggles.com/71720814/rip-peaches-gone-too-soon)
+- [Always gentle like a Brother](https://news.puppy-snuggles.com/47682302/always-gentle-like-a-brother)
+- [Did a Hogwarts photoshoot of my dog!!](https://news.puppy-snuggles.com/23397834/did-a-hogwarts-photoshoot-of-my-dog)
+- [This smiling happy puppy! Any ideas which breed is him 10 weeks old 4kg](https://news.puppy-snuggles.com/23175022/this-smiling-happy-puppy-any-ideas-which-breed-is-him-10-weeks-old-4kg)
+- [This smiling pup &lpar;we’re calling Pepe right now&rpar; was passed on to a friend by a homeless gentlemen who could no longer look after him. He’s looking for a new home in Salt Lake City!](https://news.puppy-snuggles.com/22994976/this-smiling-pup-were-calling-pepe-right-now-was-passed-on-to-a-friend-by-a-homeless-gentlemen-who-could-no-longer-look-after-him-hes-looking-for-a-new-home-in-salt-lake-city)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
