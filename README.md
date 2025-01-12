@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let me sketch your dog round 2 ! &lpar;send in the comments&rpar;](https://news.puppy-snuggles.com/71779930/let-me-sketch-your-dog-round-2-send-in-the-comments)
-- [RIP Peaches. Gone Too Soon](https://news.puppy-snuggles.com/71720814/rip-peaches-gone-too-soon)
-- [Reason 174 why you should adopt a rescue dog](https://news.puppy-snuggles.com/70751474/reason-174-why-you-should-adopt-a-rescue-dog)
-- [Definitely not lacking in self confidence.](https://news.puppy-snuggles.com/50621294/definitely-not-lacking-in-self-confidence)
-- [All dog dads after getting a pet they didn&amp;#039;t want](https://news.puppy-snuggles.com/49863708/all-dog-dads-after-getting-a-pet-they-didnt-want)
+- [Happy NYE 2024!! With love from Bunnyboo, and Nala &lpar; next pic&rpar; Down Under. :&rpar; :&rpar; What are some of your NY resolutions?](https://news.puppy-snuggles.com/71261705/happy-nye-2024-with-love-from-bunnyboo-and-nala-next-pic-down-under-what-are-some-of-your-ny-resolutions)
+- [Carved my friend&amp;#039;s puppy who passed away not long ago, it means really a lot to him](https://news.puppy-snuggles.com/71261707/carved-my-friends-puppy-who-passed-away-not-long-ago-it-means-really-a-lot-to-him)
+- [My dingus 🫶🏻](https://news.puppy-snuggles.com/69779200/my-dingus)
+- [Had to say goodbye to my soul dog. Show me pics of your doggos.](https://news.puppy-snuggles.com/69572525/had-to-say-goodbye-to-my-soul-dog-show-me-pics-of-your-doggos)
+- [Large dog and small vehicle](https://news.puppy-snuggles.com/58372625/large-dog-and-small-vehicle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
