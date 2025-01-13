@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy NYE 2024!! With love from Bunnyboo, and Nala &lpar; next pic&rpar; Down Under. :&rpar; :&rpar; What are some of your NY resolutions?](https://news.puppy-snuggles.com/71261705/happy-nye-2024-with-love-from-bunnyboo-and-nala-next-pic-down-under-what-are-some-of-your-ny-resolutions)
-- [Carved my friend&amp;#039;s puppy who passed away not long ago, it means really a lot to him](https://news.puppy-snuggles.com/71261707/carved-my-friends-puppy-who-passed-away-not-long-ago-it-means-really-a-lot-to-him)
-- [My dingus 🫶🏻](https://news.puppy-snuggles.com/69779200/my-dingus)
-- [Had to say goodbye to my soul dog. Show me pics of your doggos.](https://news.puppy-snuggles.com/69572525/had-to-say-goodbye-to-my-soul-dog-show-me-pics-of-your-doggos)
-- [Large dog and small vehicle](https://news.puppy-snuggles.com/58372625/large-dog-and-small-vehicle)
+- [Our beautiful and sweet Bottine left this world yesterday.😞💔 She was diagnosed last week with spleen cancer at 14 y/o. 💔](https://news.puppy-snuggles.com/71893503/our-beautiful-and-sweet-bottine-left-this-world-yesterday-she-was-diagnosed-last-week-with-spleen-cancer-at-14-yo)
+- [My girl Gracie passed today.](https://news.puppy-snuggles.com/71838532/my-girl-gracie-passed-today)
+- [I love him more than life](https://news.puppy-snuggles.com/71698695/i-love-him-more-than-life)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 94](https://news.puppy-snuggles.com/71698699/365-days-of-pepperoni-her-mama-day-94)
+- [For everyone who has lost a dog.](https://news.puppy-snuggles.com/71698691/for-everyone-who-has-lost-a-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
