@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our beautiful and sweet Bottine left this world yesterday.😞💔 She was diagnosed last week with spleen cancer at 14 y/o. 💔](https://news.puppy-snuggles.com/71893503/our-beautiful-and-sweet-bottine-left-this-world-yesterday-she-was-diagnosed-last-week-with-spleen-cancer-at-14-yo)
-- [My girl Gracie passed today.](https://news.puppy-snuggles.com/71838532/my-girl-gracie-passed-today)
-- [I love him more than life](https://news.puppy-snuggles.com/71698695/i-love-him-more-than-life)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 94](https://news.puppy-snuggles.com/71698699/365-days-of-pepperoni-her-mama-day-94)
-- [For everyone who has lost a dog.](https://news.puppy-snuggles.com/71698691/for-everyone-who-has-lost-a-dog)
+- [The strongest force of good in the universe is the love of a dog!](https://news.puppy-snuggles.com/71952460/the-strongest-force-of-good-in-the-universe-is-the-love-of-a-dog)
+- [Missing her tremendously today ❤️](https://news.puppy-snuggles.com/71698693/missing-her-tremendously-today)
+- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
+- [Show me your dogs in their favorite silly spots! Franks is by far the tinies seat outside with the smelliest pillow he can find](https://news.puppy-snuggles.com/61708238/show-me-your-dogs-in-their-favorite-silly-spots-franks-is-by-far-the-tinies-seat-outside-with-the-smelliest-pillow-he-can-find)
+- [We love showing off our smiling rescues here at Sara Morocco, with 900 pups every day is à smiling day](https://news.puppy-snuggles.com/33157274/we-love-showing-off-our-smiling-rescues-here-at-sara-morocco-with-900-pups-every-day-is-a-smiling-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
