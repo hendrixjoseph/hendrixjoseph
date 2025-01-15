@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The strongest force of good in the universe is the love of a dog!](https://news.puppy-snuggles.com/71952460/the-strongest-force-of-good-in-the-universe-is-the-love-of-a-dog)
-- [Missing her tremendously today ❤️](https://news.puppy-snuggles.com/71698693/missing-her-tremendously-today)
-- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
-- [Show me your dogs in their favorite silly spots! Franks is by far the tinies seat outside with the smelliest pillow he can find](https://news.puppy-snuggles.com/61708238/show-me-your-dogs-in-their-favorite-silly-spots-franks-is-by-far-the-tinies-seat-outside-with-the-smelliest-pillow-he-can-find)
-- [We love showing off our smiling rescues here at Sara Morocco, with 900 pups every day is à smiling day](https://news.puppy-snuggles.com/33157274/we-love-showing-off-our-smiling-rescues-here-at-sara-morocco-with-900-pups-every-day-is-a-smiling-day)
+- [This poodle goes with her owner to work in the antique store. And she wears pearls.](https://news.puppy-snuggles.com/70359420/this-poodle-goes-with-her-owner-to-work-in-the-antique-store-and-she-wears-pearls)
+- [Pearl likes to sit on the top of the couch like her cat siblings](https://news.puppy-snuggles.com/67573267/pearl-likes-to-sit-on-the-top-of-the-couch-like-her-cat-siblings)
+- [Doughy hamming it up on her 3rd birthday](https://news.puppy-snuggles.com/49364681/doughy-hamming-it-up-on-her-3rd-birthday)
+- [hi](https://news.puppy-snuggles.com/40583001/hi)
+- [Pet language, useful information :D](https://news.puppy-snuggles.com/23541198/pet-language-useful-information-d)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
