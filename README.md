@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This poodle goes with her owner to work in the antique store. And she wears pearls.](https://news.puppy-snuggles.com/70359420/this-poodle-goes-with-her-owner-to-work-in-the-antique-store-and-she-wears-pearls)
-- [Pearl likes to sit on the top of the couch like her cat siblings](https://news.puppy-snuggles.com/67573267/pearl-likes-to-sit-on-the-top-of-the-couch-like-her-cat-siblings)
-- [Doughy hamming it up on her 3rd birthday](https://news.puppy-snuggles.com/49364681/doughy-hamming-it-up-on-her-3rd-birthday)
-- [hi](https://news.puppy-snuggles.com/40583001/hi)
-- [Pet language, useful information :D](https://news.puppy-snuggles.com/23541198/pet-language-useful-information-d)
+- [Rate my goofy looking dog](https://news.puppy-snuggles.com/71199098/rate-my-goofy-looking-dog)
+- [The look of a tired pup after frolicking in the water all day](https://news.puppy-snuggles.com/71199095/the-look-of-a-tired-pup-after-frolicking-in-the-water-all-day)
+- [My old man](https://news.puppy-snuggles.com/71048524/my-old-man)
+- [Had to say goodbye to the thing I love most in this world last week 😭](https://news.puppy-snuggles.com/70537905/had-to-say-goodbye-to-the-thing-i-love-most-in-this-world-last-week)
+- [My new dog seems to think he’s a parrot 🤣](https://news.puppy-snuggles.com/69448978/my-new-dog-seems-to-think-hes-a-parrot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
