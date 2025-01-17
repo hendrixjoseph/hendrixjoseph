@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rate my goofy looking dog](https://news.puppy-snuggles.com/71199098/rate-my-goofy-looking-dog)
-- [The look of a tired pup after frolicking in the water all day](https://news.puppy-snuggles.com/71199095/the-look-of-a-tired-pup-after-frolicking-in-the-water-all-day)
-- [My old man](https://news.puppy-snuggles.com/71048524/my-old-man)
-- [Had to say goodbye to the thing I love most in this world last week 😭](https://news.puppy-snuggles.com/70537905/had-to-say-goodbye-to-the-thing-i-love-most-in-this-world-last-week)
-- [My new dog seems to think he’s a parrot 🤣](https://news.puppy-snuggles.com/69448978/my-new-dog-seems-to-think-hes-a-parrot)
+- [The sulking award goes to Agatha 😂](https://news.puppy-snuggles.com/70419616/the-sulking-award-goes-to-agatha)
+- [This is my doggo :&rpar;](https://news.puppy-snuggles.com/53923569/this-is-my-doggo)
+- [My Girl 😍](https://news.puppy-snuggles.com/51905268/my-girl)
+- [My friend said she has creepy eyes. Is this true?](https://news.puppy-snuggles.com/51683653/my-friend-said-she-has-creepy-eyes-is-this-true)
+- [Happy dog](https://news.puppy-snuggles.com/51498510/happy-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
