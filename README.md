@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The sulking award goes to Agatha 😂](https://news.puppy-snuggles.com/70419616/the-sulking-award-goes-to-agatha)
-- [This is my doggo :&rpar;](https://news.puppy-snuggles.com/53923569/this-is-my-doggo)
-- [My Girl 😍](https://news.puppy-snuggles.com/51905268/my-girl)
-- [My friend said she has creepy eyes. Is this true?](https://news.puppy-snuggles.com/51683653/my-friend-said-she-has-creepy-eyes-is-this-true)
-- [Happy dog](https://news.puppy-snuggles.com/51498510/happy-dog)
+- [say hi to chupi ❤️‍🩹](https://news.puppy-snuggles.com/70642669/say-hi-to-chupi)
+- [Had to say goodbye to the thing I love most in this world last week 😭](https://news.puppy-snuggles.com/70537905/had-to-say-goodbye-to-the-thing-i-love-most-in-this-world-last-week)
+- [Show me your dog not knowing how funny they are](https://news.puppy-snuggles.com/57480478/show-me-your-dog-not-knowing-how-funny-they-are)
+- [My old Boi Aefic.](https://news.puppy-snuggles.com/23760175/my-old-boi-aefic)
+- [Anyone who has ever met a Goldador knows how vicious they are. My Beau is no exception](https://news.puppy-snuggles.com/22555976/anyone-who-has-ever-met-a-goldador-knows-how-vicious-they-are-my-beau-is-no-exception)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
