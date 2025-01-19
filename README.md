@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [say hi to chupi ❤️‍🩹](https://news.puppy-snuggles.com/70642669/say-hi-to-chupi)
-- [Had to say goodbye to the thing I love most in this world last week 😭](https://news.puppy-snuggles.com/70537905/had-to-say-goodbye-to-the-thing-i-love-most-in-this-world-last-week)
-- [Show me your dog not knowing how funny they are](https://news.puppy-snuggles.com/57480478/show-me-your-dog-not-knowing-how-funny-they-are)
-- [My old Boi Aefic.](https://news.puppy-snuggles.com/23760175/my-old-boi-aefic)
-- [Anyone who has ever met a Goldador knows how vicious they are. My Beau is no exception](https://news.puppy-snuggles.com/22555976/anyone-who-has-ever-met-a-goldador-knows-how-vicious-they-are-my-beau-is-no-exception)
+- [Got her shoes, she was so traumatized I had to get her a new ball](https://news.puppy-snuggles.com/70858694/got-her-shoes-she-was-so-traumatized-i-had-to-get-her-a-new-ball)
+- [The kids have narrowed down names for this lil guy to the 3 in the comments. Vote for your favorite with an upvote. They’re excited to see which one wins!](https://news.puppy-snuggles.com/69686832/the-kids-have-narrowed-down-names-for-this-lil-guy-to-the-3-in-the-comments-vote-for-your-favorite-with-an-upvote-theyre-excited-to-see-which-one-wins)
+- [Bellevue man accused of beating dog to death, allegedly saw puppy&amp;#039;s face laughing at him during sleep episode](https://news.puppy-snuggles.com/60711961/bellevue-man-accused-of-beating-dog-to-death-allegedly-saw-puppys-face-laughing-at-him-during-sleep-episode)
+- [Upgrading](https://news.puppy-snuggles.com/54447017/upgrading)
+- [Happy Boy Update](https://news.puppy-snuggles.com/46747681/happy-boy-update)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
