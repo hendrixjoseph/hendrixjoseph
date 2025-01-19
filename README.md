@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on ELI5: where does the mathematical function of multiplication take place in nature?](https://www.reddit.com/r/explainlikeimfive/comments/1i4jdqp/eli5_where_does_the_mathematical_function_of/m7w5717/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, January 14, 2025](https://www.reddit.com/r/financialindependence/comments/1i12ttv/daily_fi_discussion_thread_tuesday_january_14_2025/m749uva/)
 - [/u/joehx on Would computerscience be different today without Alan Turings work?](https://www.reddit.com/r/computerscience/comments/1hxm0o3/would_computerscience_be_different_today_without/m6bbl85/)
 - [/u/joehx on What’s a rule in society that everyone agrees is pointless, but we all still follow?](https://www.reddit.com/r/AskReddit/comments/1hql89c/whats_a_rule_in_society_that_everyone_agrees_is/m4ufpuw/)
 - [/u/joehx on What’s a rule in society that everyone agrees is pointless, but we all still follow?](https://www.reddit.com/r/AskReddit/comments/1hql89c/whats_a_rule_in_society_that_everyone_agrees_is/m4r42jq/)
-- [/u/joehx on Start a health insurance company](https://www.reddit.com/r/startups/comments/1hkaoat/start_a_health_insurance_company/m3cyeqd/)
 <!-- REDDIT:END -->
