@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Got her shoes, she was so traumatized I had to get her a new ball](https://news.puppy-snuggles.com/70858694/got-her-shoes-she-was-so-traumatized-i-had-to-get-her-a-new-ball)
-- [The kids have narrowed down names for this lil guy to the 3 in the comments. Vote for your favorite with an upvote. They’re excited to see which one wins!](https://news.puppy-snuggles.com/69686832/the-kids-have-narrowed-down-names-for-this-lil-guy-to-the-3-in-the-comments-vote-for-your-favorite-with-an-upvote-theyre-excited-to-see-which-one-wins)
-- [Bellevue man accused of beating dog to death, allegedly saw puppy&amp;#039;s face laughing at him during sleep episode](https://news.puppy-snuggles.com/60711961/bellevue-man-accused-of-beating-dog-to-death-allegedly-saw-puppys-face-laughing-at-him-during-sleep-episode)
-- [Upgrading](https://news.puppy-snuggles.com/54447017/upgrading)
-- [Happy Boy Update](https://news.puppy-snuggles.com/46747681/happy-boy-update)
+- [Relaxing on this snowy day](https://news.puppy-snuggles.com/72486652/relaxing-on-this-snowy-day)
+- [Sassy video of my dog when he was 6-8 months old](https://news.puppy-snuggles.com/72486655/sassy-video-of-my-dog-when-he-was-6-8-months-old)
+- [Happy Birthday](https://news.puppy-snuggles.com/72439418/happy-birthday)
+- [What dog this was… balls,sticks, mud&amp;amp;water was all she needed.](https://news.puppy-snuggles.com/72439417/what-dog-this-was-ballssticks-mudwater-was-all-she-needed)
+- [Time for her meal! 😋](https://news.puppy-snuggles.com/72398114/time-for-her-meal)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
