@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Relaxing on this snowy day](https://news.puppy-snuggles.com/72486652/relaxing-on-this-snowy-day)
-- [Sassy video of my dog when he was 6-8 months old](https://news.puppy-snuggles.com/72486655/sassy-video-of-my-dog-when-he-was-6-8-months-old)
-- [Happy Birthday](https://news.puppy-snuggles.com/72439418/happy-birthday)
-- [What dog this was… balls,sticks, mud&amp;amp;water was all she needed.](https://news.puppy-snuggles.com/72439417/what-dog-this-was-ballssticks-mudwater-was-all-she-needed)
-- [Time for her meal! 😋](https://news.puppy-snuggles.com/72398114/time-for-her-meal)
+- [Let me sketch your dog round 2 ! &lpar;send in the comments&rpar;](https://news.puppy-snuggles.com/71779930/let-me-sketch-your-dog-round-2-send-in-the-comments)
+- [Just memories proposed by my phone this morning. That old baby girl has been gone for 2 months now](https://news.puppy-snuggles.com/58355542/just-memories-proposed-by-my-phone-this-morning-that-old-baby-girl-has-been-gone-for-2-months-now)
+- [I drove 4 hours to adopt this girl from a family who didn&amp;#039;t have enough time for her.](https://news.puppy-snuggles.com/43235002/i-drove-4-hours-to-adopt-this-girl-from-a-family-who-didnt-have-enough-time-for-her)
+- [Happiest boy](https://news.puppy-snuggles.com/39643085/happiest-boy)
+- [Happy on her walks](https://news.puppy-snuggles.com/38820415/happy-on-her-walks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
