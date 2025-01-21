@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [January 2025 Blog Statistics](https://www.joehxblog.com/january-2025-blog-statistics/)
 - [2025 New Year&#39;s Resolutions &amp; Goals](https://www.joehxblog.com/2025-new-years-resolutions-goals/)
 - [2024 End of Year Side Income Report](https://www.joehxblog.com/2024-end-of-year-side-income-report/)
 - [December 2024 Book Reading List](https://www.joehxblog.com/december-2024-book-reading-list/)
 - [December 2024 Blog Statistics](https://www.joehxblog.com/december-2024-blog-statistics/)
-- [November 2024 Book Reading List](https://www.joehxblog.com/november-2024-book-reading-list/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
