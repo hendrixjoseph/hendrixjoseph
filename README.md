@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s my baby.](https://news.puppy-snuggles.com/72757677/hes-my-baby)
-- [Chuck amongst the buttercups](https://news.puppy-snuggles.com/71514788/chuck-amongst-the-buttercups)
-- [Sandy hopes you had a Merry Christmas](https://news.puppy-snuggles.com/71029267/sandy-hopes-you-had-a-merry-christmas)
-- [This is my dog Rizla. She’s my first dog. She’s 14 now and not doing great. I’m not sure she’ll make it through the night tonight. Please send your love to best puppy one could have ever asked for and hug your dog extra tight tonight for me.](https://news.puppy-snuggles.com/70537902/this-is-my-dog-rizla-shes-my-first-dog-shes-14-now-and-not-doing-great-im-not-sure-shell-make-it-through-the-night-tonight-please-send-your-love-to-best-puppy-one-could-have-ever-asked-for-and-hug-your-dog-extra-tight-tonight-for-me)
-- [What dog breed is this?](https://news.puppy-snuggles.com/70537903/what-dog-breed-is-this)
+- [Heaven just received another good boy](https://news.puppy-snuggles.com/71536102/heaven-just-received-another-good-boy)
+- [My guy knows how to sleep well 😂](https://news.puppy-snuggles.com/70751476/my-guy-knows-how-to-sleep-well)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 30](https://news.puppy-snuggles.com/67789247/365-days-of-pepperoni-amp-her-mama-day-30)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 15](https://news.puppy-snuggles.com/66800253/365-days-of-pepperoni-amp-her-mama-day-15)
+- [365 Days of Me &amp;amp;amp; Pepperoni Day 365](https://news.puppy-snuggles.com/65781435/365-days-of-me-amp-pepperoni-day-365)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
