@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Heaven just received another good boy](https://news.puppy-snuggles.com/71536102/heaven-just-received-another-good-boy)
-- [My guy knows how to sleep well 😂](https://news.puppy-snuggles.com/70751476/my-guy-knows-how-to-sleep-well)
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 30](https://news.puppy-snuggles.com/67789247/365-days-of-pepperoni-amp-her-mama-day-30)
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 15](https://news.puppy-snuggles.com/66800253/365-days-of-pepperoni-amp-her-mama-day-15)
-- [365 Days of Me &amp;amp;amp; Pepperoni Day 365](https://news.puppy-snuggles.com/65781435/365-days-of-me-amp-pepperoni-day-365)
+- [She loves her grandma’s rug](https://news.puppy-snuggles.com/71029266/she-loves-her-grandmas-rug)
+- [Cemetery Dog.](https://news.puppy-snuggles.com/68824797/cemetery-dog)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 16](https://news.puppy-snuggles.com/66864002/365-days-of-pepperoni-amp-her-mama-day-16)
+- [Saying goodbye to my best friend of almost 10 years. I’ll be thinking of you forever and always Beau. I love you Beau.](https://news.puppy-snuggles.com/64904881/saying-goodbye-to-my-best-friend-of-almost-10-years-ill-be-thinking-of-you-forever-and-always-beau-i-love-you-beau)
+- [heart stealer](https://news.puppy-snuggles.com/63396724/heart-stealer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
