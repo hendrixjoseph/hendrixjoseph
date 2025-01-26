@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She loves her grandma’s rug](https://news.puppy-snuggles.com/71029266/she-loves-her-grandmas-rug)
-- [Cemetery Dog.](https://news.puppy-snuggles.com/68824797/cemetery-dog)
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 16](https://news.puppy-snuggles.com/66864002/365-days-of-pepperoni-amp-her-mama-day-16)
-- [Saying goodbye to my best friend of almost 10 years. I’ll be thinking of you forever and always Beau. I love you Beau.](https://news.puppy-snuggles.com/64904881/saying-goodbye-to-my-best-friend-of-almost-10-years-ill-be-thinking-of-you-forever-and-always-beau-i-love-you-beau)
-- [heart stealer](https://news.puppy-snuggles.com/63396724/heart-stealer)
+- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
+- [Mischa is 4 months old today!](https://news.puppy-snuggles.com/71199093/mischa-is-4-months-old-today)
+- [Those little eyes are looking at me with love I&amp;#039;m so lucky](https://news.puppy-snuggles.com/70476604/those-little-eyes-are-looking-at-me-with-love-im-so-lucky)
+- [Play with me!](https://news.puppy-snuggles.com/70262141/play-with-me)
+- [Loving his trachea treats](https://news.puppy-snuggles.com/57056404/loving-his-trachea-treats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
