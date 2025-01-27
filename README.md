@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
-- [Mischa is 4 months old today!](https://news.puppy-snuggles.com/71199093/mischa-is-4-months-old-today)
-- [Those little eyes are looking at me with love I&amp;#039;m so lucky](https://news.puppy-snuggles.com/70476604/those-little-eyes-are-looking-at-me-with-love-im-so-lucky)
-- [Play with me!](https://news.puppy-snuggles.com/70262141/play-with-me)
-- [Loving his trachea treats](https://news.puppy-snuggles.com/57056404/loving-his-trachea-treats)
+- [This is Jazz. She was looking at you. Then you looked at her so she looked away. Wants you to stop looking at her so she can keep looking at you.](https://news.puppy-snuggles.com/70097078/this-is-jazz-she-was-looking-at-you-then-you-looked-at-her-so-she-looked-away-wants-you-to-stop-looking-at-her-so-she-can-keep-looking-at-you)
+- [It’s Whiskeys first birthday!](https://news.puppy-snuggles.com/70064357/its-whiskeys-first-birthday)
+- [After a break of 39 years, I got another Irish Wolfhound. This is Rita.](https://news.puppy-snuggles.com/64335518/after-a-break-of-39-years-i-got-another-irish-wolfhound-this-is-rita)
+- [Would someone please boop the snoot](https://news.puppy-snuggles.com/61325173/would-someone-please-boop-the-snoot)
+- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
