@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Jazz. She was looking at you. Then you looked at her so she looked away. Wants you to stop looking at her so she can keep looking at you.](https://news.puppy-snuggles.com/70097078/this-is-jazz-she-was-looking-at-you-then-you-looked-at-her-so-she-looked-away-wants-you-to-stop-looking-at-her-so-she-can-keep-looking-at-you)
-- [It’s Whiskeys first birthday!](https://news.puppy-snuggles.com/70064357/its-whiskeys-first-birthday)
-- [After a break of 39 years, I got another Irish Wolfhound. This is Rita.](https://news.puppy-snuggles.com/64335518/after-a-break-of-39-years-i-got-another-irish-wolfhound-this-is-rita)
-- [Would someone please boop the snoot](https://news.puppy-snuggles.com/61325173/would-someone-please-boop-the-snoot)
-- [Show me your dogs with mythological names.](https://news.puppy-snuggles.com/56755296/show-me-your-dogs-with-mythological-names)
+- [She&amp;#039;s grumpy cause I woke her up lol](https://news.puppy-snuggles.com/70858696/shes-grumpy-cause-i-woke-her-up-lol)
+- [Today it&amp;#039;s 3 months since the last farewell to my 14yo Tiffany. I wanted to show her grave decoration, the memorial i made for it and some pics so everyone can see how beatiful she was ♡](https://news.puppy-snuggles.com/69686823/today-its-3-months-since-the-last-farewell-to-my-14yo-tiffany-i-wanted-to-show-her-grave-decoration-the-memorial-i-made-for-it-and-some-pics-so-everyone-can-see-how-beatiful-she-was)
+- [What’s your happy-sad dog story?](https://news.puppy-snuggles.com/57587603/whats-your-happy-sad-dog-story)
+- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
+- [Daisy Mae says Hi!](https://news.puppy-snuggles.com/57123255/daisy-mae-says-hi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
