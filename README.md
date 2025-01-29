@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She&amp;#039;s grumpy cause I woke her up lol](https://news.puppy-snuggles.com/70858696/shes-grumpy-cause-i-woke-her-up-lol)
-- [Today it&amp;#039;s 3 months since the last farewell to my 14yo Tiffany. I wanted to show her grave decoration, the memorial i made for it and some pics so everyone can see how beatiful she was ♡](https://news.puppy-snuggles.com/69686823/today-its-3-months-since-the-last-farewell-to-my-14yo-tiffany-i-wanted-to-show-her-grave-decoration-the-memorial-i-made-for-it-and-some-pics-so-everyone-can-see-how-beatiful-she-was)
-- [What’s your happy-sad dog story?](https://news.puppy-snuggles.com/57587603/whats-your-happy-sad-dog-story)
-- [What do you think we should call her?](https://news.puppy-snuggles.com/57308394/what-do-you-think-we-should-call-her)
-- [Daisy Mae says Hi!](https://news.puppy-snuggles.com/57123255/daisy-mae-says-hi)
+- [Carved my friend&amp;#039;s puppy who passed away not long ago, it means really a lot to him](https://news.puppy-snuggles.com/71261707/carved-my-friends-puppy-who-passed-away-not-long-ago-it-means-really-a-lot-to-him)
+- [My dog is 19!!!](https://news.puppy-snuggles.com/31547207/my-dog-is-19)
+- [This is Clover. We think she has the best smiles. She is our 10 months old Pointer mix rescue puppy and she has been our companion since she was 10 weeks old rescued from animal control.](https://news.puppy-snuggles.com/31547210/this-is-clover-we-think-she-has-the-best-smiles-she-is-our-10-months-old-pointer-mix-rescue-puppy-and-she-has-been-our-companion-since-she-was-10-weeks-old-rescued-from-animal-control)
+- [Big 😃 in a Sunny day 😎](https://news.puppy-snuggles.com/24324646/big-in-a-sunny-day)
+- [Zoe’s smile before going walkies.](https://news.puppy-snuggles.com/23470950/zoes-smile-before-going-walkies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
