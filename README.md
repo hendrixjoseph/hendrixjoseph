@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Carved my friend&amp;#039;s puppy who passed away not long ago, it means really a lot to him](https://news.puppy-snuggles.com/71261707/carved-my-friends-puppy-who-passed-away-not-long-ago-it-means-really-a-lot-to-him)
-- [My dog is 19!!!](https://news.puppy-snuggles.com/31547207/my-dog-is-19)
-- [This is Clover. We think she has the best smiles. She is our 10 months old Pointer mix rescue puppy and she has been our companion since she was 10 weeks old rescued from animal control.](https://news.puppy-snuggles.com/31547210/this-is-clover-we-think-she-has-the-best-smiles-she-is-our-10-months-old-pointer-mix-rescue-puppy-and-she-has-been-our-companion-since-she-was-10-weeks-old-rescued-from-animal-control)
-- [Big 😃 in a Sunny day 😎](https://news.puppy-snuggles.com/24324646/big-in-a-sunny-day)
-- [Zoe’s smile before going walkies.](https://news.puppy-snuggles.com/23470950/zoes-smile-before-going-walkies)
+- [This weeks Before and After Shelter Dogs &lpar;Intake photo VS Photoshoot&rpar;](https://news.puppy-snuggles.com/73364146/this-weeks-before-and-after-shelter-dogs-intake-photo-vs-photoshoot)
+- [The tongue curl took years of practice! 🐶](https://news.puppy-snuggles.com/72603926/the-tongue-curl-took-years-of-practice)
+- [Does anyone have any idea on what mix bread our stray dogs are? We saved them from the street we don’t know anything about parents 😂](https://news.puppy-snuggles.com/72565993/does-anyone-have-any-idea-on-what-mix-bread-our-stray-dogs-are-we-saved-them-from-the-street-we-dont-know-anything-about-parents)
+- [All ears and legs](https://news.puppy-snuggles.com/72313260/all-ears-and-legs)
+- [My dog after falling into a lake](https://news.puppy-snuggles.com/72313262/my-dog-after-falling-into-a-lake)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
