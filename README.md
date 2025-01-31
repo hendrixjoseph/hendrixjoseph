@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This weeks Before and After Shelter Dogs &lpar;Intake photo VS Photoshoot&rpar;](https://news.puppy-snuggles.com/73364146/this-weeks-before-and-after-shelter-dogs-intake-photo-vs-photoshoot)
-- [The tongue curl took years of practice! 🐶](https://news.puppy-snuggles.com/72603926/the-tongue-curl-took-years-of-practice)
-- [Does anyone have any idea on what mix bread our stray dogs are? We saved them from the street we don’t know anything about parents 😂](https://news.puppy-snuggles.com/72565993/does-anyone-have-any-idea-on-what-mix-bread-our-stray-dogs-are-we-saved-them-from-the-street-we-dont-know-anything-about-parents)
-- [All ears and legs](https://news.puppy-snuggles.com/72313260/all-ears-and-legs)
-- [My dog after falling into a lake](https://news.puppy-snuggles.com/72313262/my-dog-after-falling-into-a-lake)
+- [This is why I prefer dogs more than people!](https://news.puppy-snuggles.com/69416965/this-is-why-i-prefer-dogs-more-than-people)
+- [My sweet boy 💛](https://news.puppy-snuggles.com/62269929/my-sweet-boy)
+- [so cute it looks like a teddy bear](https://news.puppy-snuggles.com/60902956/so-cute-it-looks-like-a-teddy-bear)
+- [show me your car dogs :&rpar;](https://news.puppy-snuggles.com/58321464/show-me-your-car-dogs)
+- [Tucker the Wolf&lpar;dog&rpar; 🐾](https://news.puppy-snuggles.com/51330960/tucker-the-wolfdog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
