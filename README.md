@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is why I prefer dogs more than people!](https://news.puppy-snuggles.com/69416965/this-is-why-i-prefer-dogs-more-than-people)
-- [My sweet boy 💛](https://news.puppy-snuggles.com/62269929/my-sweet-boy)
-- [so cute it looks like a teddy bear](https://news.puppy-snuggles.com/60902956/so-cute-it-looks-like-a-teddy-bear)
-- [show me your car dogs :&rpar;](https://news.puppy-snuggles.com/58321464/show-me-your-car-dogs)
-- [Tucker the Wolf&lpar;dog&rpar; 🐾](https://news.puppy-snuggles.com/51330960/tucker-the-wolfdog)
+- [It&amp;#039;s been one week since the hardest goodbye with my boy](https://news.puppy-snuggles.com/72528951/its-been-one-week-since-the-hardest-goodbye-with-my-boy)
+- [A small tribute to Pratt](https://news.puppy-snuggles.com/63950208/a-small-tribute-to-pratt)
+- [Is there anything cuter than a puppy in a life jacket?](https://news.puppy-snuggles.com/59882292/is-there-anything-cuter-than-a-puppy-in-a-life-jacket)
+- [Penny](https://news.puppy-snuggles.com/58618928/penny)
+- [This is Mickey. Mickey ate three socks last night. Mickey went to the vet and was made to throw up. This is how Mickey rode all the way home.](https://news.puppy-snuggles.com/56289021/this-is-mickey-mickey-ate-three-socks-last-night-mickey-went-to-the-vet-and-was-made-to-throw-up-this-is-how-mickey-rode-all-the-way-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
