@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It&amp;#039;s been one week since the hardest goodbye with my boy](https://news.puppy-snuggles.com/72528951/its-been-one-week-since-the-hardest-goodbye-with-my-boy)
-- [A small tribute to Pratt](https://news.puppy-snuggles.com/63950208/a-small-tribute-to-pratt)
-- [Is there anything cuter than a puppy in a life jacket?](https://news.puppy-snuggles.com/59882292/is-there-anything-cuter-than-a-puppy-in-a-life-jacket)
-- [Penny](https://news.puppy-snuggles.com/58618928/penny)
-- [This is Mickey. Mickey ate three socks last night. Mickey went to the vet and was made to throw up. This is how Mickey rode all the way home.](https://news.puppy-snuggles.com/56289021/this-is-mickey-mickey-ate-three-socks-last-night-mickey-went-to-the-vet-and-was-made-to-throw-up-this-is-how-mickey-rode-all-the-way-home)
+- [Happy Dog](https://news.puppy-snuggles.com/73286247/happy-dog)
+- [Smiles that melt your heart!](https://news.puppy-snuggles.com/71536104/smiles-that-melt-your-heart)
+- [Heartworms suck. Use preventive.](https://news.puppy-snuggles.com/71465954/heartworms-suck-use-preventive)
+- [I lost my soul dog this past February. This is my first holiday season without her. My family got me all this for Christmas. I never cried so hard over gifts in my life. I miss her.](https://news.puppy-snuggles.com/70971422/i-lost-my-soul-dog-this-past-february-this-is-my-first-holiday-season-without-her-my-family-got-me-all-this-for-christmas-i-never-cried-so-hard-over-gifts-in-my-life-i-miss-her)
+- [Smilin’ whilst zoomin’](https://news.puppy-snuggles.com/65688051/smilin-whilst-zoomin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
