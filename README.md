@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Dog](https://news.puppy-snuggles.com/73286247/happy-dog)
-- [Smiles that melt your heart!](https://news.puppy-snuggles.com/71536104/smiles-that-melt-your-heart)
-- [Heartworms suck. Use preventive.](https://news.puppy-snuggles.com/71465954/heartworms-suck-use-preventive)
-- [I lost my soul dog this past February. This is my first holiday season without her. My family got me all this for Christmas. I never cried so hard over gifts in my life. I miss her.](https://news.puppy-snuggles.com/70971422/i-lost-my-soul-dog-this-past-february-this-is-my-first-holiday-season-without-her-my-family-got-me-all-this-for-christmas-i-never-cried-so-hard-over-gifts-in-my-life-i-miss-her)
-- [Smilin’ whilst zoomin’](https://news.puppy-snuggles.com/65688051/smilin-whilst-zoomin)
+- [I’m losing a dog shaped piece of my heart](https://news.puppy-snuggles.com/73469613/im-losing-a-dog-shaped-piece-of-my-heart)
+- [This is Jerome. He’s an absolute menace as you can tell from this picture](https://news.puppy-snuggles.com/72794425/this-is-jerome-hes-an-absolute-menace-as-you-can-tell-from-this-picture)
+- [Rottis first groomer visit](https://news.puppy-snuggles.com/48859369/rottis-first-groomer-visit)
+- [My little rainbow pup was getting a lot of love in another sub, so I figured I would share him with you guys too.](https://news.puppy-snuggles.com/22892652/my-little-rainbow-pup-was-getting-a-lot-of-love-in-another-sub-so-i-figured-i-would-share-him-with-you-guys-too)
+- [Blue Heeler for adoption!](https://news.puppy-snuggles.com/22012991/blue-heeler-for-adoption)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
