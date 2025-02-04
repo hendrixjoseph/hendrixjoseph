@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m losing a dog shaped piece of my heart](https://news.puppy-snuggles.com/73469613/im-losing-a-dog-shaped-piece-of-my-heart)
-- [This is Jerome. He’s an absolute menace as you can tell from this picture](https://news.puppy-snuggles.com/72794425/this-is-jerome-hes-an-absolute-menace-as-you-can-tell-from-this-picture)
-- [Rottis first groomer visit](https://news.puppy-snuggles.com/48859369/rottis-first-groomer-visit)
-- [My little rainbow pup was getting a lot of love in another sub, so I figured I would share him with you guys too.](https://news.puppy-snuggles.com/22892652/my-little-rainbow-pup-was-getting-a-lot-of-love-in-another-sub-so-i-figured-i-would-share-him-with-you-guys-too)
-- [Blue Heeler for adoption!](https://news.puppy-snuggles.com/22012991/blue-heeler-for-adoption)
+- [Can’t Forgive Myself](https://news.puppy-snuggles.com/72187576/cant-forgive-myself)
+- [Had to put our best buddy Oscar to sleep today. We don’t deserve dogs](https://news.puppy-snuggles.com/70476605/had-to-put-our-best-buddy-oscar-to-sleep-today-we-dont-deserve-dogs)
+- [DustyDoll gets along GREAT with the other dogs! She barely even paid them any mind!](https://news.puppy-snuggles.com/49325347/dustydoll-gets-along-great-with-the-other-dogs-she-barely-even-paid-them-any-mind)
+- [My freak baby, Bonnie](https://news.puppy-snuggles.com/48665178/my-freak-baby-bonnie)
+- [I just want to show off my dog](https://news.puppy-snuggles.com/39855410/i-just-want-to-show-off-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
