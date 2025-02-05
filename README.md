@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can’t Forgive Myself](https://news.puppy-snuggles.com/72187576/cant-forgive-myself)
-- [Had to put our best buddy Oscar to sleep today. We don’t deserve dogs](https://news.puppy-snuggles.com/70476605/had-to-put-our-best-buddy-oscar-to-sleep-today-we-dont-deserve-dogs)
-- [DustyDoll gets along GREAT with the other dogs! She barely even paid them any mind!](https://news.puppy-snuggles.com/49325347/dustydoll-gets-along-great-with-the-other-dogs-she-barely-even-paid-them-any-mind)
-- [My freak baby, Bonnie](https://news.puppy-snuggles.com/48665178/my-freak-baby-bonnie)
-- [I just want to show off my dog](https://news.puppy-snuggles.com/39855410/i-just-want-to-show-off-my-dog)
+- [Unexpectedly said goodbye to my good boy](https://news.puppy-snuggles.com/73092460/unexpectedly-said-goodbye-to-my-good-boy)
+- [May I present, my mates Border Collie &lpar;and group mascot&rpar; Baby Boost aka Bob. He’s turning 17 in May ❤️](https://news.puppy-snuggles.com/73092462/may-i-present-my-mates-border-collie-and-group-mascot-baby-boost-aka-bob-hes-turning-17-in-may)
+- [His happiness is my happiness ❤️](https://news.puppy-snuggles.com/73092458/his-happiness-is-my-happiness)
+- [say hi to chupi ❤️‍🩹](https://news.puppy-snuggles.com/70642669/say-hi-to-chupi)
+- [Goodbye my bestest, sweetest Watson ♡](https://news.puppy-snuggles.com/70097076/goodbye-my-bestest-sweetest-watson)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
