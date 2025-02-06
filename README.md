@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Unexpectedly said goodbye to my good boy](https://news.puppy-snuggles.com/73092460/unexpectedly-said-goodbye-to-my-good-boy)
-- [May I present, my mates Border Collie &lpar;and group mascot&rpar; Baby Boost aka Bob. He’s turning 17 in May ❤️](https://news.puppy-snuggles.com/73092462/may-i-present-my-mates-border-collie-and-group-mascot-baby-boost-aka-bob-hes-turning-17-in-may)
-- [His happiness is my happiness ❤️](https://news.puppy-snuggles.com/73092458/his-happiness-is-my-happiness)
-- [say hi to chupi ❤️‍🩹](https://news.puppy-snuggles.com/70642669/say-hi-to-chupi)
-- [Goodbye my bestest, sweetest Watson ♡](https://news.puppy-snuggles.com/70097076/goodbye-my-bestest-sweetest-watson)
+- [I Rescued an Emaciated Akita](https://news.puppy-snuggles.com/73253879/i-rescued-an-emaciated-akita)
+- [Chloe’s smile and sparkly eyes](https://news.puppy-snuggles.com/72355224/chloes-smile-and-sparkly-eyes)
+- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
+- [Cody is 10](https://news.puppy-snuggles.com/49985057/cody-is-10)
+- [11 years with us!](https://news.puppy-snuggles.com/45519769/11-years-with-us)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
