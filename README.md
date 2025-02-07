@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I Rescued an Emaciated Akita](https://news.puppy-snuggles.com/73253879/i-rescued-an-emaciated-akita)
-- [Chloe’s smile and sparkly eyes](https://news.puppy-snuggles.com/72355224/chloes-smile-and-sparkly-eyes)
-- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
-- [Cody is 10](https://news.puppy-snuggles.com/49985057/cody-is-10)
-- [11 years with us!](https://news.puppy-snuggles.com/45519769/11-years-with-us)
+- [Superdog](https://news.puppy-snuggles.com/73135945/superdog)
+- [Meet Luna the newest member to the family,](https://news.puppy-snuggles.com/62030280/meet-luna-the-newest-member-to-the-family)
+- [Show me the funniest picture of your dog &lpar;or just your favorite!&rpar;](https://news.puppy-snuggles.com/61790793/show-me-the-funniest-picture-of-your-dog-or-just-your-favorite)
+- [Smiley boy](https://news.puppy-snuggles.com/56965571/smiley-boy)
+- [Little girl sobs as she holds her new puppy](https://news.puppy-snuggles.com/45866900/little-girl-sobs-as-she-holds-her-new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
