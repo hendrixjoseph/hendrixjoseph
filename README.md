@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Superdog](https://news.puppy-snuggles.com/73135945/superdog)
-- [Meet Luna the newest member to the family,](https://news.puppy-snuggles.com/62030280/meet-luna-the-newest-member-to-the-family)
-- [Show me the funniest picture of your dog &lpar;or just your favorite!&rpar;](https://news.puppy-snuggles.com/61790793/show-me-the-funniest-picture-of-your-dog-or-just-your-favorite)
-- [Smiley boy](https://news.puppy-snuggles.com/56965571/smiley-boy)
-- [Little girl sobs as she holds her new puppy](https://news.puppy-snuggles.com/45866900/little-girl-sobs-as-she-holds-her-new-puppy)
+- [Sister time](https://news.puppy-snuggles.com/70476602/sister-time)
+- [I promised to follow up…](https://news.puppy-snuggles.com/62206003/i-promised-to-follow-up)
+- [Groomed girls](https://news.puppy-snuggles.com/57165292/groomed-girls)
+- [Happy Rocky](https://news.puppy-snuggles.com/53202405/happy-rocky)
+- [Birthday Boy!](https://news.puppy-snuggles.com/51640935/birthday-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
