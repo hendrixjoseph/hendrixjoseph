@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sister time](https://news.puppy-snuggles.com/70476602/sister-time)
-- [I promised to follow up…](https://news.puppy-snuggles.com/62206003/i-promised-to-follow-up)
-- [Groomed girls](https://news.puppy-snuggles.com/57165292/groomed-girls)
-- [Happy Rocky](https://news.puppy-snuggles.com/53202405/happy-rocky)
-- [Birthday Boy!](https://news.puppy-snuggles.com/51640935/birthday-boy)
+- [Put the craziest photo of your dog🐶](https://news.puppy-snuggles.com/74447471/put-the-craziest-photo-of-your-dog)
+- [This is my Billie. Best thing to ever happen to me. Why someone would abandon her breaks my heart.](https://news.puppy-snuggles.com/70570148/this-is-my-billie-best-thing-to-ever-happen-to-me-why-someone-would-abandon-her-breaks-my-heart)
+- [Just got my buddy home after back surgery](https://news.puppy-snuggles.com/69904679/just-got-my-buddy-home-after-back-surgery)
+- [11 months ago she watched me leave in an ambulance. Last week we reunited. Now we’re velcro.](https://news.puppy-snuggles.com/69779193/11-months-ago-she-watched-me-leave-in-an-ambulance-last-week-we-reunited-now-were-velcro)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 16](https://news.puppy-snuggles.com/66864002/365-days-of-pepperoni-amp-her-mama-day-16)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
