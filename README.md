@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Put the craziest photo of your dog🐶](https://news.puppy-snuggles.com/74447471/put-the-craziest-photo-of-your-dog)
-- [This is my Billie. Best thing to ever happen to me. Why someone would abandon her breaks my heart.](https://news.puppy-snuggles.com/70570148/this-is-my-billie-best-thing-to-ever-happen-to-me-why-someone-would-abandon-her-breaks-my-heart)
-- [Just got my buddy home after back surgery](https://news.puppy-snuggles.com/69904679/just-got-my-buddy-home-after-back-surgery)
-- [11 months ago she watched me leave in an ambulance. Last week we reunited. Now we’re velcro.](https://news.puppy-snuggles.com/69779193/11-months-ago-she-watched-me-leave-in-an-ambulance-last-week-we-reunited-now-were-velcro)
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 16](https://news.puppy-snuggles.com/66864002/365-days-of-pepperoni-amp-her-mama-day-16)
+- [My baby passed 3 days ago. RIP](https://news.puppy-snuggles.com/74563027/my-baby-passed-3-days-ago-rip)
+- [This handsome pupper pulled up next to me at the gas station](https://news.puppy-snuggles.com/73883371/this-handsome-pupper-pulled-up-next-to-me-at-the-gas-station)
+- [My dog, Mike, passed nearly 8 months ago. He was 14 years old. I still think about him every day and sometimes it brings me to tears](https://news.puppy-snuggles.com/73728977/my-dog-mike-passed-nearly-8-months-ago-he-was-14-years-old-i-still-think-about-him-every-day-and-sometimes-it-brings-me-to-tears)
+- [I was going to have my coffee and I heard some pitter pattering behind me…](https://news.puppy-snuggles.com/72832150/i-was-going-to-have-my-coffee-and-i-heard-some-pitter-pattering-behind-me)
+- [Say hello to my new rescue dog](https://news.puppy-snuggles.com/69353031/say-hello-to-my-new-rescue-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
