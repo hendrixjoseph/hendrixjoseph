@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby passed 3 days ago. RIP](https://news.puppy-snuggles.com/74563027/my-baby-passed-3-days-ago-rip)
-- [This handsome pupper pulled up next to me at the gas station](https://news.puppy-snuggles.com/73883371/this-handsome-pupper-pulled-up-next-to-me-at-the-gas-station)
-- [My dog, Mike, passed nearly 8 months ago. He was 14 years old. I still think about him every day and sometimes it brings me to tears](https://news.puppy-snuggles.com/73728977/my-dog-mike-passed-nearly-8-months-ago-he-was-14-years-old-i-still-think-about-him-every-day-and-sometimes-it-brings-me-to-tears)
-- [I was going to have my coffee and I heard some pitter pattering behind me…](https://news.puppy-snuggles.com/72832150/i-was-going-to-have-my-coffee-and-i-heard-some-pitter-pattering-behind-me)
-- [Say hello to my new rescue dog](https://news.puppy-snuggles.com/69353031/say-hello-to-my-new-rescue-dog)
+- [Proud of him.](https://news.puppy-snuggles.com/74522094/proud-of-him)
+- [This is Missy. We rescued her from a kill shelter. She is originally from West Virginia. 🩷🩷🩷](https://news.puppy-snuggles.com/74484731/this-is-missy-we-rescued-her-from-a-kill-shelter-she-is-originally-from-west-virginia)
+- [Timmy walked 28 miles for charity this week!](https://news.puppy-snuggles.com/74484735/timmy-walked-28-miles-for-charity-this-week)
+- [Bcs I wont share my quesadillas](https://news.puppy-snuggles.com/74272450/bcs-i-wont-share-my-quesadillas)
+- [I made a keychain out of leather for a reddit user&amp;#039;s puppy.](https://news.puppy-snuggles.com/74018709/i-made-a-keychain-out-of-leather-for-a-reddit-users-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
