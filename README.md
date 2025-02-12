@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Proud of him.](https://news.puppy-snuggles.com/74522094/proud-of-him)
-- [This is Missy. We rescued her from a kill shelter. She is originally from West Virginia. 🩷🩷🩷](https://news.puppy-snuggles.com/74484731/this-is-missy-we-rescued-her-from-a-kill-shelter-she-is-originally-from-west-virginia)
-- [Timmy walked 28 miles for charity this week!](https://news.puppy-snuggles.com/74484735/timmy-walked-28-miles-for-charity-this-week)
-- [Bcs I wont share my quesadillas](https://news.puppy-snuggles.com/74272450/bcs-i-wont-share-my-quesadillas)
-- [I made a keychain out of leather for a reddit user&amp;#039;s puppy.](https://news.puppy-snuggles.com/74018709/i-made-a-keychain-out-of-leather-for-a-reddit-users-puppy)
+- [This handsome pupper pulled up next to me at the gas station](https://news.puppy-snuggles.com/73883371/this-handsome-pupper-pulled-up-next-to-me-at-the-gas-station)
+- [I’m at a restaurant and owner’s corgi selected me to sleep with :&rpar;&rpar;](https://news.puppy-snuggles.com/59937997/im-at-a-restaurant-and-owners-corgi-selected-me-to-sleep-with)
+- [He turned 2 today :&rpar;&rpar;](https://news.puppy-snuggles.com/56485164/he-turned-2-today)
+- [Show me your derpy dogs.](https://news.puppy-snuggles.com/56150895/show-me-your-derpy-dogs)
+- [Most beautiful dog ever?](https://news.puppy-snuggles.com/55727218/most-beautiful-dog-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
