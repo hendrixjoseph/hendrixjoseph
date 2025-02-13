@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This handsome pupper pulled up next to me at the gas station](https://news.puppy-snuggles.com/73883371/this-handsome-pupper-pulled-up-next-to-me-at-the-gas-station)
-- [I’m at a restaurant and owner’s corgi selected me to sleep with :&rpar;&rpar;](https://news.puppy-snuggles.com/59937997/im-at-a-restaurant-and-owners-corgi-selected-me-to-sleep-with)
-- [He turned 2 today :&rpar;&rpar;](https://news.puppy-snuggles.com/56485164/he-turned-2-today)
-- [Show me your derpy dogs.](https://news.puppy-snuggles.com/56150895/show-me-your-derpy-dogs)
-- [Most beautiful dog ever?](https://news.puppy-snuggles.com/55727218/most-beautiful-dog-ever)
+- [I welcomed home a 7 year old rescue named Bear](https://news.puppy-snuggles.com/74911381/i-welcomed-home-a-7-year-old-rescue-named-bear)
+- [Dis my dog 🐶](https://news.puppy-snuggles.com/74911384/dis-my-dog)
+- [Post your Dog’s Silliest/Dirp Face](https://news.puppy-snuggles.com/74911390/post-your-dogs-silliestdirp-face)
+- [Mouth tumor](https://news.puppy-snuggles.com/74911389/mouth-tumor)
+- [Picked up the old man&amp;#039;s ashes](https://news.puppy-snuggles.com/73583187/picked-up-the-old-mans-ashes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
