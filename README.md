@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I welcomed home a 7 year old rescue named Bear](https://news.puppy-snuggles.com/74911381/i-welcomed-home-a-7-year-old-rescue-named-bear)
-- [Dis my dog 🐶](https://news.puppy-snuggles.com/74911384/dis-my-dog)
-- [Post your Dog’s Silliest/Dirp Face](https://news.puppy-snuggles.com/74911390/post-your-dogs-silliestdirp-face)
-- [Mouth tumor](https://news.puppy-snuggles.com/74911389/mouth-tumor)
-- [Picked up the old man&amp;#039;s ashes](https://news.puppy-snuggles.com/73583187/picked-up-the-old-mans-ashes)
+- [Jolie aka Jojo](https://news.puppy-snuggles.com/64187606/jolie-aka-jojo)
+- [Rest in piece my sweet baby Chloe.](https://news.puppy-snuggles.com/58284172/rest-in-piece-my-sweet-baby-chloe)
+- [The happiness of this dog after they put prostheses on him](https://news.puppy-snuggles.com/46635047/the-happiness-of-this-dog-after-they-put-prostheses-on-him)
+- [Seriously struggling to name our new girl, please help!](https://news.puppy-snuggles.com/41506634/seriously-struggling-to-name-our-new-girl-please-help)
+- [Goin out for walkies and coffee and treats](https://news.puppy-snuggles.com/41096198/goin-out-for-walkies-and-coffee-and-treats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
