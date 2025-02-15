@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Jolie aka Jojo](https://news.puppy-snuggles.com/64187606/jolie-aka-jojo)
-- [Rest in piece my sweet baby Chloe.](https://news.puppy-snuggles.com/58284172/rest-in-piece-my-sweet-baby-chloe)
-- [The happiness of this dog after they put prostheses on him](https://news.puppy-snuggles.com/46635047/the-happiness-of-this-dog-after-they-put-prostheses-on-him)
-- [Seriously struggling to name our new girl, please help!](https://news.puppy-snuggles.com/41506634/seriously-struggling-to-name-our-new-girl-please-help)
-- [Goin out for walkies and coffee and treats](https://news.puppy-snuggles.com/41096198/goin-out-for-walkies-and-coffee-and-treats)
+- [Adopted this adorable pup a week ago. Miss Morgan!](https://news.puppy-snuggles.com/73253871/adopted-this-adorable-pup-a-week-ago-miss-morgan)
+- [Ive shared dog on a log but not dog in a log…](https://news.puppy-snuggles.com/72945468/ive-shared-dog-on-a-log-but-not-dog-in-a-log)
+- [my creature in her different forms. her name is karma.](https://news.puppy-snuggles.com/72565999/my-creature-in-her-different-forms-her-name-is-karma)
+- [My Girlfriend’s dog is obsessed with me. Bro won’t give me space haha](https://news.puppy-snuggles.com/72486649/my-girlfriends-dog-is-obsessed-with-me-bro-wont-give-me-space-haha)
+- [Gold afternoon everyone!](https://news.puppy-snuggles.com/71199094/gold-afternoon-everyone)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
