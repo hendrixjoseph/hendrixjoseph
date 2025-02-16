@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted this adorable pup a week ago. Miss Morgan!](https://news.puppy-snuggles.com/73253871/adopted-this-adorable-pup-a-week-ago-miss-morgan)
-- [Ive shared dog on a log but not dog in a log…](https://news.puppy-snuggles.com/72945468/ive-shared-dog-on-a-log-but-not-dog-in-a-log)
-- [my creature in her different forms. her name is karma.](https://news.puppy-snuggles.com/72565999/my-creature-in-her-different-forms-her-name-is-karma)
-- [My Girlfriend’s dog is obsessed with me. Bro won’t give me space haha](https://news.puppy-snuggles.com/72486649/my-girlfriends-dog-is-obsessed-with-me-bro-wont-give-me-space-haha)
-- [Gold afternoon everyone!](https://news.puppy-snuggles.com/71199094/gold-afternoon-everyone)
+- [Tom’s cone is off today!](https://news.puppy-snuggles.com/75212764/toms-cone-is-off-today)
+- [Meet our little girl, Violet!](https://news.puppy-snuggles.com/74167444/meet-our-little-girl-violet)
+- [Olive](https://news.puppy-snuggles.com/39311624/olive)
+- [Jackson crossed the rainbow bridge today 🤍🌈](https://news.puppy-snuggles.com/28838238/jackson-crossed-the-rainbow-bridge-today)
+- [He&amp;#039;s happy because he&amp;#039;s the dumbest thing ever.](https://news.puppy-snuggles.com/22743255/hes-happy-because-hes-the-dumbest-thing-ever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
