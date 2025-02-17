@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tom’s cone is off today!](https://news.puppy-snuggles.com/75212764/toms-cone-is-off-today)
-- [Meet our little girl, Violet!](https://news.puppy-snuggles.com/74167444/meet-our-little-girl-violet)
-- [Olive](https://news.puppy-snuggles.com/39311624/olive)
-- [Jackson crossed the rainbow bridge today 🤍🌈](https://news.puppy-snuggles.com/28838238/jackson-crossed-the-rainbow-bridge-today)
-- [He&amp;#039;s happy because he&amp;#039;s the dumbest thing ever.](https://news.puppy-snuggles.com/22743255/hes-happy-because-hes-the-dumbest-thing-ever)
+- [Amazing that she could commit such an atrocity](https://news.puppy-snuggles.com/69633186/amazing-that-she-could-commit-such-an-atrocity)
+- [Good day for a swim](https://news.puppy-snuggles.com/69633187/good-day-for-a-swim)
+- [Always a happy guy](https://news.puppy-snuggles.com/36369024/always-a-happy-guy)
+- [my favorite junky puppies](https://news.puppy-snuggles.com/23684700/my-favorite-junky-puppies)
+- [My Opal 🖤🤍](https://news.puppy-snuggles.com/23348079/my-opal)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
