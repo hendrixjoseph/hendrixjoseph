@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Amazing that she could commit such an atrocity](https://news.puppy-snuggles.com/69633186/amazing-that-she-could-commit-such-an-atrocity)
-- [Good day for a swim](https://news.puppy-snuggles.com/69633187/good-day-for-a-swim)
-- [Always a happy guy](https://news.puppy-snuggles.com/36369024/always-a-happy-guy)
-- [my favorite junky puppies](https://news.puppy-snuggles.com/23684700/my-favorite-junky-puppies)
-- [My Opal 🖤🤍](https://news.puppy-snuggles.com/23348079/my-opal)
+- [Dog won&amp;#039;t eat or drink if we aren&amp;#039;t home.](https://news.puppy-snuggles.com/75471681/dog-wont-eat-or-drink-if-we-arent-home)
+- [This is the sweet boy who saved my life](https://news.puppy-snuggles.com/75471683/this-is-the-sweet-boy-who-saved-my-life)
+- [What puppy love really looks like 🥰🫣](https://news.puppy-snuggles.com/75471679/what-puppy-love-really-looks-like)
+- [The last photo of my baby. How long before I stop looking for him?](https://news.puppy-snuggles.com/75471682/the-last-photo-of-my-baby-how-long-before-i-stop-looking-for-him)
+- [I didn&amp;#039;t expect to love having a dog this much 🥹](https://news.puppy-snuggles.com/75471674/i-didnt-expect-to-love-having-a-dog-this-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
