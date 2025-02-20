@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my creature in her different forms. her name is karma.](https://news.puppy-snuggles.com/72565999/my-creature-in-her-different-forms-her-name-is-karma)
-- [Show me your dogs !! I’ll draw them &amp;lt;3](https://news.puppy-snuggles.com/71199091/show-me-your-dogs-ill-draw-them-3)
-- [Moose and Willow. Happy Babies.](https://news.puppy-snuggles.com/63823723/moose-and-willow-happy-babies)
-- [Adopting this little guy this week. What to name him?](https://news.puppy-snuggles.com/60009374/adopting-this-little-guy-this-week-what-to-name-him)
-- [What type of dog is this](https://news.puppy-snuggles.com/57843631/what-type-of-dog-is-this)
+- [My dog is an idiot, so after a $1200 er visit..this is his punishment..I think he can pull it off](https://news.puppy-snuggles.com/64695326/my-dog-is-an-idiot-so-after-a-1200-er-visitthis-is-his-punishmenti-think-he-can-pull-it-off)
+- [We adopted Boots this weekend](https://news.puppy-snuggles.com/64037329/we-adopted-boots-this-weekend)
+- [Show me your snoots.](https://news.puppy-snuggles.com/56629145/show-me-your-snoots)
+- [This is Blondie! She died last month at 14 years old and she was a Dixie Dingo](https://news.puppy-snuggles.com/51378999/this-is-blondie-she-died-last-month-at-14-years-old-and-she-was-a-dixie-dingo)
+- [Took a photo of my dog 🐶](https://news.puppy-snuggles.com/42346341/took-a-photo-of-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
