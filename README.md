@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet our special little girl!](https://news.puppy-snuggles.com/71585801/meet-our-special-little-girl)
-- [Is it dumb to adopt a dog who looks a lot like your dog that died 3 weeks ago?](https://news.puppy-snuggles.com/70419608/is-it-dumb-to-adopt-a-dog-who-looks-a-lot-like-your-dog-that-died-3-weeks-ago)
-- [This is so beautiful](https://news.puppy-snuggles.com/66050603/this-is-so-beautiful)
-- [Picked him off the street a few weeks ago, completely stumped on what he is. Thinking Kangaroo?](https://news.puppy-snuggles.com/61542362/picked-him-off-the-street-a-few-weeks-ago-completely-stumped-on-what-he-is-thinking-kangaroo)
-- [Cutest cuddle buddies ever!](https://news.puppy-snuggles.com/59736230/cutest-cuddle-buddies-ever)
+- [How adorable is my friend’s puppy, Dolly?](https://news.puppy-snuggles.com/76021975/how-adorable-is-my-friends-puppy-dolly)
+- [Old girl swimming](https://news.puppy-snuggles.com/76021983/old-girl-swimming)
+- [I can&amp;#039;t believe he thinks he&amp;#039;s gonna win](https://news.puppy-snuggles.com/76021978/i-cant-believe-he-thinks-hes-gonna-win)
+- [He&amp;#039;s such a good one.](https://news.puppy-snuggles.com/76021981/hes-such-a-good-one)
+- [Hard to believe she&amp;#039;s 9 already ...](https://news.puppy-snuggles.com/76021979/hard-to-believe-shes-9-already)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
