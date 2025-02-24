@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How adorable is my friend’s puppy, Dolly?](https://news.puppy-snuggles.com/76021975/how-adorable-is-my-friends-puppy-dolly)
-- [Old girl swimming](https://news.puppy-snuggles.com/76021983/old-girl-swimming)
-- [I can&amp;#039;t believe he thinks he&amp;#039;s gonna win](https://news.puppy-snuggles.com/76021978/i-cant-believe-he-thinks-hes-gonna-win)
-- [He&amp;#039;s such a good one.](https://news.puppy-snuggles.com/76021981/hes-such-a-good-one)
-- [Hard to believe she&amp;#039;s 9 already ...](https://news.puppy-snuggles.com/76021979/hard-to-believe-shes-9-already)
+- [Fell asleep on the couch and woke up to this](https://news.puppy-snuggles.com/70444996/fell-asleep-on-the-couch-and-woke-up-to-this)
+- [This is Todd. He found a newborn kitten abandoned in his backyard.](https://news.puppy-snuggles.com/69747294/this-is-todd-he-found-a-newborn-kitten-abandoned-in-his-backyard)
+- [Tried my hand at a wood carving for friend&amp;#039;s puppy’s birthday gift. Would love your thoughts](https://news.puppy-snuggles.com/68621802/tried-my-hand-at-a-wood-carving-for-friends-puppys-birthday-gift-would-love-your-thoughts)
+- [It’s a feel Good Friday from our puppies here at Sara Morocco](https://news.puppy-snuggles.com/52457748/its-a-feel-good-friday-from-our-puppies-here-at-sara-morocco)
+- [Now that&amp;#039;s a healthy smile](https://news.puppy-snuggles.com/40034872/now-thats-a-healthy-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
