@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The greatest 3 legged dog in the world, Charlie. Lost him last Friday. RIP soul dog, I&amp;#039;ll see you over the rainbow bridge.](https://news.puppy-snuggles.com/70064353/the-greatest-3-legged-dog-in-the-world-charlie-lost-him-last-friday-rip-soul-dog-ill-see-you-over-the-rainbow-bridge)
-- [What breed is my dog? Thought she was a pit bull but my vet friend said she isn&amp;#039;t!](https://news.puppy-snuggles.com/69686827/what-breed-is-my-dog-thought-she-was-a-pit-bull-but-my-vet-friend-said-she-isnt)
-- [Why does my dog do this? He talks every day](https://news.puppy-snuggles.com/68621799/why-does-my-dog-do-this-he-talks-every-day)
-- [City dog goes to the country](https://news.puppy-snuggles.com/45929513/city-dog-goes-to-the-country)
-- [Please help me name my new foster dog.](https://news.puppy-snuggles.com/22183739/please-help-me-name-my-new-foster-dog)
+- [Big potato 🥔](https://news.puppy-snuggles.com/72714192/big-potato)
+- [Rate my goofy looking dog](https://news.puppy-snuggles.com/71199098/rate-my-goofy-looking-dog)
+- [The face of a dog who accidentally got two breakfasts this morning](https://news.puppy-snuggles.com/69139364/the-face-of-a-dog-who-accidentally-got-two-breakfasts-this-morning)
+- [I lost my sweet boy today. Thank you for almost 14 years of love and joy](https://news.puppy-snuggles.com/67011549/i-lost-my-sweet-boy-today-thank-you-for-almost-14-years-of-love-and-joy)
+- [This is a sign to get a painting of your pup 🥹](https://news.puppy-snuggles.com/30777156/this-is-a-sign-to-get-a-painting-of-your-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
