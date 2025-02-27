@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Big potato 🥔](https://news.puppy-snuggles.com/72714192/big-potato)
-- [Rate my goofy looking dog](https://news.puppy-snuggles.com/71199098/rate-my-goofy-looking-dog)
-- [The face of a dog who accidentally got two breakfasts this morning](https://news.puppy-snuggles.com/69139364/the-face-of-a-dog-who-accidentally-got-two-breakfasts-this-morning)
-- [I lost my sweet boy today. Thank you for almost 14 years of love and joy](https://news.puppy-snuggles.com/67011549/i-lost-my-sweet-boy-today-thank-you-for-almost-14-years-of-love-and-joy)
-- [This is a sign to get a painting of your pup 🥹](https://news.puppy-snuggles.com/30777156/this-is-a-sign-to-get-a-painting-of-your-pup)
+- [Spoiled pup enjoyed his Christmas.](https://news.puppy-snuggles.com/71048525/spoiled-pup-enjoyed-his-christmas)
+- [summer vacation - any title for this](https://news.puppy-snuggles.com/38891786/summer-vacation-any-title-for-this)
+- [A man and his dog](https://news.puppy-snuggles.com/38748560/a-man-and-his-dog)
+- [My two rambunctious kids](https://news.puppy-snuggles.com/38072385/my-two-rambunctious-kids)
+- [The derpiest of sleepers](https://news.puppy-snuggles.com/34122042/the-derpiest-of-sleepers)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
