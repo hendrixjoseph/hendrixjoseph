@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Spoiled pup enjoyed his Christmas.](https://news.puppy-snuggles.com/71048525/spoiled-pup-enjoyed-his-christmas)
-- [summer vacation - any title for this](https://news.puppy-snuggles.com/38891786/summer-vacation-any-title-for-this)
-- [A man and his dog](https://news.puppy-snuggles.com/38748560/a-man-and-his-dog)
-- [My two rambunctious kids](https://news.puppy-snuggles.com/38072385/my-two-rambunctious-kids)
-- [The derpiest of sleepers](https://news.puppy-snuggles.com/34122042/the-derpiest-of-sleepers)
+- [Having a bad day, send me some dog teef pictures for a serotonin boost pls](https://news.puppy-snuggles.com/76541032/having-a-bad-day-send-me-some-dog-teef-pictures-for-a-serotonin-boost-pls)
+- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
+- [It&amp;#039;s our boy&amp;#039;s birthday!](https://news.puppy-snuggles.com/75062587/its-our-boys-birthday)
+- [Let me see your puppy, I&amp;#039;d like to make a leather carving keychain for him!](https://news.puppy-snuggles.com/72757674/let-me-see-your-puppy-id-like-to-make-a-leather-carving-keychain-for-him)
+- [more pics of my sweet boy, oh how i miss him 🥺](https://news.puppy-snuggles.com/72714194/more-pics-of-my-sweet-boy-oh-how-i-miss-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
