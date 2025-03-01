@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Having a bad day, send me some dog teef pictures for a serotonin boost pls](https://news.puppy-snuggles.com/76541032/having-a-bad-day-send-me-some-dog-teef-pictures-for-a-serotonin-boost-pls)
-- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
-- [It&amp;#039;s our boy&amp;#039;s birthday!](https://news.puppy-snuggles.com/75062587/its-our-boys-birthday)
-- [Let me see your puppy, I&amp;#039;d like to make a leather carving keychain for him!](https://news.puppy-snuggles.com/72757674/let-me-see-your-puppy-id-like-to-make-a-leather-carving-keychain-for-him)
-- [more pics of my sweet boy, oh how i miss him 🥺](https://news.puppy-snuggles.com/72714194/more-pics-of-my-sweet-boy-oh-how-i-miss-him)
+- [Said goodbye to my little princess today. Thank you for 16 years of love.](https://news.puppy-snuggles.com/76658703/said-goodbye-to-my-little-princess-today-thank-you-for-16-years-of-love)
+- [My dog, Nelson, just turned three!](https://news.puppy-snuggles.com/75681623/my-dog-nelson-just-turned-three)
+- [Let’s Play!](https://news.puppy-snuggles.com/72102680/lets-play)
+- [Dog going hard on the noodles](https://news.puppy-snuggles.com/71514790/dog-going-hard-on-the-noodles)
+- [Gorgeous gorgeous Pearl](https://news.puppy-snuggles.com/71514787/gorgeous-gorgeous-pearl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
