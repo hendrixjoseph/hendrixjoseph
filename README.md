@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to my little princess today. Thank you for 16 years of love.](https://news.puppy-snuggles.com/76658703/said-goodbye-to-my-little-princess-today-thank-you-for-16-years-of-love)
-- [My dog, Nelson, just turned three!](https://news.puppy-snuggles.com/75681623/my-dog-nelson-just-turned-three)
+- [105 lbs of Pit Bull and WHAT???](https://news.puppy-snuggles.com/76750962/105-lbs-of-pit-bull-and-what)
 - [Let’s Play!](https://news.puppy-snuggles.com/72102680/lets-play)
-- [Dog going hard on the noodles](https://news.puppy-snuggles.com/71514790/dog-going-hard-on-the-noodles)
-- [Gorgeous gorgeous Pearl](https://news.puppy-snuggles.com/71514787/gorgeous-gorgeous-pearl)
+- [This is Gus. He has an excellent smile and a great hat.](https://news.puppy-snuggles.com/69416962/this-is-gus-he-has-an-excellent-smile-and-a-great-hat)
+- [RIP Cinnamon.](https://news.puppy-snuggles.com/69238911/rip-cinnamon)
+- [The face of a dog who accidentally got two breakfasts this morning](https://news.puppy-snuggles.com/69139364/the-face-of-a-dog-who-accidentally-got-two-breakfasts-this-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
