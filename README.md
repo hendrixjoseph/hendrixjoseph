@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Saturday, March 01, 2025](https://www.reddit.com/r/financialindependence/comments/1j0w8lh/daily_fi_discussion_thread_saturday_march_01_2025/mfgunf2/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, February 05, 2025](https://www.reddit.com/r/financialindependence/comments/1ii6rol/daily_fi_discussion_thread_wednesday_february_05/mb3shcz/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, February 05, 2025](https://www.reddit.com/r/financialindependence/comments/1ii6rol/daily_fi_discussion_thread_wednesday_february_05/mb3pgiy/)
 - [/u/joehx on justFindOutThisIsTruee](https://www.reddit.com/r/ProgrammerHumor/comments/1idjxju/justfindoutthisistruee/ma0wck9/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of January 27, 2025](https://www.reddit.com/r/personalfinance/comments/1ib5yo1/weekday_help_and_victory_thread_for_the_week_of/m9tita7/)
-- [/u/joehx on What&#39;s the most useless feature you have ever seen on a website?](https://www.reddit.com/r/webdev/comments/1ibv0n3/whats_the_most_useless_feature_you_have_ever_seen/m9q8pmd/)
 <!-- REDDIT:END -->
