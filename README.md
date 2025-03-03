@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [105 lbs of Pit Bull and WHAT???](https://news.puppy-snuggles.com/76750962/105-lbs-of-pit-bull-and-what)
-- [Let’s Play!](https://news.puppy-snuggles.com/72102680/lets-play)
-- [This is Gus. He has an excellent smile and a great hat.](https://news.puppy-snuggles.com/69416962/this-is-gus-he-has-an-excellent-smile-and-a-great-hat)
-- [RIP Cinnamon.](https://news.puppy-snuggles.com/69238911/rip-cinnamon)
-- [The face of a dog who accidentally got two breakfasts this morning](https://news.puppy-snuggles.com/69139364/the-face-of-a-dog-who-accidentally-got-two-breakfasts-this-morning)
+- [Derpy dog 🥴](https://news.puppy-snuggles.com/76873240/derpy-dog)
+- [Did I hear walk? 😋](https://news.puppy-snuggles.com/76873242/did-i-hear-walk)
+- [Our newest addition 🫶](https://news.puppy-snuggles.com/76873237/our-newest-addition)
+- [What do you think my name is?](https://news.puppy-snuggles.com/76873241/what-do-you-think-my-name-is)
+- [Welcome to our family Willow &lpar;formerly Queen&rpar;](https://news.puppy-snuggles.com/76873234/welcome-to-our-family-willow-formerly-queen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
