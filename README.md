@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Derpy dog 🥴](https://news.puppy-snuggles.com/76873240/derpy-dog)
-- [Did I hear walk? 😋](https://news.puppy-snuggles.com/76873242/did-i-hear-walk)
-- [Our newest addition 🫶](https://news.puppy-snuggles.com/76873237/our-newest-addition)
-- [What do you think my name is?](https://news.puppy-snuggles.com/76873241/what-do-you-think-my-name-is)
-- [Welcome to our family Willow &lpar;formerly Queen&rpar;](https://news.puppy-snuggles.com/76873234/welcome-to-our-family-willow-formerly-queen)
+- [Queen Camilla announces that she’s adopted a new rescue puppy](https://news.puppy-snuggles.com/76892971/queen-camilla-announces-that-shes-adopted-a-new-rescue-puppy)
+- [Just wanted to share my guy Hooch’s lovely face. Miss him dearly](https://news.puppy-snuggles.com/76116514/just-wanted-to-share-my-guy-hoochs-lovely-face-miss-him-dearly)
+- [At the vet&amp;#039;s, a lil nervous 😂](https://news.puppy-snuggles.com/76084181/at-the-vets-a-lil-nervous)
+- [Its hard to find a jumper to fit so I croched one for Frank.](https://news.puppy-snuggles.com/72398111/its-hard-to-find-a-jumper-to-fit-so-i-croched-one-for-frank)
+- [Should dogs be allowed in hospital beds with their dying owners 🤔🥺🐕😞🥺](https://news.puppy-snuggles.com/63135477/should-dogs-be-allowed-in-hospital-beds-with-their-dying-owners)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
