@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Queen Camilla announces that she’s adopted a new rescue puppy](https://news.puppy-snuggles.com/76892971/queen-camilla-announces-that-shes-adopted-a-new-rescue-puppy)
-- [Just wanted to share my guy Hooch’s lovely face. Miss him dearly](https://news.puppy-snuggles.com/76116514/just-wanted-to-share-my-guy-hoochs-lovely-face-miss-him-dearly)
-- [At the vet&amp;#039;s, a lil nervous 😂](https://news.puppy-snuggles.com/76084181/at-the-vets-a-lil-nervous)
-- [Its hard to find a jumper to fit so I croched one for Frank.](https://news.puppy-snuggles.com/72398111/its-hard-to-find-a-jumper-to-fit-so-i-croched-one-for-frank)
-- [Should dogs be allowed in hospital beds with their dying owners 🤔🥺🐕😞🥺](https://news.puppy-snuggles.com/63135477/should-dogs-be-allowed-in-hospital-beds-with-their-dying-owners)
+- [She always looks like she’s judging me](https://news.puppy-snuggles.com/76994247/she-always-looks-like-shes-judging-me)
+- [Is this a coyote, or a wolf?](https://news.puppy-snuggles.com/76387690/is-this-a-coyote-or-a-wolf)
+- [Wilma on top of my Dad doing some plumbing](https://news.puppy-snuggles.com/74167441/wilma-on-top-of-my-dad-doing-some-plumbing)
+- [My boy Nero would have been 15 today 💔](https://news.puppy-snuggles.com/73762203/my-boy-nero-would-have-been-15-today)
+- [size don’t matter!😂](https://news.puppy-snuggles.com/73135946/size-dont-matter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
