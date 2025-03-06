@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She always looks like she’s judging me](https://news.puppy-snuggles.com/76994247/she-always-looks-like-shes-judging-me)
-- [Is this a coyote, or a wolf?](https://news.puppy-snuggles.com/76387690/is-this-a-coyote-or-a-wolf)
-- [Wilma on top of my Dad doing some plumbing](https://news.puppy-snuggles.com/74167441/wilma-on-top-of-my-dad-doing-some-plumbing)
-- [My boy Nero would have been 15 today 💔](https://news.puppy-snuggles.com/73762203/my-boy-nero-would-have-been-15-today)
-- [size don’t matter!😂](https://news.puppy-snuggles.com/73135946/size-dont-matter)
+- [Abandoned here, what is she?](https://news.puppy-snuggles.com/74200585/abandoned-here-what-is-she)
+- [I&amp;#039;m remembrance of Vicky.. I miss you Vicky](https://news.puppy-snuggles.com/64375871/im-remembrance-of-vicky-i-miss-you-vicky)
+- [Mojo puts the OG in dog](https://news.puppy-snuggles.com/64099512/mojo-puts-the-og-in-dog)
+- [Show me pics of your puppies vs adult!](https://news.puppy-snuggles.com/60082546/show-me-pics-of-your-puppies-vs-adult)
+- [Post your weird-looking &lpar;but loved!&rpar; crossbreed! I’ll go first](https://news.puppy-snuggles.com/59808425/post-your-weird-looking-but-loved-crossbreed-ill-go-first)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
