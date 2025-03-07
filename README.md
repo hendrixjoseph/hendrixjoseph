@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Abandoned here, what is she?](https://news.puppy-snuggles.com/74200585/abandoned-here-what-is-she)
-- [I&amp;#039;m remembrance of Vicky.. I miss you Vicky](https://news.puppy-snuggles.com/64375871/im-remembrance-of-vicky-i-miss-you-vicky)
-- [Mojo puts the OG in dog](https://news.puppy-snuggles.com/64099512/mojo-puts-the-og-in-dog)
-- [Show me pics of your puppies vs adult!](https://news.puppy-snuggles.com/60082546/show-me-pics-of-your-puppies-vs-adult)
-- [Post your weird-looking &lpar;but loved!&rpar; crossbreed! I’ll go first](https://news.puppy-snuggles.com/59808425/post-your-weird-looking-but-loved-crossbreed-ill-go-first)
+- [Maggie under another blanket this morning🐶🥰](https://news.puppy-snuggles.com/76510443/maggie-under-another-blanket-this-morning)
+- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
+- [Dog recovering from stroke: Mini barking like she used to!](https://news.puppy-snuggles.com/71698696/dog-recovering-from-stroke-mini-barking-like-she-used-to)
+- [Favourite pictures of my goodest boy, who crossed the Rainbow Bridge yesterday at 15 years old](https://news.puppy-snuggles.com/71418267/favourite-pictures-of-my-goodest-boy-who-crossed-the-rainbow-bridge-yesterday-at-15-years-old)
+- [Not sure what kinda dog he is but meet Pawl, recently got him from the shelter &lpar;:](https://news.puppy-snuggles.com/71375032/not-sure-what-kinda-dog-he-is-but-meet-pawl-recently-got-him-from-the-shelter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
