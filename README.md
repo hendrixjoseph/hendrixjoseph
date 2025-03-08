@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Maggie under another blanket this morning🐶🥰](https://news.puppy-snuggles.com/76510443/maggie-under-another-blanket-this-morning)
-- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
-- [Dog recovering from stroke: Mini barking like she used to!](https://news.puppy-snuggles.com/71698696/dog-recovering-from-stroke-mini-barking-like-she-used-to)
-- [Favourite pictures of my goodest boy, who crossed the Rainbow Bridge yesterday at 15 years old](https://news.puppy-snuggles.com/71418267/favourite-pictures-of-my-goodest-boy-who-crossed-the-rainbow-bridge-yesterday-at-15-years-old)
-- [Not sure what kinda dog he is but meet Pawl, recently got him from the shelter &lpar;:](https://news.puppy-snuggles.com/71375032/not-sure-what-kinda-dog-he-is-but-meet-pawl-recently-got-him-from-the-shelter)
+- [It took me a couple of days to complete this needle felted portrait, but it was worth it right?](https://news.puppy-snuggles.com/75212770/it-took-me-a-couple-of-days-to-complete-this-needle-felted-portrait-but-it-was-worth-it-right)
+- [A year with him!](https://news.puppy-snuggles.com/72398116/a-year-with-him)
+- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
+- [A photo of my dog sprawled out on the flooe](https://news.puppy-snuggles.com/59215154/a-photo-of-my-dog-sprawled-out-on-the-flooe)
+- [This dipshit is turning 17 soon. He has a heart issue, doesn&amp;#039;t hear much and is slowing down, but the &amp;amp;quot;get off my lawn&amp;amp;quot; is too strong. He is afraid of mosquitoes, but wanted to fight a wild boar a few days ago. Bane of many an unwanted rodent. Chemical warfare farts. That&amp;#039;s all, carry on.](https://news.puppy-snuggles.com/57228477/this-dipshit-is-turning-17-soon-he-has-a-heart-issue-doesnt-hear-much-and-is-slowing-down-but-the-quotget-off-my-lawnquot-is-too-strong-he-is-afraid-of-mosquitoes-but-wanted-to-fight-a-wild-boar-a-few-days-ago-bane-of-many-an-unwanted-rodent-chemical-warfare-farts-thats-all-carry-on)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
