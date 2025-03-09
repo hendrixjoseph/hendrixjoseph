@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It took me a couple of days to complete this needle felted portrait, but it was worth it right?](https://news.puppy-snuggles.com/75212770/it-took-me-a-couple-of-days-to-complete-this-needle-felted-portrait-but-it-was-worth-it-right)
-- [A year with him!](https://news.puppy-snuggles.com/72398116/a-year-with-him)
-- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
-- [A photo of my dog sprawled out on the flooe](https://news.puppy-snuggles.com/59215154/a-photo-of-my-dog-sprawled-out-on-the-flooe)
-- [This dipshit is turning 17 soon. He has a heart issue, doesn&amp;#039;t hear much and is slowing down, but the &amp;amp;quot;get off my lawn&amp;amp;quot; is too strong. He is afraid of mosquitoes, but wanted to fight a wild boar a few days ago. Bane of many an unwanted rodent. Chemical warfare farts. That&amp;#039;s all, carry on.](https://news.puppy-snuggles.com/57228477/this-dipshit-is-turning-17-soon-he-has-a-heart-issue-doesnt-hear-much-and-is-slowing-down-but-the-quotget-off-my-lawnquot-is-too-strong-he-is-afraid-of-mosquitoes-but-wanted-to-fight-a-wild-boar-a-few-days-ago-bane-of-many-an-unwanted-rodent-chemical-warfare-farts-thats-all-carry-on)
+- [Need a name for my dog](https://news.puppy-snuggles.com/75712969/need-a-name-for-my-dog)
+- [Let’s Play!](https://news.puppy-snuggles.com/72102680/lets-play)
+- [&amp;amp;quot;Loving a dog is 10 years of joy, 2 years of vet bills, and a lifetime of grief.&amp;amp;quot;](https://news.puppy-snuggles.com/64099507/quotloving-a-dog-is-10-years-of-joy-2-years-of-vet-bills-and-a-lifetime-of-griefquot)
+- [He’s just a wittle guy](https://news.puppy-snuggles.com/60336529/hes-just-a-wittle-guy)
+- [No cheating! Post the last picture you took of your dog.](https://news.puppy-snuggles.com/57329332/no-cheating-post-the-last-picture-you-took-of-your-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
