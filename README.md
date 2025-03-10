@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Need a name for my dog](https://news.puppy-snuggles.com/75712969/need-a-name-for-my-dog)
-- [Let’s Play!](https://news.puppy-snuggles.com/72102680/lets-play)
-- [&amp;amp;quot;Loving a dog is 10 years of joy, 2 years of vet bills, and a lifetime of grief.&amp;amp;quot;](https://news.puppy-snuggles.com/64099507/quotloving-a-dog-is-10-years-of-joy-2-years-of-vet-bills-and-a-lifetime-of-griefquot)
-- [He’s just a wittle guy](https://news.puppy-snuggles.com/60336529/hes-just-a-wittle-guy)
-- [No cheating! Post the last picture you took of your dog.](https://news.puppy-snuggles.com/57329332/no-cheating-post-the-last-picture-you-took-of-your-dog)
+- [I was going to have my coffee and I heard some pitter pattering behind me…](https://news.puppy-snuggles.com/72832150/i-was-going-to-have-my-coffee-and-i-heard-some-pitter-pattering-behind-me)
+- [remembering my handsome baby, I will forever hate cancer](https://news.puppy-snuggles.com/71561192/remembering-my-handsome-baby-i-will-forever-hate-cancer)
+- [Walkies with grandma + grandpa](https://news.puppy-snuggles.com/67954574/walkies-with-grandma-grandpa)
+- [Today is my dogs birthday](https://news.puppy-snuggles.com/56444965/today-is-my-dogs-birthday)
+- [One of the most gentle dogs](https://news.puppy-snuggles.com/51330958/one-of-the-most-gentle-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
