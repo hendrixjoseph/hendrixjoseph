@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I was going to have my coffee and I heard some pitter pattering behind me…](https://news.puppy-snuggles.com/72832150/i-was-going-to-have-my-coffee-and-i-heard-some-pitter-pattering-behind-me)
-- [remembering my handsome baby, I will forever hate cancer](https://news.puppy-snuggles.com/71561192/remembering-my-handsome-baby-i-will-forever-hate-cancer)
-- [Walkies with grandma + grandpa](https://news.puppy-snuggles.com/67954574/walkies-with-grandma-grandpa)
-- [Today is my dogs birthday](https://news.puppy-snuggles.com/56444965/today-is-my-dogs-birthday)
-- [One of the most gentle dogs](https://news.puppy-snuggles.com/51330958/one-of-the-most-gentle-dogs)
+- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 1](https://news.puppy-snuggles.com/65835281/365-days-of-pepperoni-amp-her-mama-day-1)
+- [My big boy went to the rainbow bridge and his little sister misses him terribly. They had the most beautiful bond. I hope they will meet again when it&amp;#039;s her time for the rainbow bridge 🌈🥰🥹 my babies](https://news.puppy-snuggles.com/65453271/my-big-boy-went-to-the-rainbow-bridge-and-his-little-sister-misses-him-terribly-they-had-the-most-beautiful-bond-i-hope-they-will-meet-again-when-its-her-time-for-the-rainbow-bridge-my-babies)
+- [Pebbles enjoying a sunny backyard day](https://news.puppy-snuggles.com/65434553/pebbles-enjoying-a-sunny-backyard-day)
+- [Should I Boop The Nose?](https://news.puppy-snuggles.com/64314727/should-i-boop-the-nose)
+- [We met Ms. Scarlett at the animal shelter. She was so sad. Everyone in my family fell in love with her. She will be officially joining our pack tomorrow. ❤️](https://news.puppy-snuggles.com/46104108/we-met-ms-scarlett-at-the-animal-shelter-she-was-so-sad-everyone-in-my-family-fell-in-love-with-her-she-will-be-officially-joining-our-pack-tomorrow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
