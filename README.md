@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp;amp; Her Mama Day 1](https://news.puppy-snuggles.com/65835281/365-days-of-pepperoni-amp-her-mama-day-1)
-- [My big boy went to the rainbow bridge and his little sister misses him terribly. They had the most beautiful bond. I hope they will meet again when it&amp;#039;s her time for the rainbow bridge 🌈🥰🥹 my babies](https://news.puppy-snuggles.com/65453271/my-big-boy-went-to-the-rainbow-bridge-and-his-little-sister-misses-him-terribly-they-had-the-most-beautiful-bond-i-hope-they-will-meet-again-when-its-her-time-for-the-rainbow-bridge-my-babies)
-- [Pebbles enjoying a sunny backyard day](https://news.puppy-snuggles.com/65434553/pebbles-enjoying-a-sunny-backyard-day)
-- [Should I Boop The Nose?](https://news.puppy-snuggles.com/64314727/should-i-boop-the-nose)
-- [We met Ms. Scarlett at the animal shelter. She was so sad. Everyone in my family fell in love with her. She will be officially joining our pack tomorrow. ❤️](https://news.puppy-snuggles.com/46104108/we-met-ms-scarlett-at-the-animal-shelter-she-was-so-sad-everyone-in-my-family-fell-in-love-with-her-she-will-be-officially-joining-our-pack-tomorrow)
+- [I welcomed home a 7 year old rescue named Bear](https://news.puppy-snuggles.com/74911381/i-welcomed-home-a-7-year-old-rescue-named-bear)
+- [I stayed with my dog at the emergency vet overnight for the hardest night of both of our lives. I&amp;#039;m proud of myself for staying.](https://news.puppy-snuggles.com/73017429/i-stayed-with-my-dog-at-the-emergency-vet-overnight-for-the-hardest-night-of-both-of-our-lives-im-proud-of-myself-for-staying)
+- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
+- [He is gone](https://news.puppy-snuggles.com/69604067/he-is-gone)
+- [Nobody smiles quite like an adolescent husky](https://news.puppy-snuggles.com/69238910/nobody-smiles-quite-like-an-adolescent-husky)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
