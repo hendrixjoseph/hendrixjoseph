@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I welcomed home a 7 year old rescue named Bear](https://news.puppy-snuggles.com/74911381/i-welcomed-home-a-7-year-old-rescue-named-bear)
-- [I stayed with my dog at the emergency vet overnight for the hardest night of both of our lives. I&amp;#039;m proud of myself for staying.](https://news.puppy-snuggles.com/73017429/i-stayed-with-my-dog-at-the-emergency-vet-overnight-for-the-hardest-night-of-both-of-our-lives-im-proud-of-myself-for-staying)
-- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
-- [He is gone](https://news.puppy-snuggles.com/69604067/he-is-gone)
-- [Nobody smiles quite like an adolescent husky](https://news.puppy-snuggles.com/69238910/nobody-smiles-quite-like-an-adolescent-husky)
+- [Just dog](https://news.puppy-snuggles.com/77915978/just-dog)
+- [Posh before and after](https://news.puppy-snuggles.com/74883078/posh-before-and-after)
+- [She needs to be remembered…. My sweet baby Bella 🥹❤️](https://news.puppy-snuggles.com/74130326/she-needs-to-be-remembered-my-sweet-baby-bella)
+- [My boy Oscar](https://news.puppy-snuggles.com/72868080/my-boy-oscar)
+- [My dog living here for 2 years now and suddenly gets surprised from the reflection on the fridge](https://news.puppy-snuggles.com/72313258/my-dog-living-here-for-2-years-now-and-suddenly-gets-surprised-from-the-reflection-on-the-fridge)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
