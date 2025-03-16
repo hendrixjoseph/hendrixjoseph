@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just dog](https://news.puppy-snuggles.com/77915978/just-dog)
-- [Posh before and after](https://news.puppy-snuggles.com/74883078/posh-before-and-after)
-- [She needs to be remembered…. My sweet baby Bella 🥹❤️](https://news.puppy-snuggles.com/74130326/she-needs-to-be-remembered-my-sweet-baby-bella)
-- [My boy Oscar](https://news.puppy-snuggles.com/72868080/my-boy-oscar)
-- [My dog living here for 2 years now and suddenly gets surprised from the reflection on the fridge](https://news.puppy-snuggles.com/72313258/my-dog-living-here-for-2-years-now-and-suddenly-gets-surprised-from-the-reflection-on-the-fridge)
+- [I volunteer as the photographer for my local shelter &lpar;Western NC, USA&rpar; Here are this weeks intake VS photoshoot photos!](https://news.puppy-snuggles.com/75373989/i-volunteer-as-the-photographer-for-my-local-shelter-western-nc-usa-here-are-this-weeks-intake-vs-photoshoot-photos)
+- [Our rescue family](https://news.puppy-snuggles.com/74447469/our-rescue-family)
+- [Please post the prettiest pictures of your dog](https://news.puppy-snuggles.com/51862027/please-post-the-prettiest-pictures-of-your-dog)
+- [Celebrating a special birthday on Reddit today, 10 years of lending an ear.](https://news.puppy-snuggles.com/27848681/celebrating-a-special-birthday-on-reddit-today-10-years-of-lending-an-ear)
+- [Christmas dog 2022](https://news.puppy-snuggles.com/24749819/christmas-dog-2022)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
