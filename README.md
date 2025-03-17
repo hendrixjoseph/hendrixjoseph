@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I volunteer as the photographer for my local shelter &lpar;Western NC, USA&rpar; Here are this weeks intake VS photoshoot photos!](https://news.puppy-snuggles.com/75373989/i-volunteer-as-the-photographer-for-my-local-shelter-western-nc-usa-here-are-this-weeks-intake-vs-photoshoot-photos)
-- [Our rescue family](https://news.puppy-snuggles.com/74447469/our-rescue-family)
-- [Please post the prettiest pictures of your dog](https://news.puppy-snuggles.com/51862027/please-post-the-prettiest-pictures-of-your-dog)
-- [Celebrating a special birthday on Reddit today, 10 years of lending an ear.](https://news.puppy-snuggles.com/27848681/celebrating-a-special-birthday-on-reddit-today-10-years-of-lending-an-ear)
-- [Christmas dog 2022](https://news.puppy-snuggles.com/24749819/christmas-dog-2022)
+- [Dog years fly by. Rescued 11 years ago.](https://news.puppy-snuggles.com/67830945/dog-years-fly-by-rescued-11-years-ago)
+- [Cerebellar Hypoplasia Golden Retriever discovers the joy of a beach for the first time.](https://news.puppy-snuggles.com/33095893/cerebellar-hypoplasia-golden-retriever-discovers-the-joy-of-a-beach-for-the-first-time)
+- [Obi&amp;#039;s 1st birthday is tomorrow. May the 4th](https://news.puppy-snuggles.com/32442601/obis-1st-birthday-is-tomorrow-may-the-4th)
+- [I got a dog yesterday](https://news.puppy-snuggles.com/24007311/i-got-a-dog-yesterday)
+- [what breed do you think ?](https://news.puppy-snuggles.com/23451205/what-breed-do-you-think)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
