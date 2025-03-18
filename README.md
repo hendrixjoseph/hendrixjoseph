@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog years fly by. Rescued 11 years ago.](https://news.puppy-snuggles.com/67830945/dog-years-fly-by-rescued-11-years-ago)
-- [Cerebellar Hypoplasia Golden Retriever discovers the joy of a beach for the first time.](https://news.puppy-snuggles.com/33095893/cerebellar-hypoplasia-golden-retriever-discovers-the-joy-of-a-beach-for-the-first-time)
-- [Obi&amp;#039;s 1st birthday is tomorrow. May the 4th](https://news.puppy-snuggles.com/32442601/obis-1st-birthday-is-tomorrow-may-the-4th)
-- [I got a dog yesterday](https://news.puppy-snuggles.com/24007311/i-got-a-dog-yesterday)
-- [what breed do you think ?](https://news.puppy-snuggles.com/23451205/what-breed-do-you-think)
+- [I can&amp;#039;t believe he thinks he&amp;#039;s gonna win](https://news.puppy-snuggles.com/76021978/i-cant-believe-he-thinks-hes-gonna-win)
+- [My Baby just died](https://news.puppy-snuggles.com/75471680/my-baby-just-died)
+- [Had to say goodbye...](https://news.puppy-snuggles.com/74200589/had-to-say-goodbye)
+- [Heaven just received another good boy](https://news.puppy-snuggles.com/71536102/heaven-just-received-another-good-boy)
+- [She&amp;#039;s grumpy cause I woke her up lol](https://news.puppy-snuggles.com/70858696/shes-grumpy-cause-i-woke-her-up-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
