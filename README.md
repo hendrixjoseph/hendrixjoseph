@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can&amp;#039;t believe he thinks he&amp;#039;s gonna win](https://news.puppy-snuggles.com/76021978/i-cant-believe-he-thinks-hes-gonna-win)
-- [My Baby just died](https://news.puppy-snuggles.com/75471680/my-baby-just-died)
-- [Had to say goodbye...](https://news.puppy-snuggles.com/74200589/had-to-say-goodbye)
-- [Heaven just received another good boy](https://news.puppy-snuggles.com/71536102/heaven-just-received-another-good-boy)
-- [She&amp;#039;s grumpy cause I woke her up lol](https://news.puppy-snuggles.com/70858696/shes-grumpy-cause-i-woke-her-up-lol)
+- [Tiger is a cuddle bear](https://news.puppy-snuggles.com/77479946/tiger-is-a-cuddle-bear)
+- [Why they do that?](https://news.puppy-snuggles.com/76629861/why-they-do-that)
+- [All smiles because this old man is almost 10!](https://news.puppy-snuggles.com/74820415/all-smiles-because-this-old-man-is-almost-10)
+- [My baby passed 3 days ago. RIP](https://news.puppy-snuggles.com/74563027/my-baby-passed-3-days-ago-rip)
+- [This is Duke!!](https://news.puppy-snuggles.com/74484733/this-is-duke)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
