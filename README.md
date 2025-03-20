@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tiger is a cuddle bear](https://news.puppy-snuggles.com/77479946/tiger-is-a-cuddle-bear)
-- [Why they do that?](https://news.puppy-snuggles.com/76629861/why-they-do-that)
-- [All smiles because this old man is almost 10!](https://news.puppy-snuggles.com/74820415/all-smiles-because-this-old-man-is-almost-10)
-- [My baby passed 3 days ago. RIP](https://news.puppy-snuggles.com/74563027/my-baby-passed-3-days-ago-rip)
-- [This is Duke!!](https://news.puppy-snuggles.com/74484733/this-is-duke)
+- [Old girl swimming](https://news.puppy-snuggles.com/76021983/old-girl-swimming)
+- [Guess his name?](https://news.puppy-snuggles.com/72102678/guess-his-name)
+- [We bought him a bed, he doesn&amp;#039;t seem to understand he&amp;#039;s supposed to use it instead of my knee](https://news.puppy-snuggles.com/59808432/we-bought-him-a-bed-he-doesnt-seem-to-understand-hes-supposed-to-use-it-instead-of-my-knee)
+- [pup from work- german shep or no?](https://news.puppy-snuggles.com/58618933/pup-from-work-german-shep-or-no)
+- [Party mood here! Enjoying his birthday](https://news.puppy-snuggles.com/57123262/party-mood-here-enjoying-his-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
