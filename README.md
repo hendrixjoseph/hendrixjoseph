@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why doesn’t Pope Francis step down?](https://www.reddit.com/r/Catholicism/comments/1jezf6m/why_doesnt_pope_francis_step_down/mimza2t/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, March 05, 2025](https://www.reddit.com/r/financialindependence/comments/1j3zrbf/daily_fi_discussion_thread_wednesday_march_05_2025/mg5k94t/)
 - [/u/joehx on Daily FI discussion thread - Saturday, March 01, 2025](https://www.reddit.com/r/financialindependence/comments/1j0w8lh/daily_fi_discussion_thread_saturday_march_01_2025/mfgunf2/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, February 05, 2025](https://www.reddit.com/r/financialindependence/comments/1ii6rol/daily_fi_discussion_thread_wednesday_february_05/mb3shcz/)
 - [/u/joehx on Daily FI discussion thread - Wednesday, February 05, 2025](https://www.reddit.com/r/financialindependence/comments/1ii6rol/daily_fi_discussion_thread_wednesday_february_05/mb3pgiy/)
-- [/u/joehx on justFindOutThisIsTruee](https://www.reddit.com/r/ProgrammerHumor/comments/1idjxju/justfindoutthisistruee/ma0wck9/)
 <!-- REDDIT:END -->
