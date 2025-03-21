@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Old girl swimming](https://news.puppy-snuggles.com/76021983/old-girl-swimming)
-- [Guess his name?](https://news.puppy-snuggles.com/72102678/guess-his-name)
-- [We bought him a bed, he doesn&amp;#039;t seem to understand he&amp;#039;s supposed to use it instead of my knee](https://news.puppy-snuggles.com/59808432/we-bought-him-a-bed-he-doesnt-seem-to-understand-hes-supposed-to-use-it-instead-of-my-knee)
-- [pup from work- german shep or no?](https://news.puppy-snuggles.com/58618933/pup-from-work-german-shep-or-no)
-- [Party mood here! Enjoying his birthday](https://news.puppy-snuggles.com/57123262/party-mood-here-enjoying-his-birthday)
+- [A month after losing my best friend and not ready for a new companion, we decided to foster. Her name is Biscuit and she’s already taken over the house. ❤️](https://news.puppy-snuggles.com/76212557/a-month-after-losing-my-best-friend-and-not-ready-for-a-new-companion-we-decided-to-foster-her-name-is-biscuit-and-shes-already-taken-over-the-house)
+- [Lost my handsome spaz Greyson](https://news.puppy-snuggles.com/75561648/lost-my-handsome-spaz-greyson)
+- [&amp;amp;quot;Loving a dog is 10 years of joy, 2 years of vet bills, and a lifetime of grief.&amp;amp;quot;](https://news.puppy-snuggles.com/64099507/quotloving-a-dog-is-10-years-of-joy-2-years-of-vet-bills-and-a-lifetime-of-griefquot)
+- [I think my dogs broken](https://news.puppy-snuggles.com/61602689/i-think-my-dogs-broken)
+- [What a smart dog! Don&amp;#039;t you think?](https://news.puppy-snuggles.com/51995169/what-a-smart-dog-dont-you-think)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
