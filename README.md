@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A month after losing my best friend and not ready for a new companion, we decided to foster. Her name is Biscuit and she’s already taken over the house. ❤️](https://news.puppy-snuggles.com/76212557/a-month-after-losing-my-best-friend-and-not-ready-for-a-new-companion-we-decided-to-foster-her-name-is-biscuit-and-shes-already-taken-over-the-house)
-- [Lost my handsome spaz Greyson](https://news.puppy-snuggles.com/75561648/lost-my-handsome-spaz-greyson)
-- [&amp;amp;quot;Loving a dog is 10 years of joy, 2 years of vet bills, and a lifetime of grief.&amp;amp;quot;](https://news.puppy-snuggles.com/64099507/quotloving-a-dog-is-10-years-of-joy-2-years-of-vet-bills-and-a-lifetime-of-griefquot)
-- [I think my dogs broken](https://news.puppy-snuggles.com/61602689/i-think-my-dogs-broken)
-- [What a smart dog! Don&amp;#039;t you think?](https://news.puppy-snuggles.com/51995169/what-a-smart-dog-dont-you-think)
+- [He looks at me as if I’ve done him a great disservice](https://news.puppy-snuggles.com/77171830/he-looks-at-me-as-if-ive-done-him-a-great-disservice)
+- [8 weeks to 15 weeks! Holy cow!](https://news.puppy-snuggles.com/76873233/8-weeks-to-15-weeks-holy-cow)
+- [Some words about shelter by volunteers](https://news.puppy-snuggles.com/76327877/some-words-about-shelter-by-volunteers)
+- [Puppy &amp;amp; Spring](https://news.puppy-snuggles.com/76327872/puppy-spring)
+- [My lovely puppies](https://news.puppy-snuggles.com/75279253/my-lovely-puppies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
