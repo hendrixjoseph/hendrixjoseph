@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He looks at me as if I’ve done him a great disservice](https://news.puppy-snuggles.com/77171830/he-looks-at-me-as-if-ive-done-him-a-great-disservice)
-- [8 weeks to 15 weeks! Holy cow!](https://news.puppy-snuggles.com/76873233/8-weeks-to-15-weeks-holy-cow)
-- [Some words about shelter by volunteers](https://news.puppy-snuggles.com/76327877/some-words-about-shelter-by-volunteers)
-- [Puppy &amp;amp; Spring](https://news.puppy-snuggles.com/76327872/puppy-spring)
-- [My lovely puppies](https://news.puppy-snuggles.com/75279253/my-lovely-puppies)
+- [Our dog thinks we want to rub her belly every time we say “come here”](https://news.puppy-snuggles.com/72676341/our-dog-thinks-we-want-to-rub-her-belly-every-time-we-say-come-here)
+- [My dog is 14 and is still very playful](https://news.puppy-snuggles.com/69139359/my-dog-is-14-and-is-still-very-playful)
+- [My new job has an office doggo!](https://news.puppy-snuggles.com/59283214/my-new-job-has-an-office-doggo)
+- [My dog is wearing a ski mask](https://news.puppy-snuggles.com/55727220/my-dog-is-wearing-a-ski-mask)
+- [Monty the labradoodle](https://news.puppy-snuggles.com/49821138/monty-the-labradoodle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
