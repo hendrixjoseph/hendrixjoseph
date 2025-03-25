@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our dog thinks we want to rub her belly every time we say “come here”](https://news.puppy-snuggles.com/72676341/our-dog-thinks-we-want-to-rub-her-belly-every-time-we-say-come-here)
-- [My dog is 14 and is still very playful](https://news.puppy-snuggles.com/69139359/my-dog-is-14-and-is-still-very-playful)
-- [My new job has an office doggo!](https://news.puppy-snuggles.com/59283214/my-new-job-has-an-office-doggo)
-- [My dog is wearing a ski mask](https://news.puppy-snuggles.com/55727220/my-dog-is-wearing-a-ski-mask)
-- [Monty the labradoodle](https://news.puppy-snuggles.com/49821138/monty-the-labradoodle)
+- [My grandma might be adopting this dog. He’s smart, loving and very attentive. What breed is he?](https://news.puppy-snuggles.com/76658701/my-grandma-might-be-adopting-this-dog-hes-smart-loving-and-very-attentive-what-breed-is-he)
+- [This is Bella](https://news.puppy-snuggles.com/74235471/this-is-bella)
+- [Chico, my best friend &lpar;RIP&rpar;](https://news.puppy-snuggles.com/73728973/chico-my-best-friend-rip)
+- [my dog mochi](https://news.puppy-snuggles.com/72398112/my-dog-mochi)
+- [This guy likes to sunbath!](https://news.puppy-snuggles.com/72398110/this-guy-likes-to-sunbath)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
