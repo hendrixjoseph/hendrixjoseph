@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My grandma might be adopting this dog. He’s smart, loving and very attentive. What breed is he?](https://news.puppy-snuggles.com/76658701/my-grandma-might-be-adopting-this-dog-hes-smart-loving-and-very-attentive-what-breed-is-he)
-- [This is Bella](https://news.puppy-snuggles.com/74235471/this-is-bella)
-- [Chico, my best friend &lpar;RIP&rpar;](https://news.puppy-snuggles.com/73728973/chico-my-best-friend-rip)
-- [my dog mochi](https://news.puppy-snuggles.com/72398112/my-dog-mochi)
-- [This guy likes to sunbath!](https://news.puppy-snuggles.com/72398110/this-guy-likes-to-sunbath)
+- [Always happy to be outside and gettin dirty!](https://news.puppy-snuggles.com/77082388/always-happy-to-be-outside-and-gettin-dirty)
+- [Have y&amp;#039;all had enough of Pepperoni? Been getting a lot of negativity. I&amp;#039;ve blocked more people than i can count in the past 42 days. Has it run its course? Or do we prove the haters wrong?](https://news.puppy-snuggles.com/68661455/have-yall-had-enough-of-pepperoni-been-getting-a-lot-of-negativity-ive-blocked-more-people-than-i-can-count-in-the-past-42-days-has-it-run-its-course-or-do-we-prove-the-haters-wrong)
+- [My dog died, and a redditor made me this](https://news.puppy-snuggles.com/68227563/my-dog-died-and-a-redditor-made-me-this)
+- [Colorado dog breeder found dead: Investigators asking for help finding 10 missing puppies](https://news.puppy-snuggles.com/63616863/colorado-dog-breeder-found-dead-investigators-asking-for-help-finding-10-missing-puppies)
+- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
