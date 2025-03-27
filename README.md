@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Always happy to be outside and gettin dirty!](https://news.puppy-snuggles.com/77082388/always-happy-to-be-outside-and-gettin-dirty)
-- [Have y&amp;#039;all had enough of Pepperoni? Been getting a lot of negativity. I&amp;#039;ve blocked more people than i can count in the past 42 days. Has it run its course? Or do we prove the haters wrong?](https://news.puppy-snuggles.com/68661455/have-yall-had-enough-of-pepperoni-been-getting-a-lot-of-negativity-ive-blocked-more-people-than-i-can-count-in-the-past-42-days-has-it-run-its-course-or-do-we-prove-the-haters-wrong)
-- [My dog died, and a redditor made me this](https://news.puppy-snuggles.com/68227563/my-dog-died-and-a-redditor-made-me-this)
-- [Colorado dog breeder found dead: Investigators asking for help finding 10 missing puppies](https://news.puppy-snuggles.com/63616863/colorado-dog-breeder-found-dead-investigators-asking-for-help-finding-10-missing-puppies)
-- [My sweet boy Casper lost his battle with Large Cell Lymphoma.](https://news.puppy-snuggles.com/51546833/my-sweet-boy-casper-lost-his-battle-with-large-cell-lymphoma)
+- [New foster fail, trying to figure out if I want to name him Benji. What name does he looks like? Ending in y/ie](https://news.puppy-snuggles.com/75927904/new-foster-fail-trying-to-figure-out-if-i-want-to-name-him-benji-what-name-does-he-looks-like-ending-in-yie)
+- [Happy - Happier - Happiest! Bunnyboos new lease on life.](https://news.puppy-snuggles.com/70606498/happy-happier-happiest-bunnyboos-new-lease-on-life)
+- [My sweet Gemma bean crossed the rainbow bridge this morning.](https://news.puppy-snuggles.com/64187602/my-sweet-gemma-bean-crossed-the-rainbow-bridge-this-morning)
+- [Colorado police hope missing puppies hold key to dog breeder’s suspicious death: ‘This is such a rare case’](https://news.puppy-snuggles.com/63744857/colorado-police-hope-missing-puppies-hold-key-to-dog-breeders-suspicious-death-this-is-such-a-rare-case)
+- [Meet Allie](https://news.puppy-snuggles.com/63736945/meet-allie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
