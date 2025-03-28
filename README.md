@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New foster fail, trying to figure out if I want to name him Benji. What name does he looks like? Ending in y/ie](https://news.puppy-snuggles.com/75927904/new-foster-fail-trying-to-figure-out-if-i-want-to-name-him-benji-what-name-does-he-looks-like-ending-in-yie)
-- [Happy - Happier - Happiest! Bunnyboos new lease on life.](https://news.puppy-snuggles.com/70606498/happy-happier-happiest-bunnyboos-new-lease-on-life)
-- [My sweet Gemma bean crossed the rainbow bridge this morning.](https://news.puppy-snuggles.com/64187602/my-sweet-gemma-bean-crossed-the-rainbow-bridge-this-morning)
-- [Colorado police hope missing puppies hold key to dog breeder’s suspicious death: ‘This is such a rare case’](https://news.puppy-snuggles.com/63744857/colorado-police-hope-missing-puppies-hold-key-to-dog-breeders-suspicious-death-this-is-such-a-rare-case)
-- [Meet Allie](https://news.puppy-snuggles.com/63736945/meet-allie)
+- [Dog won&amp;#039;t eat or drink if we aren&amp;#039;t home.](https://news.puppy-snuggles.com/75471681/dog-wont-eat-or-drink-if-we-arent-home)
+- [I have two puppies](https://news.puppy-snuggles.com/74411985/i-have-two-puppies)
+- [She turns 17 this year, and she still isn’t slowing down ❤️ We walk a mile a day together.](https://news.puppy-snuggles.com/73212978/she-turns-17-this-year-and-she-still-isnt-slowing-down-we-walk-a-mile-a-day-together)
+- [all four of my fluffos refuse to sleep off my bed. what would you do?](https://news.puppy-snuggles.com/72565989/all-four-of-my-fluffos-refuse-to-sleep-off-my-bed-what-would-you-do)
+- [Shelby’s owner moved &amp;amp;amp; surrendered her to a high euth shelter in Downey, CA. He signed her euthanasia papers &amp;amp;amp; left her alone &amp;amp;amp; scared after 4 years of loyalty. Now she is past deadline &amp;amp;amp; her life could end any moment. Her final notice expired Oct 14. Shelby needs a home or foster immediately](https://news.puppy-snuggles.com/67483517/shelbys-owner-moved-amp-surrendered-her-to-a-high-euth-shelter-in-downey-ca-he-signed-her-euthanasia-papers-amp-left-her-alone-amp-scared-after-4-years-of-loyalty-now-she-is-past-deadline-amp-her-life-could-end-any-moment-her-final-notice-expired-oct-14-shelby-needs-a-home-or-foster-immediately)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
