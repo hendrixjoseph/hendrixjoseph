@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog won&amp;#039;t eat or drink if we aren&amp;#039;t home.](https://news.puppy-snuggles.com/75471681/dog-wont-eat-or-drink-if-we-arent-home)
-- [I have two puppies](https://news.puppy-snuggles.com/74411985/i-have-two-puppies)
-- [She turns 17 this year, and she still isn’t slowing down ❤️ We walk a mile a day together.](https://news.puppy-snuggles.com/73212978/she-turns-17-this-year-and-she-still-isnt-slowing-down-we-walk-a-mile-a-day-together)
-- [all four of my fluffos refuse to sleep off my bed. what would you do?](https://news.puppy-snuggles.com/72565989/all-four-of-my-fluffos-refuse-to-sleep-off-my-bed-what-would-you-do)
-- [Shelby’s owner moved &amp;amp;amp; surrendered her to a high euth shelter in Downey, CA. He signed her euthanasia papers &amp;amp;amp; left her alone &amp;amp;amp; scared after 4 years of loyalty. Now she is past deadline &amp;amp;amp; her life could end any moment. Her final notice expired Oct 14. Shelby needs a home or foster immediately](https://news.puppy-snuggles.com/67483517/shelbys-owner-moved-amp-surrendered-her-to-a-high-euth-shelter-in-downey-ca-he-signed-her-euthanasia-papers-amp-left-her-alone-amp-scared-after-4-years-of-loyalty-now-she-is-past-deadline-amp-her-life-could-end-any-moment-her-final-notice-expired-oct-14-shelby-needs-a-home-or-foster-immediately)
+- [Our dog thinks we want to rub her belly every time we say “come here”](https://news.puppy-snuggles.com/72676341/our-dog-thinks-we-want-to-rub-her-belly-every-time-we-say-come-here)
+- [My Collie was professionally photographed!](https://news.puppy-snuggles.com/61263623/my-collie-was-professionally-photographed)
+- [Lucky&amp;#039;s our youngest dog and Salt is our youngest cat](https://news.puppy-snuggles.com/47983102/luckys-our-youngest-dog-and-salt-is-our-youngest-cat)
+- [Help me name this good boy](https://news.puppy-snuggles.com/43199366/help-me-name-this-good-boy)
+- [Adoptable puppies found abandoned in Decatur dog park, one dead](https://news.puppy-snuggles.com/25592596/adoptable-puppies-found-abandoned-in-decatur-dog-park-one-dead)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
