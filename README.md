@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our dog thinks we want to rub her belly every time we say “come here”](https://news.puppy-snuggles.com/72676341/our-dog-thinks-we-want-to-rub-her-belly-every-time-we-say-come-here)
-- [My Collie was professionally photographed!](https://news.puppy-snuggles.com/61263623/my-collie-was-professionally-photographed)
-- [Lucky&amp;#039;s our youngest dog and Salt is our youngest cat](https://news.puppy-snuggles.com/47983102/luckys-our-youngest-dog-and-salt-is-our-youngest-cat)
-- [Help me name this good boy](https://news.puppy-snuggles.com/43199366/help-me-name-this-good-boy)
-- [Adoptable puppies found abandoned in Decatur dog park, one dead](https://news.puppy-snuggles.com/25592596/adoptable-puppies-found-abandoned-in-decatur-dog-park-one-dead)
+- [How long can I leave my girl alone?](https://news.puppy-snuggles.com/76212562/how-long-can-i-leave-my-girl-alone)
+- [This is Tux. He is the cutest black hole we have ever seen. And we thought you should see him too.](https://news.puppy-snuggles.com/74820407/this-is-tux-he-is-the-cutest-black-hole-we-have-ever-seen-and-we-thought-you-should-see-him-too)
+- [Good dog naps](https://news.puppy-snuggles.com/71465958/good-dog-naps)
+- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
+- [We found this girl abandoned at an uninhabited house across the road. Any idea what mix she is?](https://news.puppy-snuggles.com/61422521/we-found-this-girl-abandoned-at-an-uninhabited-house-across-the-road-any-idea-what-mix-she-is)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
