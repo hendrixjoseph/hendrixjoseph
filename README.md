@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How long can I leave my girl alone?](https://news.puppy-snuggles.com/76212562/how-long-can-i-leave-my-girl-alone)
-- [This is Tux. He is the cutest black hole we have ever seen. And we thought you should see him too.](https://news.puppy-snuggles.com/74820407/this-is-tux-he-is-the-cutest-black-hole-we-have-ever-seen-and-we-thought-you-should-see-him-too)
-- [Good dog naps](https://news.puppy-snuggles.com/71465958/good-dog-naps)
-- [We moved from Amsterdam to the US. We took a charted flight for dogs and owners so we wouldn’t have to put my dog in cargo](https://news.puppy-snuggles.com/65299158/we-moved-from-amsterdam-to-the-us-we-took-a-charted-flight-for-dogs-and-owners-so-we-wouldnt-have-to-put-my-dog-in-cargo)
-- [We found this girl abandoned at an uninhabited house across the road. Any idea what mix she is?](https://news.puppy-snuggles.com/61422521/we-found-this-girl-abandoned-at-an-uninhabited-house-across-the-road-any-idea-what-mix-she-is)
+- [My good boy went to heaven today. He is missed.](https://news.puppy-snuggles.com/75712962/my-good-boy-went-to-heaven-today-he-is-missed)
+- [Tiny Satan in a Puppy Suit](https://news.puppy-snuggles.com/36068210/tiny-satan-in-a-puppy-suit)
+- [Update on Blake](https://news.puppy-snuggles.com/24193179/update-on-blake)
+- [This smiling pup &lpar;we’re calling Pepe right now&rpar; was passed on to a friend by a homeless gentlemen who could no longer look after him. He’s looking for a new home in Salt Lake City!](https://news.puppy-snuggles.com/22994976/this-smiling-pup-were-calling-pepe-right-now-was-passed-on-to-a-friend-by-a-homeless-gentlemen-who-could-no-longer-look-after-him-hes-looking-for-a-new-home-in-salt-lake-city)
+- [belly rubs please?](https://news.puppy-snuggles.com/22501279/belly-rubs-please)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
