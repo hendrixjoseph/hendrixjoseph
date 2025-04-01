@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My good boy went to heaven today. He is missed.](https://news.puppy-snuggles.com/75712962/my-good-boy-went-to-heaven-today-he-is-missed)
-- [Tiny Satan in a Puppy Suit](https://news.puppy-snuggles.com/36068210/tiny-satan-in-a-puppy-suit)
-- [Update on Blake](https://news.puppy-snuggles.com/24193179/update-on-blake)
-- [This smiling pup &lpar;we’re calling Pepe right now&rpar; was passed on to a friend by a homeless gentlemen who could no longer look after him. He’s looking for a new home in Salt Lake City!](https://news.puppy-snuggles.com/22994976/this-smiling-pup-were-calling-pepe-right-now-was-passed-on-to-a-friend-by-a-homeless-gentlemen-who-could-no-longer-look-after-him-hes-looking-for-a-new-home-in-salt-lake-city)
-- [belly rubs please?](https://news.puppy-snuggles.com/22501279/belly-rubs-please)
+- [Need helping naming our new puppy](https://news.puppy-snuggles.com/75804549/need-helping-naming-our-new-puppy)
+- [Big smiles from Pearl and Vivian 💖](https://news.puppy-snuggles.com/72102681/big-smiles-from-pearl-and-vivian)
+- [Issy did such a great job emotionally suporting my family during two very dark years](https://news.puppy-snuggles.com/71465951/issy-did-such-a-great-job-emotionally-suporting-my-family-during-two-very-dark-years)
+- [Happy One Year of Adoption Apollo!](https://news.puppy-snuggles.com/60145045/happy-one-year-of-adoption-apollo)
+- [R.I.P Gunny](https://news.puppy-snuggles.com/50285727/rip-gunny)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
