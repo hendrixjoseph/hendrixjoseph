@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed is my dog?](https://news.puppy-snuggles.com/80376056/what-breed-is-my-dog)
-- [Eyes are overrated when your smile is this cute](https://news.puppy-snuggles.com/80376058/eyes-are-overrated-when-your-smile-is-this-cute)
-- [My 17 year old baby on his way home from his 4th dental surgery, no more teeth 🦷 left, but also no more mouth pain. 💗🥰 He was originally a street dog with bad teeth and I have had him about 13ish years now. He is such a sweetheart 💕](https://news.puppy-snuggles.com/80376059/my-17-year-old-baby-on-his-way-home-from-his-4th-dental-surgery-no-more-teeth-left-but-also-no-more-mouth-pain-he-was-originally-a-street-dog-with-bad-teeth-and-i-have-had-him-about-13ish-years-now-he-is-such-a-sweetheart)
-- [When someone says w-a-l-k](https://news.puppy-snuggles.com/80376053/when-someone-says-w-a-l-k)
-- [Max is in danger of being pts for space any moment &lpar;04/02 8am&rpar;at Downey ACC, CA. Max&amp;#039;s owners loved him but were forced to surrender him after being kicked by a neighbor&amp;#039;s kid.Max is scared at the shelter &amp;amp; needs a loving, forever home or a foster asap to save his life. Could that be you?](https://news.puppy-snuggles.com/80376061/max-is-in-danger-of-being-pts-for-space-any-moment-0402-8amat-downey-acc-ca-maxs-owners-loved-him-but-were-forced-to-surrender-him-after-being-kicked-by-a-neighbors-kidmax-is-scared-at-the-shelter-needs-a-loving-forever-home-or-a-foster-asap-to-save-his-life-could-that-be-you)
+- [Show me close ups from your dogs!](https://news.puppy-snuggles.com/79711482/show-me-close-ups-from-your-dogs)
+- [I miss my baby](https://news.puppy-snuggles.com/76417591/i-miss-my-baby)
+- [Buck appreciation post!](https://news.puppy-snuggles.com/74167442/buck-appreciation-post)
+- [i&amp;#039;m a mailman, met this guy at work today, so polite!😭](https://news.puppy-snuggles.com/74167436/im-a-mailman-met-this-guy-at-work-today-so-polite)
+- [Had a dream about my dead dog](https://news.puppy-snuggles.com/74167443/had-a-dream-about-my-dead-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
