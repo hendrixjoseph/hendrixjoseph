@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me close ups from your dogs!](https://news.puppy-snuggles.com/79711482/show-me-close-ups-from-your-dogs)
-- [I miss my baby](https://news.puppy-snuggles.com/76417591/i-miss-my-baby)
-- [Buck appreciation post!](https://news.puppy-snuggles.com/74167442/buck-appreciation-post)
-- [i&amp;#039;m a mailman, met this guy at work today, so polite!😭](https://news.puppy-snuggles.com/74167436/im-a-mailman-met-this-guy-at-work-today-so-polite)
-- [Had a dream about my dead dog](https://news.puppy-snuggles.com/74167443/had-a-dream-about-my-dead-dog)
+- [The best company on these winter hikes 💚](https://news.puppy-snuggles.com/75033573/the-best-company-on-these-winter-hikes)
+- [Am I the only one who cried after their dog got surgery?](https://news.puppy-snuggles.com/73364148/am-i-the-only-one-who-cried-after-their-dog-got-surgery)
+- [My buddy Mapache protected my wife from a loose aggressive dog.](https://news.puppy-snuggles.com/69874917/my-buddy-mapache-protected-my-wife-from-a-loose-aggressive-dog)
+- [Lost my beautiful girl to bone cancer this week](https://news.puppy-snuggles.com/63338889/lost-my-beautiful-girl-to-bone-cancer-this-week)
+- [Looks like 🍞](https://news.puppy-snuggles.com/59387960/looks-like)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
