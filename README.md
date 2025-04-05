@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/giveaways/comments/1e3thpg/win_either_a_copy_of_the_ultimate_cybersecurity/)
-- [WIN either a copy of &quot;The Ultimate Cybersecurity Word Search Puzzle Book&quot; or &quot;The Ultimate Programming Word Search Puzzle Book&quot;. {US} {7/19/2024}](https://www.reddit.com/r/sweepstakes/comments/1e3thf5/win_either_a_copy_of_the_ultimate_cybersecurity/)
-- [The Adventures of Princess - FREE until Friday, July 19, 2024](https://www.reddit.com/r/KindleFreebies/comments/1e3t8wx/the_adventures_of_princess_free_until_friday_july/)
-- [The Adventures of Niko - FREE until Friday, July 19, 2024](https://www.reddit.com/r/KindleFreebies/comments/1e3t8mk/the_adventures_of_niko_free_until_friday_july_19/)
-- [[Kindle] The Adventures of Niko - FREE until Friday, July 19, 2024](https://www.reddit.com/r/FreeEBOOKS/comments/1e3t85z/kindle_the_adventures_of_niko_free_until_friday/)
+- [/u/joehx on I’m not going to give out my social security number unless hired. Hell no to this trend.](https://www.reddit.com/r/recruitinghell/comments/1jpl2da/im_not_going_to_give_out_my_social_security/ml3z1k6/)
+- [/u/joehx on What is your thoughts on a 52 year old man with a 32 year old woman?](https://www.reddit.com/r/AskMen/comments/1jk06mj/what_is_your_thoughts_on_a_52_year_old_man_with_a/mjrs5jw/)
+- [/u/joehx on Why doesn’t Pope Francis step down?](https://www.reddit.com/r/Catholicism/comments/1jezf6m/why_doesnt_pope_francis_step_down/mimza2t/)
+- [/u/joehx on Daily FI discussion thread - Wednesday, March 05, 2025](https://www.reddit.com/r/financialindependence/comments/1j3zrbf/daily_fi_discussion_thread_wednesday_march_05_2025/mg5k94t/)
+- [/u/joehx on Daily FI discussion thread - Saturday, March 01, 2025](https://www.reddit.com/r/financialindependence/comments/1j0w8lh/daily_fi_discussion_thread_saturday_march_01_2025/mfgunf2/)
 <!-- REDDIT:END -->
