@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The best company on these winter hikes 💚](https://news.puppy-snuggles.com/75033573/the-best-company-on-these-winter-hikes)
-- [Am I the only one who cried after their dog got surgery?](https://news.puppy-snuggles.com/73364148/am-i-the-only-one-who-cried-after-their-dog-got-surgery)
-- [My buddy Mapache protected my wife from a loose aggressive dog.](https://news.puppy-snuggles.com/69874917/my-buddy-mapache-protected-my-wife-from-a-loose-aggressive-dog)
-- [Lost my beautiful girl to bone cancer this week](https://news.puppy-snuggles.com/63338889/lost-my-beautiful-girl-to-bone-cancer-this-week)
-- [Looks like 🍞](https://news.puppy-snuggles.com/59387960/looks-like)
+- [Just stop looking so cute, please](https://news.puppy-snuggles.com/54403804/just-stop-looking-so-cute-please)
+- [Just an old man pushing his dog on a swing](https://news.puppy-snuggles.com/44450134/just-an-old-man-pushing-his-dog-on-a-swing)
+- [Help me name this good boy](https://news.puppy-snuggles.com/43199366/help-me-name-this-good-boy)
+- [The greatest girl and best friend, I&amp;#039;ll miss you Maguire](https://news.puppy-snuggles.com/25376144/the-greatest-girl-and-best-friend-ill-miss-you-maguire)
+- [Had to say goodbye to the goodest of boys today. He beat cancer a couple years ago, but age caught up to him. Miss and love you buddy.](https://news.puppy-snuggles.com/24303728/had-to-say-goodbye-to-the-goodest-of-boys-today-he-beat-cancer-a-couple-years-ago-but-age-caught-up-to-him-miss-and-love-you-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
