@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just stop looking so cute, please](https://news.puppy-snuggles.com/54403804/just-stop-looking-so-cute-please)
-- [Just an old man pushing his dog on a swing](https://news.puppy-snuggles.com/44450134/just-an-old-man-pushing-his-dog-on-a-swing)
-- [Help me name this good boy](https://news.puppy-snuggles.com/43199366/help-me-name-this-good-boy)
-- [The greatest girl and best friend, I&amp;#039;ll miss you Maguire](https://news.puppy-snuggles.com/25376144/the-greatest-girl-and-best-friend-ill-miss-you-maguire)
-- [Had to say goodbye to the goodest of boys today. He beat cancer a couple years ago, but age caught up to him. Miss and love you buddy.](https://news.puppy-snuggles.com/24303728/had-to-say-goodbye-to-the-goodest-of-boys-today-he-beat-cancer-a-couple-years-ago-but-age-caught-up-to-him-miss-and-love-you-buddy)
+- [My “Service” Dog](https://news.puppy-snuggles.com/76448575/my-service-dog)
+- [My boy died suddenly from a freak accident at 5 years old. I just want everyone to know what a good boy he was.](https://news.puppy-snuggles.com/75373981/my-boy-died-suddenly-from-a-freak-accident-at-5-years-old-i-just-want-everyone-to-know-what-a-good-boy-he-was)
+- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
+- [My dogs balls are getting cut off in 2 weeks.](https://news.puppy-snuggles.com/56755297/my-dogs-balls-are-getting-cut-off-in-2-weeks)
+- [My beautiful girl](https://news.puppy-snuggles.com/56546746/my-beautiful-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
