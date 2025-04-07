@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My “Service” Dog](https://news.puppy-snuggles.com/76448575/my-service-dog)
-- [My boy died suddenly from a freak accident at 5 years old. I just want everyone to know what a good boy he was.](https://news.puppy-snuggles.com/75373981/my-boy-died-suddenly-from-a-freak-accident-at-5-years-old-i-just-want-everyone-to-know-what-a-good-boy-he-was)
-- [Drop a picture of your dog in the comments, and I’ll randomly pick two to turn into a custom 3D leather keychain of your furry friend!](https://news.puppy-snuggles.com/71698694/drop-a-picture-of-your-dog-in-the-comments-and-ill-randomly-pick-two-to-turn-into-a-custom-3d-leather-keychain-of-your-furry-friend)
-- [My dogs balls are getting cut off in 2 weeks.](https://news.puppy-snuggles.com/56755297/my-dogs-balls-are-getting-cut-off-in-2-weeks)
-- [My beautiful girl](https://news.puppy-snuggles.com/56546746/my-beautiful-girl)
+- [Missing my sweet Penny Lane](https://news.puppy-snuggles.com/77229553/missing-my-sweet-penny-lane)
+- [the shutter sound from my camera woke up this sleepy pup🥺😭](https://news.puppy-snuggles.com/74729559/the-shutter-sound-from-my-camera-woke-up-this-sleepy-pup)
+- [My best friend Cubby &lpar;passed in March&rpar; and new pup Hazel](https://news.puppy-snuggles.com/60082554/my-best-friend-cubby-passed-in-march-and-new-pup-hazel)
+- [Show me 0.5 pics of ur dogs!](https://news.puppy-snuggles.com/57980578/show-me-05-pics-of-ur-dogs)
+- [We take selfies - my almost 10 year old baby boy 💝](https://news.puppy-snuggles.com/55073414/we-take-selfies-my-almost-10-year-old-baby-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
