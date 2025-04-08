@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Missing my sweet Penny Lane](https://news.puppy-snuggles.com/77229553/missing-my-sweet-penny-lane)
-- [the shutter sound from my camera woke up this sleepy pup🥺😭](https://news.puppy-snuggles.com/74729559/the-shutter-sound-from-my-camera-woke-up-this-sleepy-pup)
-- [My best friend Cubby &lpar;passed in March&rpar; and new pup Hazel](https://news.puppy-snuggles.com/60082554/my-best-friend-cubby-passed-in-march-and-new-pup-hazel)
-- [Show me 0.5 pics of ur dogs!](https://news.puppy-snuggles.com/57980578/show-me-05-pics-of-ur-dogs)
-- [We take selfies - my almost 10 year old baby boy 💝](https://news.puppy-snuggles.com/55073414/we-take-selfies-my-almost-10-year-old-baby-boy)
+- [He knows all the bad things you did today XD](https://news.puppy-snuggles.com/80983262/he-knows-all-the-bad-things-you-did-today-xd)
+- [Guess the breed of my dog](https://news.puppy-snuggles.com/75774128/guess-the-breed-of-my-dog)
+- [Farewell to my best friend](https://news.puppy-snuggles.com/70492886/farewell-to-my-best-friend)
+- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
+- [I made some amazing dog cookies! They are too cute!](https://news.puppy-snuggles.com/23470953/i-made-some-amazing-dog-cookies-they-are-too-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
