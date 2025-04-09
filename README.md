@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He knows all the bad things you did today XD](https://news.puppy-snuggles.com/80983262/he-knows-all-the-bad-things-you-did-today-xd)
-- [Guess the breed of my dog](https://news.puppy-snuggles.com/75774128/guess-the-breed-of-my-dog)
-- [Farewell to my best friend](https://news.puppy-snuggles.com/70492886/farewell-to-my-best-friend)
-- [Anyone know what kind this dog is? I got it a year ago and never asked anyone so here I am.](https://news.puppy-snuggles.com/52796107/anyone-know-what-kind-this-dog-is-i-got-it-a-year-ago-and-never-asked-anyone-so-here-i-am)
-- [I made some amazing dog cookies! They are too cute!](https://news.puppy-snuggles.com/23470953/i-made-some-amazing-dog-cookies-they-are-too-cute)
+- [Bro why is my dog judging me](https://news.puppy-snuggles.com/74883085/bro-why-is-my-dog-judging-me)
+- [Timmy walked 28 miles for charity this week!](https://news.puppy-snuggles.com/74484735/timmy-walked-28-miles-for-charity-this-week)
+- [My dog in his favorite spots!](https://news.puppy-snuggles.com/64375874/my-dog-in-his-favorite-spots)
+- [My Name is daruk i am 16 😌](https://news.puppy-snuggles.com/64187605/my-name-is-daruk-i-am-16)
+- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
