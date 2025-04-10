@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bro why is my dog judging me](https://news.puppy-snuggles.com/74883085/bro-why-is-my-dog-judging-me)
-- [Timmy walked 28 miles for charity this week!](https://news.puppy-snuggles.com/74484735/timmy-walked-28-miles-for-charity-this-week)
-- [My dog in his favorite spots!](https://news.puppy-snuggles.com/64375874/my-dog-in-his-favorite-spots)
-- [My Name is daruk i am 16 😌](https://news.puppy-snuggles.com/64187605/my-name-is-daruk-i-am-16)
-- [This gremlin stole all our Jalapeños.](https://news.puppy-snuggles.com/64187609/this-gremlin-stole-all-our-jalapenos)
+- [on the way to my forever home!](https://news.puppy-snuggles.com/75244374/on-the-way-to-my-forever-home)
+- [I love my little dog so so much she’s so cute and sweet](https://news.puppy-snuggles.com/64099514/i-love-my-little-dog-so-so-much-shes-so-cute-and-sweet)
+- [Couldn’t ask for a better smile](https://news.puppy-snuggles.com/60009375/couldnt-ask-for-a-better-smile)
+- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
+- [Pencil handmade portrait of a dog recent commission artwork for my client](https://news.puppy-snuggles.com/19180610/pencil-handmade-portrait-of-a-dog-recent-commission-artwork-for-my-client)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
