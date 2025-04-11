@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [on the way to my forever home!](https://news.puppy-snuggles.com/75244374/on-the-way-to-my-forever-home)
-- [I love my little dog so so much she’s so cute and sweet](https://news.puppy-snuggles.com/64099514/i-love-my-little-dog-so-so-much-shes-so-cute-and-sweet)
-- [Couldn’t ask for a better smile](https://news.puppy-snuggles.com/60009375/couldnt-ask-for-a-better-smile)
-- [best seat in the house](https://news.puppy-snuggles.com/24763110/best-seat-in-the-house)
-- [Pencil handmade portrait of a dog recent commission artwork for my client](https://news.puppy-snuggles.com/19180610/pencil-handmade-portrait-of-a-dog-recent-commission-artwork-for-my-client)
+- [Mom, son guilty on all counts in fatal dog mauling attack that killed 73-year-old woman](https://news.puppy-snuggles.com/75095009/mom-son-guilty-on-all-counts-in-fatal-dog-mauling-attack-that-killed-73-year-old-woman)
+- [Proud of him.](https://news.puppy-snuggles.com/74522094/proud-of-him)
+- [My wife&amp;#039;s Wiener Pit](https://news.puppy-snuggles.com/58890074/my-wifes-wiener-pit)
+- [Show me your ‘can’t eat without eyes watching me’ pics 😅](https://news.puppy-snuggles.com/50311994/show-me-your-cant-eat-without-eyes-watching-me-pics)
+- [I told Larry the gambling would ruin him but he insists...](https://news.puppy-snuggles.com/49714914/i-told-larry-the-gambling-would-ruin-him-but-he-insists)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
