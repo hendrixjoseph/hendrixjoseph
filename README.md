@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mom, son guilty on all counts in fatal dog mauling attack that killed 73-year-old woman](https://news.puppy-snuggles.com/75095009/mom-son-guilty-on-all-counts-in-fatal-dog-mauling-attack-that-killed-73-year-old-woman)
-- [Proud of him.](https://news.puppy-snuggles.com/74522094/proud-of-him)
-- [My wife&amp;#039;s Wiener Pit](https://news.puppy-snuggles.com/58890074/my-wifes-wiener-pit)
-- [Show me your ‘can’t eat without eyes watching me’ pics 😅](https://news.puppy-snuggles.com/50311994/show-me-your-cant-eat-without-eyes-watching-me-pics)
-- [I told Larry the gambling would ruin him but he insists...](https://news.puppy-snuggles.com/49714914/i-told-larry-the-gambling-would-ruin-him-but-he-insists)
+- [One is an old lady. The other is a terrorist.](https://news.puppy-snuggles.com/81451328/one-is-an-old-lady-the-other-is-a-terrorist)
+- [Found this sweet little girl last night all alone outside, what breed is she?](https://news.puppy-snuggles.com/81451326/found-this-sweet-little-girl-last-night-all-alone-outside-what-breed-is-she)
+- [1 year cancer free](https://news.puppy-snuggles.com/81451331/1-year-cancer-free)
+- [Saying goodbye](https://news.puppy-snuggles.com/81451324/saying-goodbye)
+- [my perfect rescue dog cuddling w her lamb chop🥺🥺](https://news.puppy-snuggles.com/79029212/my-perfect-rescue-dog-cuddling-w-her-lamb-chop)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
