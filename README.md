@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One is an old lady. The other is a terrorist.](https://news.puppy-snuggles.com/81451328/one-is-an-old-lady-the-other-is-a-terrorist)
-- [Found this sweet little girl last night all alone outside, what breed is she?](https://news.puppy-snuggles.com/81451326/found-this-sweet-little-girl-last-night-all-alone-outside-what-breed-is-she)
-- [1 year cancer free](https://news.puppy-snuggles.com/81451331/1-year-cancer-free)
-- [Saying goodbye](https://news.puppy-snuggles.com/81451324/saying-goodbye)
-- [my perfect rescue dog cuddling w her lamb chop🥺🥺](https://news.puppy-snuggles.com/79029212/my-perfect-rescue-dog-cuddling-w-her-lamb-chop)
+- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
+- [What race is my dawg?](https://news.puppy-snuggles.com/75373991/what-race-is-my-dawg)
+- [Beach days are our favorite days 🐾❤️](https://news.puppy-snuggles.com/57480480/beach-days-are-our-favorite-days)
+- [Show me your dog with their bestie. Any bestie will do! Dog, cat, human, lizard, etc. etc.](https://news.puppy-snuggles.com/57414088/show-me-your-dog-with-their-bestie-any-bestie-will-do-dog-cat-human-lizard-etc-etc)
+- [Is my big dog cute or am I just biased?](https://news.puppy-snuggles.com/51105456/is-my-big-dog-cute-or-am-i-just-biased)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
