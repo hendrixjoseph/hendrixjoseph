@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
-- [What race is my dawg?](https://news.puppy-snuggles.com/75373991/what-race-is-my-dawg)
-- [Beach days are our favorite days 🐾❤️](https://news.puppy-snuggles.com/57480480/beach-days-are-our-favorite-days)
-- [Show me your dog with their bestie. Any bestie will do! Dog, cat, human, lizard, etc. etc.](https://news.puppy-snuggles.com/57414088/show-me-your-dog-with-their-bestie-any-bestie-will-do-dog-cat-human-lizard-etc-etc)
-- [Is my big dog cute or am I just biased?](https://news.puppy-snuggles.com/51105456/is-my-big-dog-cute-or-am-i-just-biased)
+- [Same chair, 2 years apart](https://news.puppy-snuggles.com/81658471/same-chair-2-years-apart)
+- [Could my dog model for Versace?](https://news.puppy-snuggles.com/81658478/could-my-dog-model-for-versace)
+- [my golden girl ☀️](https://news.puppy-snuggles.com/81658475/my-golden-girl)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 166](https://news.puppy-snuggles.com/81658473/365-days-of-pepperoni-her-mama-day-166)
+- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
