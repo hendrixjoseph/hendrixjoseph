@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Same chair, 2 years apart](https://news.puppy-snuggles.com/81658471/same-chair-2-years-apart)
-- [Could my dog model for Versace?](https://news.puppy-snuggles.com/81658478/could-my-dog-model-for-versace)
-- [my golden girl ☀️](https://news.puppy-snuggles.com/81658475/my-golden-girl)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 166](https://news.puppy-snuggles.com/81658473/365-days-of-pepperoni-her-mama-day-166)
-- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
+- [Such a handsome smile😁](https://news.puppy-snuggles.com/81760591/such-a-handsome-smile)
+- [Not to brag, but he&amp;#039;s my friend](https://news.puppy-snuggles.com/81760590/not-to-brag-but-hes-my-friend)
+- [last photo you took of ur pup?](https://news.puppy-snuggles.com/81760583/last-photo-you-took-of-ur-pup)
+- [My Chill Guy😏😛](https://news.puppy-snuggles.com/81760586/my-chill-guy)
+- [Wish Apollo a happy 1st birthday 🎂🐶❤️🎉](https://news.puppy-snuggles.com/81760585/wish-apollo-a-happy-1st-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
