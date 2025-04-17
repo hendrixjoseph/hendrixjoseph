@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog just passed and I feel broken](https://news.puppy-snuggles.com/70359419/my-dog-just-passed-and-i-feel-broken)
-- [My dog dislikes one of my housemates and snarls, jumps on, and is aggressive only to him.](https://news.puppy-snuggles.com/53474942/my-dog-dislikes-one-of-my-housemates-and-snarls-jumps-on-and-is-aggressive-only-to-him)
-- [Their look at the Master for permission is priceless! Well behaved dogs! Kudos to the owner!](https://news.puppy-snuggles.com/53298130/their-look-at-the-master-for-permission-is-priceless-well-behaved-dogs-kudos-to-the-owner)
-- [After my grandparents passing, i took in their little cocker and shes such a cutie! Her name is Hazel :&rpar;](https://news.puppy-snuggles.com/51995171/after-my-grandparents-passing-i-took-in-their-little-cocker-and-shes-such-a-cutie-her-name-is-hazel)
-- [So adorable](https://news.puppy-snuggles.com/51794636/so-adorable)
+- [Do you think she likes her new bed?](https://news.puppy-snuggles.com/64437886/do-you-think-she-likes-her-new-bed)
+- [I lost Pratt](https://news.puppy-snuggles.com/63518778/i-lost-pratt)
+- [My best boy](https://news.puppy-snuggles.com/62097880/my-best-boy)
+- [Saying Goodbye](https://news.puppy-snuggles.com/61460778/saying-goodbye)
+- [Foster failed this handsome boy. Any name suggestions?](https://news.puppy-snuggles.com/60253093/foster-failed-this-handsome-boy-any-name-suggestions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
