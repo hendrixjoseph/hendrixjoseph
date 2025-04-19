@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What should we name our new dog?](https://news.puppy-snuggles.com/79313009/what-should-we-name-our-new-dog)
-- [Found this lonely puppy dog in Thailand 😢](https://news.puppy-snuggles.com/75279255/found-this-lonely-puppy-dog-in-thailand)
-- [In the morning, my old lady likes cuddles 🩷](https://news.puppy-snuggles.com/72398113/in-the-morning-my-old-lady-likes-cuddles)
-- [Meet the wise old labraseal called Lily ❤️](https://news.puppy-snuggles.com/43471687/meet-the-wise-old-labraseal-called-lily)
-- [Puppy vomits surprising item at the vets.](https://news.puppy-snuggles.com/42384316/puppy-vomits-surprising-item-at-the-vets)
+- [Farewell My Friend](https://news.puppy-snuggles.com/76904087/farewell-my-friend)
+- [Post the last picture of your dog 😊](https://news.puppy-snuggles.com/74597808/post-the-last-picture-of-your-dog)
+- [Isn’t he photogenic? 🐶🥰](https://news.puppy-snuggles.com/73695204/isnt-he-photogenic)
+- [My Belgian Malinois](https://news.puppy-snuggles.com/69322131/my-belgian-malinois)
+- [I’m always smiling 😄](https://news.puppy-snuggles.com/68584283/im-always-smiling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
