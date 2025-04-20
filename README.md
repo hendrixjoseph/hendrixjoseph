@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Farewell My Friend](https://news.puppy-snuggles.com/76904087/farewell-my-friend)
-- [Post the last picture of your dog 😊](https://news.puppy-snuggles.com/74597808/post-the-last-picture-of-your-dog)
-- [Isn’t he photogenic? 🐶🥰](https://news.puppy-snuggles.com/73695204/isnt-he-photogenic)
-- [My Belgian Malinois](https://news.puppy-snuggles.com/69322131/my-belgian-malinois)
-- [I’m always smiling 😄](https://news.puppy-snuggles.com/68584283/im-always-smiling)
+- [R.I.P to the goodest boy of them all, 11 years of smiling and having fun, Scout](https://news.puppy-snuggles.com/78369345/rip-to-the-goodest-boy-of-them-all-11-years-of-smiling-and-having-fun-scout)
+- [Goodbye to Jonah &amp;amp;quot;Buppers&amp;amp;quot; Malone the Handsome Pirate King](https://news.puppy-snuggles.com/69238913/goodbye-to-jonah-quotbuppersquot-malone-the-handsome-pirate-king)
+- [Margo trying her best to stay awake thru the standoff.](https://news.puppy-snuggles.com/58152388/margo-trying-her-best-to-stay-awake-thru-the-standoff)
+- [He figured out a way to get up onto the big chair](https://news.puppy-snuggles.com/50965255/he-figured-out-a-way-to-get-up-onto-the-big-chair)
+- [Puppy killed and owners injured in South Yorkshire dog attacks](https://news.puppy-snuggles.com/46474682/puppy-killed-and-owners-injured-in-south-yorkshire-dog-attacks)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
