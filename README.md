@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A few bags ago I posted pics of our dog Kid and new puppy Waylon, here’s an update on them :&rpar;](https://news.puppy-snuggles.com/82344316/a-few-bags-ago-i-posted-pics-of-our-dog-kid-and-new-puppy-waylon-heres-an-update-on-them)
-- [Appreciation post for my best friend](https://news.puppy-snuggles.com/79029218/appreciation-post-for-my-best-friend)
-- [Guess the breed of my dog](https://news.puppy-snuggles.com/75774128/guess-the-breed-of-my-dog)
-- [Say hello to my photogenic baby🐶🐶🐶](https://news.puppy-snuggles.com/74974844/say-hello-to-my-photogenic-baby)
-- [I tried so hard to get my greyhound Buddy another greyhound friend but he fell for the pregnant dog my neighbor fostered.](https://news.puppy-snuggles.com/74974838/i-tried-so-hard-to-get-my-greyhound-buddy-another-greyhound-friend-but-he-fell-for-the-pregnant-dog-my-neighbor-fostered)
+- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
+- [My GF thinks my dog looks weird&lpar;lovingly&rpar; I don’t think he looks strange, need opinions. His name is Root Beer](https://news.puppy-snuggles.com/82480472/my-gf-thinks-my-dog-looks-weirdlovingly-i-dont-think-he-looks-strange-need-opinions-his-name-is-root-beer)
+- [My new baby boy!](https://news.puppy-snuggles.com/82480481/my-new-baby-boy)
+- [&amp;quot;Look Daddy, I got a huge one&amp;quot;](https://news.puppy-snuggles.com/82480473/look-daddy-i-got-a-huge-one)
+- [I had my buddy, Dipstick, from 9 days old to 9 years.](https://news.puppy-snuggles.com/82480479/i-had-my-buddy-dipstick-from-9-days-old-to-9-years)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
