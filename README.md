@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
-- [My GF thinks my dog looks weird&lpar;lovingly&rpar; I don’t think he looks strange, need opinions. His name is Root Beer](https://news.puppy-snuggles.com/82480472/my-gf-thinks-my-dog-looks-weirdlovingly-i-dont-think-he-looks-strange-need-opinions-his-name-is-root-beer)
-- [My new baby boy!](https://news.puppy-snuggles.com/82480481/my-new-baby-boy)
-- [&amp;quot;Look Daddy, I got a huge one&amp;quot;](https://news.puppy-snuggles.com/82480473/look-daddy-i-got-a-huge-one)
-- [I had my buddy, Dipstick, from 9 days old to 9 years.](https://news.puppy-snuggles.com/82480479/i-had-my-buddy-dipstick-from-9-days-old-to-9-years)
+- [He&amp;#039;s still a lap dog!](https://news.puppy-snuggles.com/82344319/hes-still-a-lap-dog)
+- [The MIGHTY Chloe, Destroyer of All Worlds!!](https://news.puppy-snuggles.com/76149234/the-mighty-chloe-destroyer-of-all-worlds)
+- [Dolores enjoyed her day exploring campus!](https://news.puppy-snuggles.com/72486651/dolores-enjoyed-her-day-exploring-campus)
+- [Good morning!](https://news.puppy-snuggles.com/65299160/good-morning)
+- [My 2 year old dog stole a kitten and I don&amp;#039;t know what to do.](https://news.puppy-snuggles.com/64578725/my-2-year-old-dog-stole-a-kitten-and-i-dont-know-what-to-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
