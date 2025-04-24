@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s still a lap dog!](https://news.puppy-snuggles.com/82344319/hes-still-a-lap-dog)
-- [The MIGHTY Chloe, Destroyer of All Worlds!!](https://news.puppy-snuggles.com/76149234/the-mighty-chloe-destroyer-of-all-worlds)
-- [Dolores enjoyed her day exploring campus!](https://news.puppy-snuggles.com/72486651/dolores-enjoyed-her-day-exploring-campus)
-- [Good morning!](https://news.puppy-snuggles.com/65299160/good-morning)
-- [My 2 year old dog stole a kitten and I don&amp;#039;t know what to do.](https://news.puppy-snuggles.com/64578725/my-2-year-old-dog-stole-a-kitten-and-i-dont-know-what-to-do)
+- [three rescue dogs traveling peacefully on a plane](https://news.puppy-snuggles.com/69042277/three-rescue-dogs-traveling-peacefully-on-a-plane)
+- [i love my dogs they are the only thing keeping me alive.](https://news.puppy-snuggles.com/65649198/i-love-my-dogs-they-are-the-only-thing-keeping-me-alive)
+- [Sadie is 5 years old today](https://news.puppy-snuggles.com/59215157/sadie-is-5-years-old-today)
+- [Where do I sleep](https://news.puppy-snuggles.com/56485162/where-do-i-sleep)
+- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
