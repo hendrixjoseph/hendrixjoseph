@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [three rescue dogs traveling peacefully on a plane](https://news.puppy-snuggles.com/69042277/three-rescue-dogs-traveling-peacefully-on-a-plane)
-- [i love my dogs they are the only thing keeping me alive.](https://news.puppy-snuggles.com/65649198/i-love-my-dogs-they-are-the-only-thing-keeping-me-alive)
-- [Sadie is 5 years old today](https://news.puppy-snuggles.com/59215157/sadie-is-5-years-old-today)
-- [Where do I sleep](https://news.puppy-snuggles.com/56485162/where-do-i-sleep)
-- [Happy birthday to my boy Coops](https://news.puppy-snuggles.com/48918342/happy-birthday-to-my-boy-coops)
+- [I love this girl.](https://news.puppy-snuggles.com/80311240/i-love-this-girl)
+- [DNA sample is out for testing... Step right up and make your guesses now, folks!](https://news.puppy-snuggles.com/75681621/dna-sample-is-out-for-testing-step-right-up-and-make-your-guesses-now-folks)
+- [A love that has stood the test of time: the unbreakable bond with my old friend. Every white hair is a precious memory of a life together. This is a smile worth more than a thousand words, old friend of mine!](https://news.puppy-snuggles.com/57185916/a-love-that-has-stood-the-test-of-time-the-unbreakable-bond-with-my-old-friend-every-white-hair-is-a-precious-memory-of-a-life-together-this-is-a-smile-worth-more-than-a-thousand-words-old-friend-of-mine)
+- [Bought her a chain, now she&amp;#039;s mean muggin me](https://news.puppy-snuggles.com/49443276/bought-her-a-chain-now-shes-mean-muggin-me)
+- [poor retriever](https://news.puppy-snuggles.com/23323514/poor-retriever)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
