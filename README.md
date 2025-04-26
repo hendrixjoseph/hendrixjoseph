@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I love this girl.](https://news.puppy-snuggles.com/80311240/i-love-this-girl)
-- [DNA sample is out for testing... Step right up and make your guesses now, folks!](https://news.puppy-snuggles.com/75681621/dna-sample-is-out-for-testing-step-right-up-and-make-your-guesses-now-folks)
-- [A love that has stood the test of time: the unbreakable bond with my old friend. Every white hair is a precious memory of a life together. This is a smile worth more than a thousand words, old friend of mine!](https://news.puppy-snuggles.com/57185916/a-love-that-has-stood-the-test-of-time-the-unbreakable-bond-with-my-old-friend-every-white-hair-is-a-precious-memory-of-a-life-together-this-is-a-smile-worth-more-than-a-thousand-words-old-friend-of-mine)
-- [Bought her a chain, now she&amp;#039;s mean muggin me](https://news.puppy-snuggles.com/49443276/bought-her-a-chain-now-shes-mean-muggin-me)
-- [poor retriever](https://news.puppy-snuggles.com/23323514/poor-retriever)
+- [I really miss my buddy.](https://news.puppy-snuggles.com/73324666/i-really-miss-my-buddy)
+- [Laïka has always the face of trying to tell a joke but can&amp;#039;t stop laughing](https://news.puppy-snuggles.com/64437883/laika-has-always-the-face-of-trying-to-tell-a-joke-but-cant-stop-laughing)
+- [The boss is happy, no one is in danger](https://news.puppy-snuggles.com/61325175/the-boss-is-happy-no-one-is-in-danger)
+- [Post your dogs who think they’re people!](https://news.puppy-snuggles.com/60336531/post-your-dogs-who-think-theyre-people)
+- [My best friend went over the rainbow bridge a week ago and I haven’t stopped crying since. Had her for 15 years, since I was 22.](https://news.puppy-snuggles.com/29003833/my-best-friend-went-over-the-rainbow-bridge-a-week-ago-and-i-havent-stopped-crying-since-had-her-for-15-years-since-i-was-22)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
