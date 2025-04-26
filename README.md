@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily FI discussion thread - Friday, April 25, 2025](https://www.reddit.com/r/financialindependence/comments/1k7gde6/daily_fi_discussion_thread_friday_april_25_2025/mp0y8bn/)
+- [/u/joehx on Daily FI discussion thread - Friday, April 25, 2025](https://www.reddit.com/r/financialindependence/comments/1k7gde6/daily_fi_discussion_thread_friday_april_25_2025/mp0qc8w/)
 - [/u/joehx on Do I have to pay taxes for $1.39 in bitcoin on Cash App?](https://www.reddit.com/r/povertyfinance/comments/1jxxpad/do_i_have_to_pay_taxes_for_139_in_bitcoin_on_cash/mmu63zp/)
 - [/u/joehx on Do I have to pay taxes for $1.39 in bitcoin on Cash App?](https://www.reddit.com/r/povertyfinance/comments/1jxxpad/do_i_have_to_pay_taxes_for_139_in_bitcoin_on_cash/mmu4tsd/)
 - [/u/joehx on Here&#39;s a weird quirk about arrays in method headers.](https://www.reddit.com/r/java/comments/1jwaqjm/heres_a_weird_quirk_about_arrays_in_method_headers/mml2wwn/)
-- [/u/joehx on I’m not going to give out my social security number unless hired. Hell no to this trend.](https://www.reddit.com/r/recruitinghell/comments/1jpl2da/im_not_going_to_give_out_my_social_security/ml3z1k6/)
-- [/u/joehx on What is your thoughts on a 52 year old man with a 32 year old woman?](https://www.reddit.com/r/AskMen/comments/1jk06mj/what_is_your_thoughts_on_a_52_year_old_man_with_a/mjrs5jw/)
 <!-- REDDIT:END -->
