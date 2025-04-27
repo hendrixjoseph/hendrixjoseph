@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I really miss my buddy.](https://news.puppy-snuggles.com/73324666/i-really-miss-my-buddy)
-- [Laïka has always the face of trying to tell a joke but can&amp;#039;t stop laughing](https://news.puppy-snuggles.com/64437883/laika-has-always-the-face-of-trying-to-tell-a-joke-but-cant-stop-laughing)
-- [The boss is happy, no one is in danger](https://news.puppy-snuggles.com/61325175/the-boss-is-happy-no-one-is-in-danger)
-- [Post your dogs who think they’re people!](https://news.puppy-snuggles.com/60336531/post-your-dogs-who-think-theyre-people)
-- [My best friend went over the rainbow bridge a week ago and I haven’t stopped crying since. Had her for 15 years, since I was 22.](https://news.puppy-snuggles.com/29003833/my-best-friend-went-over-the-rainbow-bridge-a-week-ago-and-i-havent-stopped-crying-since-had-her-for-15-years-since-i-was-22)
+- [Is it okay for my dog to just chill in his crate with the door open out of his own will?](https://news.puppy-snuggles.com/80843057/is-it-okay-for-my-dog-to-just-chill-in-his-crate-with-the-door-open-out-of-his-own-will)
+- [Just felt like showing off my cuddly little guy Buster a bit](https://news.puppy-snuggles.com/79131178/just-felt-like-showing-off-my-cuddly-little-guy-buster-a-bit)
+- [A dirty dog is a happy dog! Show me your mucky pups](https://news.puppy-snuggles.com/73987944/a-dirty-dog-is-a-happy-dog-show-me-your-mucky-pups)
+- [A Sunset Walk With My Goldens](https://news.puppy-snuggles.com/71631240/a-sunset-walk-with-my-goldens)
+- [Show me your dogs !! I’ll draw them &amp;lt;3](https://news.puppy-snuggles.com/71199091/show-me-your-dogs-ill-draw-them-3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
