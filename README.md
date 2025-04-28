@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is it okay for my dog to just chill in his crate with the door open out of his own will?](https://news.puppy-snuggles.com/80843057/is-it-okay-for-my-dog-to-just-chill-in-his-crate-with-the-door-open-out-of-his-own-will)
-- [Just felt like showing off my cuddly little guy Buster a bit](https://news.puppy-snuggles.com/79131178/just-felt-like-showing-off-my-cuddly-little-guy-buster-a-bit)
-- [A dirty dog is a happy dog! Show me your mucky pups](https://news.puppy-snuggles.com/73987944/a-dirty-dog-is-a-happy-dog-show-me-your-mucky-pups)
-- [A Sunset Walk With My Goldens](https://news.puppy-snuggles.com/71631240/a-sunset-walk-with-my-goldens)
-- [Show me your dogs !! I’ll draw them &amp;lt;3](https://news.puppy-snuggles.com/71199091/show-me-your-dogs-ill-draw-them-3)
+- [Me and my fiancés stray rescue Junkyard! He’s the friendliest dog I’ve ever met and he’s goofy to boot](https://news.puppy-snuggles.com/82985868/me-and-my-fiances-stray-rescue-junkyard-hes-the-friendliest-dog-ive-ever-met-and-hes-goofy-to-boot)
+- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
+- [Ham’s last day on this Earth. RIP Maximus aka Ham 2014-2025 you will be missed bud.](https://news.puppy-snuggles.com/82584578/hams-last-day-on-this-earth-rip-maximus-aka-ham-2014-2025-you-will-be-missed-bud)
+- [What would you name him?](https://news.puppy-snuggles.com/81151366/what-would-you-name-him)
+- [My SIL gave CBD chews for dogs to our little one. Not sure what’s this face mean…](https://news.puppy-snuggles.com/78611398/my-sil-gave-cbd-chews-for-dogs-to-our-little-one-not-sure-whats-this-face-mean)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
