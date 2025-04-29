@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Me and my fiancés stray rescue Junkyard! He’s the friendliest dog I’ve ever met and he’s goofy to boot](https://news.puppy-snuggles.com/82985868/me-and-my-fiances-stray-rescue-junkyard-hes-the-friendliest-dog-ive-ever-met-and-hes-goofy-to-boot)
-- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
-- [Ham’s last day on this Earth. RIP Maximus aka Ham 2014-2025 you will be missed bud.](https://news.puppy-snuggles.com/82584578/hams-last-day-on-this-earth-rip-maximus-aka-ham-2014-2025-you-will-be-missed-bud)
-- [What would you name him?](https://news.puppy-snuggles.com/81151366/what-would-you-name-him)
-- [My SIL gave CBD chews for dogs to our little one. Not sure what’s this face mean…](https://news.puppy-snuggles.com/78611398/my-sil-gave-cbd-chews-for-dogs-to-our-little-one-not-sure-whats-this-face-mean)
+- [Just felt like showing off my cuddly little guy Buster a bit](https://news.puppy-snuggles.com/79131178/just-felt-like-showing-off-my-cuddly-little-guy-buster-a-bit)
+- [Had to put my girl Toba down today. :&lpar;](https://news.puppy-snuggles.com/72528947/had-to-put-my-girl-toba-down-today)
+- [My wife&amp;#039;s a vet and here are some of my favorite dogs she&amp;#039;s sent me.](https://news.puppy-snuggles.com/70194582/my-wifes-a-vet-and-here-are-some-of-my-favorite-dogs-shes-sent-me)
+- [dont go to work](https://news.puppy-snuggles.com/68739211/dont-go-to-work)
+- [Brought home a 6 month old puggle from the shelter 😍](https://news.puppy-snuggles.com/67114244/brought-home-a-6-month-old-puggle-from-the-shelter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
