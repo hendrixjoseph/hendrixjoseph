@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just felt like showing off my cuddly little guy Buster a bit](https://news.puppy-snuggles.com/79131178/just-felt-like-showing-off-my-cuddly-little-guy-buster-a-bit)
-- [Had to put my girl Toba down today. :&lpar;](https://news.puppy-snuggles.com/72528947/had-to-put-my-girl-toba-down-today)
-- [My wife&amp;#039;s a vet and here are some of my favorite dogs she&amp;#039;s sent me.](https://news.puppy-snuggles.com/70194582/my-wifes-a-vet-and-here-are-some-of-my-favorite-dogs-shes-sent-me)
-- [dont go to work](https://news.puppy-snuggles.com/68739211/dont-go-to-work)
-- [Brought home a 6 month old puggle from the shelter 😍](https://news.puppy-snuggles.com/67114244/brought-home-a-6-month-old-puggle-from-the-shelter)
+- [Ringo wishing everyone a great upcoming week!](https://news.puppy-snuggles.com/80213187/ringo-wishing-everyone-a-great-upcoming-week)
+- [My dog Rosie When I came back from a trip](https://news.puppy-snuggles.com/75774135/my-dog-rosie-when-i-came-back-from-a-trip)
+- [Lokie’s the happiest when he is with Cloud and Chloe](https://news.puppy-snuggles.com/75712964/lokies-the-happiest-when-he-is-with-cloud-and-chloe)
+- [Dog owner walks his disabled dog in the park every day, think this is heartwarming](https://news.puppy-snuggles.com/64099511/dog-owner-walks-his-disabled-dog-in-the-park-every-day-think-this-is-heartwarming)
+- [Adopting this little guy this week. What to name him?](https://news.puppy-snuggles.com/60009374/adopting-this-little-guy-this-week-what-to-name-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
