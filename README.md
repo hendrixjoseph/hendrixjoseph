@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ringo wishing everyone a great upcoming week!](https://news.puppy-snuggles.com/80213187/ringo-wishing-everyone-a-great-upcoming-week)
-- [My dog Rosie When I came back from a trip](https://news.puppy-snuggles.com/75774135/my-dog-rosie-when-i-came-back-from-a-trip)
-- [Lokie’s the happiest when he is with Cloud and Chloe](https://news.puppy-snuggles.com/75712964/lokies-the-happiest-when-he-is-with-cloud-and-chloe)
-- [Dog owner walks his disabled dog in the park every day, think this is heartwarming](https://news.puppy-snuggles.com/64099511/dog-owner-walks-his-disabled-dog-in-the-park-every-day-think-this-is-heartwarming)
-- [Adopting this little guy this week. What to name him?](https://news.puppy-snuggles.com/60009374/adopting-this-little-guy-this-week-what-to-name-him)
+- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
+- [Goodbye, Thor. You will always be the absolute goodest of boys.](https://news.puppy-snuggles.com/70660764/goodbye-thor-you-will-always-be-the-absolute-goodest-of-boys)
+- [I wanted to pee in peace this morning so I shut the door while my poor neglected dog was left to rot by herself for a whole 2 minutes, I don’t know if she will be able to recover from this.](https://news.puppy-snuggles.com/65356923/i-wanted-to-pee-in-peace-this-morning-so-i-shut-the-door-while-my-poor-neglected-dog-was-left-to-rot-by-herself-for-a-whole-2-minutes-i-dont-know-if-she-will-be-able-to-recover-from-this)
+- [My usually troublesome pup saved me and her brother last night](https://news.puppy-snuggles.com/60864236/my-usually-troublesome-pup-saved-me-and-her-brother-last-night)
+- [Completely overwhelmed happy thanks for all the nice comments and appreciation for Tobi thx from us ❤️](https://news.puppy-snuggles.com/58872321/completely-overwhelmed-happy-thanks-for-all-the-nice-comments-and-appreciation-for-tobi-thx-from-us)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
