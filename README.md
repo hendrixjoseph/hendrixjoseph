@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
-- [Goodbye, Thor. You will always be the absolute goodest of boys.](https://news.puppy-snuggles.com/70660764/goodbye-thor-you-will-always-be-the-absolute-goodest-of-boys)
-- [I wanted to pee in peace this morning so I shut the door while my poor neglected dog was left to rot by herself for a whole 2 minutes, I don’t know if she will be able to recover from this.](https://news.puppy-snuggles.com/65356923/i-wanted-to-pee-in-peace-this-morning-so-i-shut-the-door-while-my-poor-neglected-dog-was-left-to-rot-by-herself-for-a-whole-2-minutes-i-dont-know-if-she-will-be-able-to-recover-from-this)
-- [My usually troublesome pup saved me and her brother last night](https://news.puppy-snuggles.com/60864236/my-usually-troublesome-pup-saved-me-and-her-brother-last-night)
-- [Completely overwhelmed happy thanks for all the nice comments and appreciation for Tobi thx from us ❤️](https://news.puppy-snuggles.com/58872321/completely-overwhelmed-happy-thanks-for-all-the-nice-comments-and-appreciation-for-tobi-thx-from-us)
+- [Pepperoni letting us know it&amp;#039;s dinner time.](https://news.puppy-snuggles.com/83091229/pepperoni-letting-us-know-its-dinner-time)
+- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
+- [My sweet rescue dog, Mila, who came all the way from Croatia to the U.K.](https://news.puppy-snuggles.com/64498650/my-sweet-rescue-dog-mila-who-came-all-the-way-from-croatia-to-the-uk)
+- [I had to say goodbye to my sweet Tucker this morning after 15 good years with him. It&amp;#039;s never easy](https://news.puppy-snuggles.com/62713471/i-had-to-say-goodbye-to-my-sweet-tucker-this-morning-after-15-good-years-with-him-its-never-easy)
+- [Show your goofy perfect-timed photos of your dog](https://news.puppy-snuggles.com/62436478/show-your-goofy-perfect-timed-photos-of-your-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
