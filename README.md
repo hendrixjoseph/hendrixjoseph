@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pepperoni letting us know it&amp;#039;s dinner time.](https://news.puppy-snuggles.com/83091229/pepperoni-letting-us-know-its-dinner-time)
-- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
-- [My sweet rescue dog, Mila, who came all the way from Croatia to the U.K.](https://news.puppy-snuggles.com/64498650/my-sweet-rescue-dog-mila-who-came-all-the-way-from-croatia-to-the-uk)
-- [I had to say goodbye to my sweet Tucker this morning after 15 good years with him. It&amp;#039;s never easy](https://news.puppy-snuggles.com/62713471/i-had-to-say-goodbye-to-my-sweet-tucker-this-morning-after-15-good-years-with-him-its-never-easy)
-- [Show your goofy perfect-timed photos of your dog](https://news.puppy-snuggles.com/62436478/show-your-goofy-perfect-timed-photos-of-your-dog)
+- [My wife and I have 6 high energy working dogs, AMA](https://news.puppy-snuggles.com/83509368/my-wife-and-i-have-6-high-energy-working-dogs-ama)
+- [Amber loves her car rides ♥️](https://news.puppy-snuggles.com/83314632/amber-loves-her-car-rides)
+- [I can&amp;#039;t read](https://news.puppy-snuggles.com/82886386/i-cant-read)
+- [My rescued dog - Molly aka the cutest doggo](https://news.puppy-snuggles.com/81934017/my-rescued-dog-molly-aka-the-cutest-doggo)
+- [My Chill Guy😏😛](https://news.puppy-snuggles.com/81760586/my-chill-guy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
