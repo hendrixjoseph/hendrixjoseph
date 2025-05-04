@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My wife and I have 6 high energy working dogs, AMA](https://news.puppy-snuggles.com/83509368/my-wife-and-i-have-6-high-energy-working-dogs-ama)
-- [Amber loves her car rides ♥️](https://news.puppy-snuggles.com/83314632/amber-loves-her-car-rides)
-- [I can&amp;#039;t read](https://news.puppy-snuggles.com/82886386/i-cant-read)
-- [My rescued dog - Molly aka the cutest doggo](https://news.puppy-snuggles.com/81934017/my-rescued-dog-molly-aka-the-cutest-doggo)
-- [My Chill Guy😏😛](https://news.puppy-snuggles.com/81760586/my-chill-guy)
+- [Ruby turned 5 on May 1 🎉](https://news.puppy-snuggles.com/83577208/ruby-turned-5-on-may-1)
+- [lost my baby a little while ago.](https://news.puppy-snuggles.com/80983256/lost-my-baby-a-little-while-ago)
+- [Rest in peace my sweet boy. Thank you for being there for me when I most needed you](https://news.puppy-snuggles.com/57609070/rest-in-peace-my-sweet-boy-thank-you-for-being-there-for-me-when-i-most-needed-you)
+- [Adopted this little girl today from the shelter! What should we name her?](https://news.puppy-snuggles.com/49946734/adopted-this-little-girl-today-from-the-shelter-what-should-we-name-her)
+- [BALL!!](https://news.puppy-snuggles.com/31525754/ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
