@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ruby turned 5 on May 1 🎉](https://news.puppy-snuggles.com/83577208/ruby-turned-5-on-may-1)
-- [lost my baby a little while ago.](https://news.puppy-snuggles.com/80983256/lost-my-baby-a-little-while-ago)
-- [Rest in peace my sweet boy. Thank you for being there for me when I most needed you](https://news.puppy-snuggles.com/57609070/rest-in-peace-my-sweet-boy-thank-you-for-being-there-for-me-when-i-most-needed-you)
-- [Adopted this little girl today from the shelter! What should we name her?](https://news.puppy-snuggles.com/49946734/adopted-this-little-girl-today-from-the-shelter-what-should-we-name-her)
-- [BALL!!](https://news.puppy-snuggles.com/31525754/ball)
+- [Amber loves her car rides ♥️](https://news.puppy-snuggles.com/83314632/amber-loves-her-car-rides)
+- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
+- [Lost my best buddy Winston last week](https://news.puppy-snuggles.com/69686824/lost-my-best-buddy-winston-last-week)
+- [Pictures doggy daycare sends me 🥰](https://news.puppy-snuggles.com/63604664/pictures-doggy-daycare-sends-me)
+- [Rest in peace Noah, you were always a good boy 😭](https://news.puppy-snuggles.com/57901561/rest-in-peace-noah-you-were-always-a-good-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
