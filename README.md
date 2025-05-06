@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Amber loves her car rides ♥️](https://news.puppy-snuggles.com/83314632/amber-loves-her-car-rides)
-- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
-- [Lost my best buddy Winston last week](https://news.puppy-snuggles.com/69686824/lost-my-best-buddy-winston-last-week)
-- [Pictures doggy daycare sends me 🥰](https://news.puppy-snuggles.com/63604664/pictures-doggy-daycare-sends-me)
-- [Rest in peace Noah, you were always a good boy 😭](https://news.puppy-snuggles.com/57901561/rest-in-peace-noah-you-were-always-a-good-boy)
+- [Goose! Just busted him out of the shelter. Welcome home](https://news.puppy-snuggles.com/83934468/goose-just-busted-him-out-of-the-shelter-welcome-home)
+- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
+- [Musuko, smiling with all his heart &lpar;and both ears… almost&rpar;](https://news.puppy-snuggles.com/83934465/musuko-smiling-with-all-his-heart-and-both-ears-almost)
+- [It’s my baby’s first birthday today!](https://news.puppy-snuggles.com/83934473/its-my-babys-first-birthday-today)
+- [First baby toofie I’ve found!](https://news.puppy-snuggles.com/83934471/first-baby-toofie-ive-found)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
