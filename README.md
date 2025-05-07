@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goose! Just busted him out of the shelter. Welcome home](https://news.puppy-snuggles.com/83934468/goose-just-busted-him-out-of-the-shelter-welcome-home)
-- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
-- [Musuko, smiling with all his heart &lpar;and both ears… almost&rpar;](https://news.puppy-snuggles.com/83934465/musuko-smiling-with-all-his-heart-and-both-ears-almost)
-- [It’s my baby’s first birthday today!](https://news.puppy-snuggles.com/83934473/its-my-babys-first-birthday-today)
-- [First baby toofie I’ve found!](https://news.puppy-snuggles.com/83934471/first-baby-toofie-ive-found)
+- [Doggy Doodles](https://news.puppy-snuggles.com/79552339/doggy-doodles)
+- [Post surgery recovery. Donut instead of the cone of shame](https://news.puppy-snuggles.com/75804552/post-surgery-recovery-donut-instead-of-the-cone-of-shame)
+- [This video made me cry, how do you deal with your puppy&amp;#039;s growth? I listen to your testimonies](https://news.puppy-snuggles.com/55363929/this-video-made-me-cry-how-do-you-deal-with-your-puppys-growth-i-listen-to-your-testimonies)
+- [Volume up for this Black Labrador](https://news.puppy-snuggles.com/54403812/volume-up-for-this-black-labrador)
+- [Reality about nail trimming](https://news.puppy-snuggles.com/54358745/reality-about-nail-trimming)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
