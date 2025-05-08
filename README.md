@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Doggy Doodles](https://news.puppy-snuggles.com/79552339/doggy-doodles)
-- [Post surgery recovery. Donut instead of the cone of shame](https://news.puppy-snuggles.com/75804552/post-surgery-recovery-donut-instead-of-the-cone-of-shame)
-- [This video made me cry, how do you deal with your puppy&amp;#039;s growth? I listen to your testimonies](https://news.puppy-snuggles.com/55363929/this-video-made-me-cry-how-do-you-deal-with-your-puppys-growth-i-listen-to-your-testimonies)
-- [Volume up for this Black Labrador](https://news.puppy-snuggles.com/54403812/volume-up-for-this-black-labrador)
-- [Reality about nail trimming](https://news.puppy-snuggles.com/54358745/reality-about-nail-trimming)
+- [My second adoption turned one! Happy birthday Enzo sorry for the bath &lpar;he was in the pond before the second pic&rpar;](https://news.puppy-snuggles.com/83542413/my-second-adoption-turned-one-happy-birthday-enzo-sorry-for-the-bath-he-was-in-the-pond-before-the-second-pic)
+- [I can&amp;#039;t read](https://news.puppy-snuggles.com/82886386/i-cant-read)
+- [Picture of today](https://news.puppy-snuggles.com/81517211/picture-of-today)
+- [I miss you, Nike](https://news.puppy-snuggles.com/81015302/i-miss-you-nike)
+- [Meet Coco](https://news.puppy-snuggles.com/79348567/meet-coco)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
