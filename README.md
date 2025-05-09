@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My second adoption turned one! Happy birthday Enzo sorry for the bath &lpar;he was in the pond before the second pic&rpar;](https://news.puppy-snuggles.com/83542413/my-second-adoption-turned-one-happy-birthday-enzo-sorry-for-the-bath-he-was-in-the-pond-before-the-second-pic)
-- [I can&amp;#039;t read](https://news.puppy-snuggles.com/82886386/i-cant-read)
-- [Picture of today](https://news.puppy-snuggles.com/81517211/picture-of-today)
-- [I miss you, Nike](https://news.puppy-snuggles.com/81015302/i-miss-you-nike)
-- [Meet Coco](https://news.puppy-snuggles.com/79348567/meet-coco)
+- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
+- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
+- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
+- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
+- [She let me have the picture, then immediately shit in the leaves.](https://news.puppy-snuggles.com/84194942/she-let-me-have-the-picture-then-immediately-shit-in-the-leaves)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
