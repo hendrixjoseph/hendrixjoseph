@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
-- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
-- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
-- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
-- [She let me have the picture, then immediately shit in the leaves.](https://news.puppy-snuggles.com/84194942/she-let-me-have-the-picture-then-immediately-shit-in-the-leaves)
+- [Adorable Puppy Gets Kisses!!](https://news.puppy-snuggles.com/51862030/adorable-puppy-gets-kisses)
+- [This doesn’t happen very often! 🤣](https://news.puppy-snuggles.com/50577386/this-doesnt-happen-very-often)
+- [My 14 year old border collie jumped on my bed for the first time in years today :&rpar;](https://news.puppy-snuggles.com/49016065/my-14-year-old-border-collie-jumped-on-my-bed-for-the-first-time-in-years-today)
+- [the assistant is growing up](https://news.puppy-snuggles.com/46818024/the-assistant-is-growing-up)
+- [The kangaroo seems impressed by the dog.](https://news.puppy-snuggles.com/42271317/the-kangaroo-seems-impressed-by-the-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
