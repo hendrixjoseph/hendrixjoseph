@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adorable Puppy Gets Kisses!!](https://news.puppy-snuggles.com/51862030/adorable-puppy-gets-kisses)
-- [This doesn’t happen very often! 🤣](https://news.puppy-snuggles.com/50577386/this-doesnt-happen-very-often)
-- [My 14 year old border collie jumped on my bed for the first time in years today :&rpar;](https://news.puppy-snuggles.com/49016065/my-14-year-old-border-collie-jumped-on-my-bed-for-the-first-time-in-years-today)
-- [the assistant is growing up](https://news.puppy-snuggles.com/46818024/the-assistant-is-growing-up)
-- [The kangaroo seems impressed by the dog.](https://news.puppy-snuggles.com/42271317/the-kangaroo-seems-impressed-by-the-dog)
+- [This is sushi 💗](https://news.puppy-snuggles.com/74130333/this-is-sushi)
+- [First and last walk together. You&amp;#039;ll be missed, love](https://news.puppy-snuggles.com/54358748/first-and-last-walk-together-youll-be-missed-love)
+- [I congratulate the parents for raising such a sweet, good-hearted daughter](https://news.puppy-snuggles.com/54229534/i-congratulate-the-parents-for-raising-such-a-sweet-good-hearted-daughter)
+- [Scooby’s first snow! Show pictures of your dog playing in the snow!](https://news.puppy-snuggles.com/49225634/scoobys-first-snow-show-pictures-of-your-dog-playing-in-the-snow)
+- [I keep up with trends ;&rpar;](https://news.puppy-snuggles.com/46144365/i-keep-up-with-trends)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
