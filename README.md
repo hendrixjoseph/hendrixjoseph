@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is sushi 💗](https://news.puppy-snuggles.com/74130333/this-is-sushi)
-- [First and last walk together. You&amp;#039;ll be missed, love](https://news.puppy-snuggles.com/54358748/first-and-last-walk-together-youll-be-missed-love)
-- [I congratulate the parents for raising such a sweet, good-hearted daughter](https://news.puppy-snuggles.com/54229534/i-congratulate-the-parents-for-raising-such-a-sweet-good-hearted-daughter)
-- [Scooby’s first snow! Show pictures of your dog playing in the snow!](https://news.puppy-snuggles.com/49225634/scoobys-first-snow-show-pictures-of-your-dog-playing-in-the-snow)
-- [I keep up with trends ;&rpar;](https://news.puppy-snuggles.com/46144365/i-keep-up-with-trends)
+- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
+- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
+- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
+- [She let me have the picture, then immediately shit in the leaves.](https://news.puppy-snuggles.com/84194942/she-let-me-have-the-picture-then-immediately-shit-in-the-leaves)
+- [Dog sitting for my uncle and this little girl loves scratches 🥹](https://news.puppy-snuggles.com/78507606/dog-sitting-for-my-uncle-and-this-little-girl-loves-scratches)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
