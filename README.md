@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
-- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
 - [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
-- [She let me have the picture, then immediately shit in the leaves.](https://news.puppy-snuggles.com/84194942/she-let-me-have-the-picture-then-immediately-shit-in-the-leaves)
-- [Dog sitting for my uncle and this little girl loves scratches 🥹](https://news.puppy-snuggles.com/78507606/dog-sitting-for-my-uncle-and-this-little-girl-loves-scratches)
+- [Smile…Tomorrow is Friday! 😃](https://news.puppy-snuggles.com/82787656/smiletomorrow-is-friday)
+- [Who was supposed to pick him up because I’m crying](https://news.puppy-snuggles.com/77980544/who-was-supposed-to-pick-him-up-because-im-crying)
+- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
