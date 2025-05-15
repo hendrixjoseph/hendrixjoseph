@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Squishy](https://news.puppy-snuggles.com/83817998/squishy)
-- [After almost 13 years our buddy passed away today.](https://news.puppy-snuggles.com/80311235/after-almost-13-years-our-buddy-passed-away-today)
-- [Can you share pics of your rainbow pups? I want to see who she is playing with up there!](https://news.puppy-snuggles.com/77111241/can-you-share-pics-of-your-rainbow-pups-i-want-to-see-who-she-is-playing-with-up-there)
-- [Another awkward night with my dog](https://news.puppy-snuggles.com/76327870/another-awkward-night-with-my-dog)
-- [Chewy sent us flowers for our dog that recently passed away](https://news.puppy-snuggles.com/67995923/chewy-sent-us-flowers-for-our-dog-that-recently-passed-away)
+- [He’s such a pretty boy](https://news.puppy-snuggles.com/84471329/hes-such-a-pretty-boy)
+- [My boy’s taste in music is his state of mind.](https://news.puppy-snuggles.com/83895011/my-boys-taste-in-music-is-his-state-of-mind)
+- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
+- [I just love my dog so much he&amp;#039;s literally my baby](https://news.puppy-snuggles.com/78299670/i-just-love-my-dog-so-much-hes-literally-my-baby)
+- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
