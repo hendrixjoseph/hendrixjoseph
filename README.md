@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He’s such a pretty boy](https://news.puppy-snuggles.com/84471329/hes-such-a-pretty-boy)
-- [My boy’s taste in music is his state of mind.](https://news.puppy-snuggles.com/83895011/my-boys-taste-in-music-is-his-state-of-mind)
-- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
-- [I just love my dog so much he&amp;#039;s literally my baby](https://news.puppy-snuggles.com/78299670/i-just-love-my-dog-so-much-hes-literally-my-baby)
-- [I want to share a success story](https://news.puppy-snuggles.com/71418276/i-want-to-share-a-success-story)
+- [She was my baby girl, passed away in December I miss her so much](https://news.puppy-snuggles.com/50472109/she-was-my-baby-girl-passed-away-in-december-i-miss-her-so-much)
+- [The same marks my tire chains leave behind.](https://news.puppy-snuggles.com/46104116/the-same-marks-my-tire-chains-leave-behind)
+- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
+- [My old guy](https://news.puppy-snuggles.com/24046791/my-old-guy)
+- [old man looking dapper](https://news.puppy-snuggles.com/23336184/old-man-looking-dapper)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
