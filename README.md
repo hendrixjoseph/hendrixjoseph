@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on My Life&#39;s Frugal and Cheap Confessions.](https://www.reddit.com/r/Frugal/comments/1kn4065/my_lifes_frugal_and_cheap_confessions/msfwcgh/)
 - [/u/joehx on My employer wants all managers to push the initiative that all entry and mid level engineers be expected to produce at least double the output due to AI tools. How do you entry and mid level software engineers feel about this? Are you struggling still to produce despite all the AI tools to produce?](https://www.reddit.com/r/cscareerquestions/comments/1kmjia3/my_employer_wants_all_managers_to_push_the/msb4d9s/)
 - [/u/joehx on Ohio University will close all diversity, equity and inclusion offices in response to Ohio’s new higher ed law](https://www.reddit.com/r/Columbus/comments/1katc17/ohio_university_will_close_all_diversity_equity/mpq3i14/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 25, 2025](https://www.reddit.com/r/financialindependence/comments/1k7gde6/daily_fi_discussion_thread_friday_april_25_2025/mp0y8bn/)
 - [/u/joehx on Daily FI discussion thread - Friday, April 25, 2025](https://www.reddit.com/r/financialindependence/comments/1k7gde6/daily_fi_discussion_thread_friday_april_25_2025/mp0qc8w/)
-- [/u/joehx on Do I have to pay taxes for $1.39 in bitcoin on Cash App?](https://www.reddit.com/r/povertyfinance/comments/1jxxpad/do_i_have_to_pay_taxes_for_139_in_bitcoin_on_cash/mmu63zp/)
 <!-- REDDIT:END -->
