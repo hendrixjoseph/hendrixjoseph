@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She was my baby girl, passed away in December I miss her so much](https://news.puppy-snuggles.com/50472109/she-was-my-baby-girl-passed-away-in-december-i-miss-her-so-much)
-- [The same marks my tire chains leave behind.](https://news.puppy-snuggles.com/46104116/the-same-marks-my-tire-chains-leave-behind)
-- [My sweet Olive took her last breath yesterday. She was the best girl and lived a great life. I&amp;#039;m having a really tough time with it this morning. Please hug your dogs for me today. Here&amp;#039;s some beautiful pictures of her.](https://news.puppy-snuggles.com/27876806/my-sweet-olive-took-her-last-breath-yesterday-she-was-the-best-girl-and-lived-a-great-life-im-having-a-really-tough-time-with-it-this-morning-please-hug-your-dogs-for-me-today-heres-some-beautiful-pictures-of-her)
-- [My old guy](https://news.puppy-snuggles.com/24046791/my-old-guy)
-- [old man looking dapper](https://news.puppy-snuggles.com/23336184/old-man-looking-dapper)
+- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
+- [He is Aslan🦁](https://news.puppy-snuggles.com/82101756/he-is-aslan)
+- [Kody’s smile!❤️](https://news.puppy-snuggles.com/75992356/kodys-smile)
+- [Jaxson](https://news.puppy-snuggles.com/61602693/jaxson)
+- [Odd smiling is my only way of smiling](https://news.puppy-snuggles.com/58228581/odd-smiling-is-my-only-way-of-smiling)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
