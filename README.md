@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
-- [He is Aslan🦁](https://news.puppy-snuggles.com/82101756/he-is-aslan)
-- [Kody’s smile!❤️](https://news.puppy-snuggles.com/75992356/kodys-smile)
-- [Jaxson](https://news.puppy-snuggles.com/61602693/jaxson)
-- [Odd smiling is my only way of smiling](https://news.puppy-snuggles.com/58228581/odd-smiling-is-my-only-way-of-smiling)
+- [Celebrated Dirk&amp;#039;s birthday a few weeks early.](https://news.puppy-snuggles.com/78856461/celebrated-dirks-birthday-a-few-weeks-early)
+- [Your dog was a model in a past life](https://news.puppy-snuggles.com/66699373/your-dog-was-a-model-in-a-past-life)
+- [my dog just woke me up in the middle of the night](https://news.puppy-snuggles.com/64773835/my-dog-just-woke-me-up-in-the-middle-of-the-night)
+- [My sweet Emma passed away today 🕊️](https://news.puppy-snuggles.com/62117918/my-sweet-emma-passed-away-today)
+- [This little lady just turned 2](https://news.puppy-snuggles.com/51640934/this-little-lady-just-turned-2)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
