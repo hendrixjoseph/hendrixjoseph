@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Celebrated Dirk&amp;#039;s birthday a few weeks early.](https://news.puppy-snuggles.com/78856461/celebrated-dirks-birthday-a-few-weeks-early)
-- [Your dog was a model in a past life](https://news.puppy-snuggles.com/66699373/your-dog-was-a-model-in-a-past-life)
-- [my dog just woke me up in the middle of the night](https://news.puppy-snuggles.com/64773835/my-dog-just-woke-me-up-in-the-middle-of-the-night)
-- [My sweet Emma passed away today 🕊️](https://news.puppy-snuggles.com/62117918/my-sweet-emma-passed-away-today)
-- [This little lady just turned 2](https://news.puppy-snuggles.com/51640934/this-little-lady-just-turned-2)
+- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
+- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
+- [Max is in danger of being pts for space any moment &lpar;04/02 8am&rpar;at Downey ACC, CA. Max&amp;#039;s owners loved him but were forced to surrender him after being kicked by a neighbor&amp;#039;s kid.Max is scared at the shelter &amp;amp; needs a loving, forever home or a foster asap to save his life. Could that be you?](https://news.puppy-snuggles.com/80376061/max-is-in-danger-of-being-pts-for-space-any-moment-0402-8amat-downey-acc-ca-maxs-owners-loved-him-but-were-forced-to-surrender-him-after-being-kicked-by-a-neighbors-kidmax-is-scared-at-the-shelter-needs-a-loving-forever-home-or-a-foster-asap-to-save-his-life-could-that-be-you)
+- [One year ago we lost our sweet Ellie. Only 7 yrs old. So unfair.](https://news.puppy-snuggles.com/75501119/one-year-ago-we-lost-our-sweet-ellie-only-7-yrs-old-so-unfair)
+- [I know I’m biased but I think she’s the most photogenic dog](https://news.puppy-snuggles.com/67665333/i-know-im-biased-but-i-think-shes-the-most-photogenic-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
