@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
-- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
-- [Max is in danger of being pts for space any moment &lpar;04/02 8am&rpar;at Downey ACC, CA. Max&amp;#039;s owners loved him but were forced to surrender him after being kicked by a neighbor&amp;#039;s kid.Max is scared at the shelter &amp;amp; needs a loving, forever home or a foster asap to save his life. Could that be you?](https://news.puppy-snuggles.com/80376061/max-is-in-danger-of-being-pts-for-space-any-moment-0402-8amat-downey-acc-ca-maxs-owners-loved-him-but-were-forced-to-surrender-him-after-being-kicked-by-a-neighbors-kidmax-is-scared-at-the-shelter-needs-a-loving-forever-home-or-a-foster-asap-to-save-his-life-could-that-be-you)
-- [One year ago we lost our sweet Ellie. Only 7 yrs old. So unfair.](https://news.puppy-snuggles.com/75501119/one-year-ago-we-lost-our-sweet-ellie-only-7-yrs-old-so-unfair)
-- [I know I’m biased but I think she’s the most photogenic dog](https://news.puppy-snuggles.com/67665333/i-know-im-biased-but-i-think-shes-the-most-photogenic-dog)
+- [Caught my dog sleeping like this.](https://news.puppy-snuggles.com/83412314/caught-my-dog-sleeping-like-this)
+- [My heart is shattered and I don’t know what to do or how to go on from this](https://news.puppy-snuggles.com/67620184/my-heart-is-shattered-and-i-dont-know-what-to-do-or-how-to-go-on-from-this)
+- [My baby dog ​​has me so in love](https://news.puppy-snuggles.com/62986201/my-baby-dog-has-me-so-in-love)
+- [How cute is my dog🥰🥰🥰](https://news.puppy-snuggles.com/56733392/how-cute-is-my-dog)
+- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56066048/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
