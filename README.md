@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Caught my dog sleeping like this.](https://news.puppy-snuggles.com/83412314/caught-my-dog-sleeping-like-this)
-- [My heart is shattered and I don’t know what to do or how to go on from this](https://news.puppy-snuggles.com/67620184/my-heart-is-shattered-and-i-dont-know-what-to-do-or-how-to-go-on-from-this)
-- [My baby dog ​​has me so in love](https://news.puppy-snuggles.com/62986201/my-baby-dog-has-me-so-in-love)
-- [How cute is my dog🥰🥰🥰](https://news.puppy-snuggles.com/56733392/how-cute-is-my-dog)
-- [Wag the dog: Kristi Noem&amp;#039;s puppy tale reads even worse in print](https://news.puppy-snuggles.com/56066048/wag-the-dog-kristi-noems-puppy-tale-reads-even-worse-in-print)
+- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
+- [Big win for Bailey: 24 hours without a poop inside!](https://news.puppy-snuggles.com/83934470/big-win-for-bailey-24-hours-without-a-poop-inside)
+- [Long naps are always necessary](https://news.puppy-snuggles.com/83781326/long-naps-are-always-necessary)
+- [DNA sample is out for testing... Step right up and make your guesses now, folks!](https://news.puppy-snuggles.com/75681621/dna-sample-is-out-for-testing-step-right-up-and-make-your-guesses-now-folks)
+- [Enough with the dead dog posts](https://news.puppy-snuggles.com/67665327/enough-with-the-dead-dog-posts)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
