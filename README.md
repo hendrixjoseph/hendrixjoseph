@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
-- [Big win for Bailey: 24 hours without a poop inside!](https://news.puppy-snuggles.com/83934470/big-win-for-bailey-24-hours-without-a-poop-inside)
-- [Long naps are always necessary](https://news.puppy-snuggles.com/83781326/long-naps-are-always-necessary)
-- [DNA sample is out for testing... Step right up and make your guesses now, folks!](https://news.puppy-snuggles.com/75681621/dna-sample-is-out-for-testing-step-right-up-and-make-your-guesses-now-folks)
-- [Enough with the dead dog posts](https://news.puppy-snuggles.com/67665327/enough-with-the-dead-dog-posts)
+- [It’s official! My 6yo boy no longer hates his new baby brother.](https://news.puppy-snuggles.com/83781317/its-official-my-6yo-boy-no-longer-hates-his-new-baby-brother)
+- [I swear she knew I was taking a photo](https://news.puppy-snuggles.com/69511655/i-swear-she-knew-i-was-taking-a-photo)
+- [The last photo I took of my Cricket](https://news.puppy-snuggles.com/66355846/the-last-photo-i-took-of-my-cricket)
+- [My family rescued this sweet boy this July](https://news.puppy-snuggles.com/63629076/my-family-rescued-this-sweet-boy-this-july)
+- [This is Patches, He&amp;#039;s such a smiley boy.](https://news.puppy-snuggles.com/58668021/this-is-patches-hes-such-a-smiley-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
