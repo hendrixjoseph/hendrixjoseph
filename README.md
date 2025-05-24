@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My newest dog drawing : &rpar; can you guess the breed?](https://news.puppy-snuggles.com/83851262/my-newest-dog-drawing-can-you-guess-the-breed)
-- [New baby! I named him Kevin](https://news.puppy-snuggles.com/83577209/new-baby-i-named-him-kevin)
-- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
-- [Me and my fiancés stray rescue Junkyard! He’s the friendliest dog I’ve ever met and he’s goofy to boot](https://news.puppy-snuggles.com/82985868/me-and-my-fiances-stray-rescue-junkyard-hes-the-friendliest-dog-ive-ever-met-and-hes-goofy-to-boot)
-- [The human mind is always chasing some madness](https://news.puppy-snuggles.com/82853803/the-human-mind-is-always-chasing-some-madness)
+- [Morning walk and ball fetching time!](https://news.puppy-snuggles.com/85298192/morning-walk-and-ball-fetching-time)
+- [Wish me luck guys. I’m going to try and get this baby in the morning. I’ll update tomorrow.](https://news.puppy-snuggles.com/85298194/wish-me-luck-guys-im-going-to-try-and-get-this-baby-in-the-morning-ill-update-tomorrow)
+- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
+- [My boy’s taste in music is his state of mind.](https://news.puppy-snuggles.com/83895011/my-boys-taste-in-music-is-his-state-of-mind)
+- [this is mayvie](https://news.puppy-snuggles.com/82377229/this-is-mayvie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
