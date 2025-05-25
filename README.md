@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Morning walk and ball fetching time!](https://news.puppy-snuggles.com/85298192/morning-walk-and-ball-fetching-time)
-- [Wish me luck guys. I’m going to try and get this baby in the morning. I’ll update tomorrow.](https://news.puppy-snuggles.com/85298194/wish-me-luck-guys-im-going-to-try-and-get-this-baby-in-the-morning-ill-update-tomorrow)
-- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
-- [My boy’s taste in music is his state of mind.](https://news.puppy-snuggles.com/83895011/my-boys-taste-in-music-is-his-state-of-mind)
-- [this is mayvie](https://news.puppy-snuggles.com/82377229/this-is-mayvie)
+- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
+- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
+- [Franklin Dog Roosevelt, Frankie D, Pupperton](https://news.puppy-snuggles.com/84118652/franklin-dog-roosevelt-frankie-d-pupperton)
+- [Mooch’s new headshots!](https://news.puppy-snuggles.com/84007876/moochs-new-headshots)
+- [Adopted this shaggy pup. My attempt at a haircut. 😅](https://news.puppy-snuggles.com/82886392/adopted-this-shaggy-pup-my-attempt-at-a-haircut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
