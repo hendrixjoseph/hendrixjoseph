@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
-- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
-- [Franklin Dog Roosevelt, Frankie D, Pupperton](https://news.puppy-snuggles.com/84118652/franklin-dog-roosevelt-frankie-d-pupperton)
-- [Mooch’s new headshots!](https://news.puppy-snuggles.com/84007876/moochs-new-headshots)
-- [Adopted this shaggy pup. My attempt at a haircut. 😅](https://news.puppy-snuggles.com/82886392/adopted-this-shaggy-pup-my-attempt-at-a-haircut)
+- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
+- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
+- [Guess How Old My Boy Is?](https://news.puppy-snuggles.com/84045728/guess-how-old-my-boy-is)
+- [What would you name him if he was yours?](https://news.puppy-snuggles.com/83971588/what-would-you-name-him-if-he-was-yours)
+- [Do you mind sharing your chair…?](https://news.puppy-snuggles.com/82447803/do-you-mind-sharing-your-chair)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
