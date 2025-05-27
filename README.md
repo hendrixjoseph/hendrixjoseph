@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
-- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
-- [Guess How Old My Boy Is?](https://news.puppy-snuggles.com/84045728/guess-how-old-my-boy-is)
-- [What would you name him if he was yours?](https://news.puppy-snuggles.com/83971588/what-would-you-name-him-if-he-was-yours)
-- [Do you mind sharing your chair…?](https://news.puppy-snuggles.com/82447803/do-you-mind-sharing-your-chair)
+- [Winnie and Winter loving their life together. Both rescued, both spoiled rotten, both loved so much.](https://news.puppy-snuggles.com/85635526/winnie-and-winter-loving-their-life-together-both-rescued-both-spoiled-rotten-both-loved-so-much)
+- [His name was Mickey ❤️](https://news.puppy-snuggles.com/85635532/his-name-was-mickey)
+- [Happy 3 year gotchya day pupcake](https://news.puppy-snuggles.com/85635529/happy-3-year-gotchya-day-pupcake)
+- [Help us name our puppy!](https://news.puppy-snuggles.com/85635530/help-us-name-our-puppy)
+- [Can a dog be autistic](https://news.puppy-snuggles.com/85635527/can-a-dog-be-autistic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
