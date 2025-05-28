@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Winnie and Winter loving their life together. Both rescued, both spoiled rotten, both loved so much.](https://news.puppy-snuggles.com/85635526/winnie-and-winter-loving-their-life-together-both-rescued-both-spoiled-rotten-both-loved-so-much)
-- [His name was Mickey ❤️](https://news.puppy-snuggles.com/85635532/his-name-was-mickey)
-- [Happy 3 year gotchya day pupcake](https://news.puppy-snuggles.com/85635529/happy-3-year-gotchya-day-pupcake)
-- [Help us name our puppy!](https://news.puppy-snuggles.com/85635530/help-us-name-our-puppy)
-- [Can a dog be autistic](https://news.puppy-snuggles.com/85635527/can-a-dog-be-autistic)
+- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
+- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
+- [He is a smiling angel. I made him a portrait fridge magnet.](https://news.puppy-snuggles.com/77052298/he-is-a-smiling-angel-i-made-him-a-portrait-fridge-magnet)
+- [Can’t seem to figure out why my table is so wobbly tonight🤔🤣](https://news.puppy-snuggles.com/76806991/cant-seem-to-figure-out-why-my-table-is-so-wobbly-tonight)
+- [Remembering how smiley my rescue was on her first day home](https://news.puppy-snuggles.com/62792590/remembering-how-smiley-my-rescue-was-on-her-first-day-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
