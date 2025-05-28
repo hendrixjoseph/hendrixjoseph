@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s your &quot;I can&#39;t believe other people don&#39;t know this&quot; hack?](https://www.reddit.com/r/AskReddit/comments/1kwo793/whats_your_i_cant_believe_other_people_dont_know/muk3ct3/)
+- [/u/joehx on What&#39;s your &quot;I can&#39;t believe other people don&#39;t know this&quot; hack?](https://www.reddit.com/r/AskReddit/comments/1kwo793/whats_your_i_cant_believe_other_people_dont_know/muk26g9/)
+- [/u/joehx on Middle aged gent&#39;s, what&#39;s your view on playing video games at your age?](https://www.reddit.com/r/AskMen/comments/1kwohio/middle_aged_gents_whats_your_view_on_playing/mujz11a/)
+- [year and a half of growth](https://www.reddit.com/r/curlyhair/comments/1kwn7hv/year_and_a_half_of_growth/)
 - [/u/joehx on How often do you call your mom ?](https://www.reddit.com/r/AskMen/comments/1ku0k6j/how_often_do_you_call_your_mom/mty480p/)
-- [/u/joehx on I&#39;m sure this is asked plenty of times, but what was your first episode &lpar;or movie if that&#39;s the case&rpar; that introduced you to Star Trek?](https://www.reddit.com/r/startrek/comments/1ku0vvn/im_sure_this_is_asked_plenty_of_times_but_what/mty3yp9/)
-- [/u/joehx on My Life&#39;s Frugal and Cheap Confessions.](https://www.reddit.com/r/Frugal/comments/1kn4065/my_lifes_frugal_and_cheap_confessions/msfwcgh/)
-- [/u/joehx on My employer wants all managers to push the initiative that all entry and mid level engineers be expected to produce at least double the output due to AI tools. How do you entry and mid level software engineers feel about this? Are you struggling still to produce despite all the AI tools to produce?](https://www.reddit.com/r/cscareerquestions/comments/1kmjia3/my_employer_wants_all_managers_to_push_the/msb4d9s/)
-- [/u/joehx on Ohio University will close all diversity, equity and inclusion offices in response to Ohio’s new higher ed law](https://www.reddit.com/r/Columbus/comments/1katc17/ohio_university_will_close_all_diversity_equity/mpq3i14/)
 <!-- REDDIT:END -->
