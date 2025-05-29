@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
-- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
-- [He is a smiling angel. I made him a portrait fridge magnet.](https://news.puppy-snuggles.com/77052298/he-is-a-smiling-angel-i-made-him-a-portrait-fridge-magnet)
-- [Can’t seem to figure out why my table is so wobbly tonight🤔🤣](https://news.puppy-snuggles.com/76806991/cant-seem-to-figure-out-why-my-table-is-so-wobbly-tonight)
-- [Remembering how smiley my rescue was on her first day home](https://news.puppy-snuggles.com/62792590/remembering-how-smiley-my-rescue-was-on-her-first-day-home)
+- [From London to India — she crossed continents, not for comfort, but for compassion. Serving our paralysed dogs with love that defies age](https://news.puppy-snuggles.com/84611323/from-london-to-india-she-crossed-continents-not-for-comfort-but-for-compassion-serving-our-paralysed-dogs-with-love-that-defies-age)
+- [Here’s Oliver, my rescue pup](https://news.puppy-snuggles.com/84611318/heres-oliver-my-rescue-pup)
+- [My little dog Hades went to heaven](https://news.puppy-snuggles.com/84541041/my-little-dog-hades-went-to-heaven)
+- [Big win for Bailey: 24 hours without a poop inside!](https://news.puppy-snuggles.com/83934470/big-win-for-bailey-24-hours-without-a-poop-inside)
+- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
