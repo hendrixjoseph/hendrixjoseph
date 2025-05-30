@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [From London to India — she crossed continents, not for comfort, but for compassion. Serving our paralysed dogs with love that defies age](https://news.puppy-snuggles.com/84611323/from-london-to-india-she-crossed-continents-not-for-comfort-but-for-compassion-serving-our-paralysed-dogs-with-love-that-defies-age)
-- [Here’s Oliver, my rescue pup](https://news.puppy-snuggles.com/84611318/heres-oliver-my-rescue-pup)
-- [My little dog Hades went to heaven](https://news.puppy-snuggles.com/84541041/my-little-dog-hades-went-to-heaven)
-- [Big win for Bailey: 24 hours without a poop inside!](https://news.puppy-snuggles.com/83934470/big-win-for-bailey-24-hours-without-a-poop-inside)
-- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
+- [Pearl is glad we’re home](https://news.puppy-snuggles.com/85425541/pearl-is-glad-were-home)
+- [Taking my dog into surgery today](https://news.puppy-snuggles.com/84611319/taking-my-dog-into-surgery-today)
+- [I will doodle the most unhinged version of your dog. GO!](https://news.puppy-snuggles.com/81934010/i-will-doodle-the-most-unhinged-version-of-your-dog-go)
+- [My daughter decided to dress up the birthday girl. Happy 12th birthday Ellie](https://news.puppy-snuggles.com/78542044/my-daughter-decided-to-dress-up-the-birthday-girl-happy-12th-birthday-ellie)
+- [Before and After at my local shelter &lpar;Intake VS Photoshoot&rpar; &lpar;Week of 3-11-25&rpar;](https://news.puppy-snuggles.com/77884909/before-and-after-at-my-local-shelter-intake-vs-photoshoot-week-of-3-11-25)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
