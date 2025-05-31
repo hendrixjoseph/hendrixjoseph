@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pearl is glad we’re home](https://news.puppy-snuggles.com/85425541/pearl-is-glad-were-home)
-- [Taking my dog into surgery today](https://news.puppy-snuggles.com/84611319/taking-my-dog-into-surgery-today)
-- [I will doodle the most unhinged version of your dog. GO!](https://news.puppy-snuggles.com/81934010/i-will-doodle-the-most-unhinged-version-of-your-dog-go)
-- [My daughter decided to dress up the birthday girl. Happy 12th birthday Ellie](https://news.puppy-snuggles.com/78542044/my-daughter-decided-to-dress-up-the-birthday-girl-happy-12th-birthday-ellie)
-- [Before and After at my local shelter &lpar;Intake VS Photoshoot&rpar; &lpar;Week of 3-11-25&rpar;](https://news.puppy-snuggles.com/77884909/before-and-after-at-my-local-shelter-intake-vs-photoshoot-week-of-3-11-25)
+- [Identify breed](https://news.puppy-snuggles.com/84611317/identify-breed)
+- [look at this cutie we picked up yesterday! we named her Rutabaga or &amp;quot;rudy&amp;quot; for short 🥹🥬](https://news.puppy-snuggles.com/81517210/look-at-this-cutie-we-picked-up-yesterday-we-named-her-rutabaga-or-rudy-for-short)
+- [My girl turns 9 on Tuesday! ☁️✨💕](https://news.puppy-snuggles.com/80179835/my-girl-turns-9-on-tuesday)
+- [My wife&amp;#039;s Wiener Pit](https://news.puppy-snuggles.com/58890074/my-wifes-wiener-pit)
+- [Dog owner mauled to death by dogs after helping his pet being attacked, Texas cops say](https://news.puppy-snuggles.com/26129125/dog-owner-mauled-to-death-by-dogs-after-helping-his-pet-being-attacked-texas-cops-say)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
