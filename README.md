@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Identify breed](https://news.puppy-snuggles.com/84611317/identify-breed)
-- [look at this cutie we picked up yesterday! we named her Rutabaga or &amp;quot;rudy&amp;quot; for short 🥹🥬](https://news.puppy-snuggles.com/81517210/look-at-this-cutie-we-picked-up-yesterday-we-named-her-rutabaga-or-rudy-for-short)
-- [My girl turns 9 on Tuesday! ☁️✨💕](https://news.puppy-snuggles.com/80179835/my-girl-turns-9-on-tuesday)
-- [My wife&amp;#039;s Wiener Pit](https://news.puppy-snuggles.com/58890074/my-wifes-wiener-pit)
-- [Dog owner mauled to death by dogs after helping his pet being attacked, Texas cops say](https://news.puppy-snuggles.com/26129125/dog-owner-mauled-to-death-by-dogs-after-helping-his-pet-being-attacked-texas-cops-say)
+- [this is bowie. bowie is short so he stands on tables.](https://news.puppy-snuggles.com/85591679/this-is-bowie-bowie-is-short-so-he-stands-on-tables)
+- [She was the best. It&amp;#039;s been a week and I don&amp;#039;t think I&amp;#039;m ever gonna be okay. This sucks.](https://news.puppy-snuggles.com/85221292/she-was-the-best-its-been-a-week-and-i-dont-think-im-ever-gonna-be-okay-this-sucks)
+- [Our dog has eyebrows](https://news.puppy-snuggles.com/84947384/our-dog-has-eyebrows)
+- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
+- [Translation please](https://news.puppy-snuggles.com/84391053/translation-please)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
