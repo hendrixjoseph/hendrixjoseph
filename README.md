@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [this is bowie. bowie is short so he stands on tables.](https://news.puppy-snuggles.com/85591679/this-is-bowie-bowie-is-short-so-he-stands-on-tables)
-- [She was the best. It&amp;#039;s been a week and I don&amp;#039;t think I&amp;#039;m ever gonna be okay. This sucks.](https://news.puppy-snuggles.com/85221292/she-was-the-best-its-been-a-week-and-i-dont-think-im-ever-gonna-be-okay-this-sucks)
-- [Our dog has eyebrows](https://news.puppy-snuggles.com/84947384/our-dog-has-eyebrows)
-- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
-- [Translation please](https://news.puppy-snuggles.com/84391053/translation-please)
+- [Meet Oatmeal! I adopted her yesterday. 🥰](https://news.puppy-snuggles.com/86063591/meet-oatmeal-i-adopted-her-yesterday)
+- [why does my dog walk backwards?](https://news.puppy-snuggles.com/85425539/why-does-my-dog-walk-backwards)
+- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
+- [How Bella fell asleep 😴](https://news.puppy-snuggles.com/85032711/how-bella-fell-asleep)
+- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
