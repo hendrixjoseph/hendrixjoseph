@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Oatmeal! I adopted her yesterday. 🥰](https://news.puppy-snuggles.com/86063591/meet-oatmeal-i-adopted-her-yesterday)
-- [why does my dog walk backwards?](https://news.puppy-snuggles.com/85425539/why-does-my-dog-walk-backwards)
-- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
-- [How Bella fell asleep 😴](https://news.puppy-snuggles.com/85032711/how-bella-fell-asleep)
-- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
+- [He is gone](https://news.puppy-snuggles.com/69604067/he-is-gone)
+- [Had to let go of my best bud yesterday.](https://news.puppy-snuggles.com/69604065/had-to-let-go-of-my-best-bud-yesterday)
+- [Our family samoyed died, RIP Jakke](https://news.puppy-snuggles.com/69604068/our-family-samoyed-died-rip-jakke)
+- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
+- [9 years of Gus loving Grammy](https://news.puppy-snuggles.com/69604064/9-years-of-gus-loving-grammy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
