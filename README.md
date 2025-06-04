@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He is gone](https://news.puppy-snuggles.com/69604067/he-is-gone)
-- [Had to let go of my best bud yesterday.](https://news.puppy-snuggles.com/69604065/had-to-let-go-of-my-best-bud-yesterday)
-- [Our family samoyed died, RIP Jakke](https://news.puppy-snuggles.com/69604068/our-family-samoyed-died-rip-jakke)
-- [A Brown Eyed Handsome Man](https://news.puppy-snuggles.com/69604066/a-brown-eyed-handsome-man)
-- [9 years of Gus loving Grammy](https://news.puppy-snuggles.com/69604064/9-years-of-gus-loving-grammy)
+- [That dog is so serene it makes me so happy](https://news.puppy-snuggles.com/37114233/that-dog-is-so-serene-it-makes-me-so-happy)
+- [Daisy likes the cone. I have a weird dog.](https://news.puppy-snuggles.com/8748911/daisy-likes-the-cone-i-have-a-weird-dog)
+- [Leave my toy alone!](https://news.puppy-snuggles.com/8748910/leave-my-toy-alone)
+- [Golden smile has been mastered.](https://news.puppy-snuggles.com/8748909/golden-smile-has-been-mastered)
+- [We were hoping for a photo of Bowie catching the ball](https://news.puppy-snuggles.com/8748908/we-were-hoping-for-a-photo-of-bowie-catching-the-ball)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
