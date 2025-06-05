@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [That dog is so serene it makes me so happy](https://news.puppy-snuggles.com/37114233/that-dog-is-so-serene-it-makes-me-so-happy)
-- [Daisy likes the cone. I have a weird dog.](https://news.puppy-snuggles.com/8748911/daisy-likes-the-cone-i-have-a-weird-dog)
-- [Leave my toy alone!](https://news.puppy-snuggles.com/8748910/leave-my-toy-alone)
-- [Golden smile has been mastered.](https://news.puppy-snuggles.com/8748909/golden-smile-has-been-mastered)
-- [We were hoping for a photo of Bowie catching the ball](https://news.puppy-snuggles.com/8748908/we-were-hoping-for-a-photo-of-bowie-catching-the-ball)
+- [Hal, the blind, one eyed dog](https://news.puppy-snuggles.com/84351624/hal-the-blind-one-eyed-dog)
+- [Mr. Benny Boy, being cute as always 💛](https://news.puppy-snuggles.com/84118656/mr-benny-boy-being-cute-as-always)
+- [Someone left him in our construction yard. The caretaker who named him Buddy, feeds him. He&amp;#039;s very shy and hides when he sees people. We plan to adopt him once our house is built, regardless of his breed, but If anyone knows please let me know I would really appreciate it.](https://news.puppy-snuggles.com/67830947/someone-left-him-in-our-construction-yard-the-caretaker-who-named-him-buddy-feeds-him-hes-very-shy-and-hides-when-he-sees-people-we-plan-to-adopt-him-once-our-house-is-built-regardless-of-his-breed-but-if-anyone-knows-please-let-me-know-i-would-really-appreciate-it)
+- [Luna, my sweet one eared house hippo, is recovering from her surgery so well!](https://news.puppy-snuggles.com/56755299/luna-my-sweet-one-eared-house-hippo-is-recovering-from-her-surgery-so-well)
+- [More sun smiles](https://news.puppy-snuggles.com/36392099/more-sun-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
