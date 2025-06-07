@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Milly](https://news.puppy-snuggles.com/83743748/milly)
-- [Can anyone tell what breed my dog is?](https://news.puppy-snuggles.com/83542414/can-anyone-tell-what-breed-my-dog-is)
-- [RIP Sophie 💔](https://news.puppy-snuggles.com/83476934/rip-sophie)
-- [She was my favorite toy as a kid &amp;amp; now she belongs to him](https://news.puppy-snuggles.com/81047757/she-was-my-favorite-toy-as-a-kid-now-she-belongs-to-him)
-- [My boy turned 5 today! ⚡️🖤](https://news.puppy-snuggles.com/80810224/my-boy-turned-5-today)
+- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
+- [Show me pictures of your dogs with their toys!](https://news.puppy-snuggles.com/84947378/show-me-pictures-of-your-dogs-with-their-toys)
+- [Happy Sunday from our rescues here at Sara Morocco](https://news.puppy-snuggles.com/84432836/happy-sunday-from-our-rescues-here-at-sara-morocco)
+- [Groomers hooked my boy up with a nice tie I just crack up everytime I see him 😆😆♥️](https://news.puppy-snuggles.com/84351622/groomers-hooked-my-boy-up-with-a-nice-tie-i-just-crack-up-everytime-i-see-him)
+- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
