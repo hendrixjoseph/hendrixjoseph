@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
-- [Show me pictures of your dogs with their toys!](https://news.puppy-snuggles.com/84947378/show-me-pictures-of-your-dogs-with-their-toys)
-- [Happy Sunday from our rescues here at Sara Morocco](https://news.puppy-snuggles.com/84432836/happy-sunday-from-our-rescues-here-at-sara-morocco)
-- [Groomers hooked my boy up with a nice tie I just crack up everytime I see him 😆😆♥️](https://news.puppy-snuggles.com/84351622/groomers-hooked-my-boy-up-with-a-nice-tie-i-just-crack-up-everytime-i-see-him)
-- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
+- [Buddy](https://news.puppy-snuggles.com/81832399/buddy)
+- [I rescued a new dog over the weekend! Meet Salad 🥗](https://news.puppy-snuggles.com/80277971/i-rescued-a-new-dog-over-the-weekend-meet-salad)
+- [Two hearts](https://news.puppy-snuggles.com/79168149/two-hearts)
+- [Unexpectedly said goodbye to my good boy](https://news.puppy-snuggles.com/73092460/unexpectedly-said-goodbye-to-my-good-boy)
+- [Say „Cheese!“](https://news.puppy-snuggles.com/70990317/say-cheese)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
