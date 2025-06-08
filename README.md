@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What was a fact taught to you in school, that has been disproven in your lifetime?](https://www.reddit.com/r/AskReddit/comments/1l5skeb/what_was_a_fact_taught_to_you_in_school_that_has/mwkybmh/)
+- [/u/joehx on What was a fact taught to you in school, that has been disproven in your lifetime?](https://www.reddit.com/r/AskReddit/comments/1l5skeb/what_was_a_fact_taught_to_you_in_school_that_has/mwky43a/)
 - [/u/joehx on What’s a &#39;life hack&#39; you discovered by accident and now swear by?](https://www.reddit.com/r/AskReddit/comments/1l3f2up/whats_a_life_hack_you_discovered_by_accident_and/mw0pl9k/)
 - [/u/joehx on Daily FI discussion thread - Tuesday, June 03, 2025](https://www.reddit.com/r/financialindependence/comments/1l274n2/daily_fi_discussion_thread_tuesday_june_03_2025/mvrffy6/)
 - [/u/joehx on Weekday Help and Victory Thread for the week of May 26, 2025](https://www.reddit.com/r/personalfinance/comments/1kvrjqx/weekday_help_and_victory_thread_for_the_week_of/muosj2c/)
-- [/u/joehx on What&#39;s your &quot;I can&#39;t believe other people don&#39;t know this&quot; hack?](https://www.reddit.com/r/AskReddit/comments/1kwo793/whats_your_i_cant_believe_other_people_dont_know/muk3ct3/)
-- [/u/joehx on What&#39;s your &quot;I can&#39;t believe other people don&#39;t know this&quot; hack?](https://www.reddit.com/r/AskReddit/comments/1kwo793/whats_your_i_cant_believe_other_people_dont_know/muk26g9/)
 <!-- REDDIT:END -->
