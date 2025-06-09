@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Buddy](https://news.puppy-snuggles.com/81832399/buddy)
-- [I rescued a new dog over the weekend! Meet Salad 🥗](https://news.puppy-snuggles.com/80277971/i-rescued-a-new-dog-over-the-weekend-meet-salad)
-- [Two hearts](https://news.puppy-snuggles.com/79168149/two-hearts)
-- [Unexpectedly said goodbye to my good boy](https://news.puppy-snuggles.com/73092460/unexpectedly-said-goodbye-to-my-good-boy)
-- [Say „Cheese!“](https://news.puppy-snuggles.com/70990317/say-cheese)
+- [why does my dog walk backwards?](https://news.puppy-snuggles.com/85425539/why-does-my-dog-walk-backwards)
+- [Just wanted to share a picture of me and my wife’s new puppy. Meet Maximus!](https://news.puppy-snuggles.com/85259412/just-wanted-to-share-a-picture-of-me-and-my-wifes-new-puppy-meet-maximus)
+- [Everyone say happy birthday to my boys first!!](https://news.puppy-snuggles.com/82886389/everyone-say-happy-birthday-to-my-boys-first)
+- [Smile baby](https://news.puppy-snuggles.com/79097815/smile-baby)
+- [8 years and still ging strong](https://news.puppy-snuggles.com/78960038/8-years-and-still-ging-strong)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
