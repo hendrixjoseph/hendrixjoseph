@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [why does my dog walk backwards?](https://news.puppy-snuggles.com/85425539/why-does-my-dog-walk-backwards)
-- [Just wanted to share a picture of me and my wife’s new puppy. Meet Maximus!](https://news.puppy-snuggles.com/85259412/just-wanted-to-share-a-picture-of-me-and-my-wifes-new-puppy-meet-maximus)
-- [Everyone say happy birthday to my boys first!!](https://news.puppy-snuggles.com/82886389/everyone-say-happy-birthday-to-my-boys-first)
-- [Smile baby](https://news.puppy-snuggles.com/79097815/smile-baby)
-- [8 years and still ging strong](https://news.puppy-snuggles.com/78960038/8-years-and-still-ging-strong)
+- [Mavis is not a morning person.](https://news.puppy-snuggles.com/85187164/mavis-is-not-a-morning-person)
+- [So long, Ace. My best friend and brother. I will keep you in my heart forever and always](https://news.puppy-snuggles.com/84541042/so-long-ace-my-best-friend-and-brother-i-will-keep-you-in-my-heart-forever-and-always)
+- [You never really stop missing them](https://news.puppy-snuggles.com/84314048/you-never-really-stop-missing-them)
+- [Bring your dog to work and she sleeps on the job. Can&amp;#039;t even get the staff](https://news.puppy-snuggles.com/84160427/bring-your-dog-to-work-and-she-sleeps-on-the-job-cant-even-get-the-staff)
+- [Iggy telling me he’d really like my food](https://news.puppy-snuggles.com/83851260/iggy-telling-me-hed-really-like-my-food)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
