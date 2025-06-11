@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mavis is not a morning person.](https://news.puppy-snuggles.com/85187164/mavis-is-not-a-morning-person)
-- [So long, Ace. My best friend and brother. I will keep you in my heart forever and always](https://news.puppy-snuggles.com/84541042/so-long-ace-my-best-friend-and-brother-i-will-keep-you-in-my-heart-forever-and-always)
-- [You never really stop missing them](https://news.puppy-snuggles.com/84314048/you-never-really-stop-missing-them)
-- [Bring your dog to work and she sleeps on the job. Can&amp;#039;t even get the staff](https://news.puppy-snuggles.com/84160427/bring-your-dog-to-work-and-she-sleeps-on-the-job-cant-even-get-the-staff)
-- [Iggy telling me he’d really like my food](https://news.puppy-snuggles.com/83851260/iggy-telling-me-hed-really-like-my-food)
+- [The tongue roll kills me! 😍](https://news.puppy-snuggles.com/84721559/the-tongue-roll-kills-me)
+- [Dog or Dolphin?](https://news.puppy-snuggles.com/84118655/dog-or-dolphin)
+- [Caught my dog sleeping like this.](https://news.puppy-snuggles.com/83412314/caught-my-dog-sleeping-like-this)
+- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
+- [This isn’t the dog park mom 😭](https://news.puppy-snuggles.com/83091225/this-isnt-the-dog-park-mom)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
