@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The tongue roll kills me! 😍](https://news.puppy-snuggles.com/84721559/the-tongue-roll-kills-me)
-- [Dog or Dolphin?](https://news.puppy-snuggles.com/84118655/dog-or-dolphin)
-- [Caught my dog sleeping like this.](https://news.puppy-snuggles.com/83412314/caught-my-dog-sleeping-like-this)
-- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
-- [This isn’t the dog park mom 😭](https://news.puppy-snuggles.com/83091225/this-isnt-the-dog-park-mom)
+- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
+- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
+- [I personally think she likes her new hair, right..?](https://news.puppy-snuggles.com/84508643/i-personally-think-she-likes-her-new-hair-right)
+- [Double trouble and they know it](https://news.puppy-snuggles.com/82236865/double-trouble-and-they-know-it)
+- [We gave away a dog to the wrong people.](https://news.puppy-snuggles.com/81151370/we-gave-away-a-dog-to-the-wrong-people)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
