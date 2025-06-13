@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
-- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
-- [I personally think she likes her new hair, right..?](https://news.puppy-snuggles.com/84508643/i-personally-think-she-likes-her-new-hair-right)
-- [Double trouble and they know it](https://news.puppy-snuggles.com/82236865/double-trouble-and-they-know-it)
-- [We gave away a dog to the wrong people.](https://news.puppy-snuggles.com/81151370/we-gave-away-a-dog-to-the-wrong-people)
+- [Chilling at the park 🥏](https://news.puppy-snuggles.com/84237325/chilling-at-the-park)
+- [I miss him so much](https://news.puppy-snuggles.com/83443137/i-miss-him-so-much)
+- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
+- [She wanted me to toss her a ball](https://news.puppy-snuggles.com/82001784/she-wanted-me-to-toss-her-a-ball)
+- [Our little old man passed away in his sleep yesterday.](https://news.puppy-snuggles.com/81418176/our-little-old-man-passed-away-in-his-sleep-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
