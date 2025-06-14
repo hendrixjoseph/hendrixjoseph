@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chilling at the park 🥏](https://news.puppy-snuggles.com/84237325/chilling-at-the-park)
-- [I miss him so much](https://news.puppy-snuggles.com/83443137/i-miss-him-so-much)
-- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
-- [She wanted me to toss her a ball](https://news.puppy-snuggles.com/82001784/she-wanted-me-to-toss-her-a-ball)
-- [Our little old man passed away in his sleep yesterday.](https://news.puppy-snuggles.com/81418176/our-little-old-man-passed-away-in-his-sleep-yesterday)
+- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
+- [She’s been side eyeing me since day one!](https://news.puppy-snuggles.com/84574057/shes-been-side-eyeing-me-since-day-one)
+- [She always look like she’s about to tell me something important whenever she asks for pets](https://news.puppy-snuggles.com/84237323/she-always-look-like-shes-about-to-tell-me-something-important-whenever-she-asks-for-pets)
+- [He is Aslan🦁](https://news.puppy-snuggles.com/82101756/he-is-aslan)
+- [No more carrying around my big boys poop!](https://news.puppy-snuggles.com/79456299/no-more-carrying-around-my-big-boys-poop)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
