@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
-- [She’s been side eyeing me since day one!](https://news.puppy-snuggles.com/84574057/shes-been-side-eyeing-me-since-day-one)
-- [She always look like she’s about to tell me something important whenever she asks for pets](https://news.puppy-snuggles.com/84237323/she-always-look-like-shes-about-to-tell-me-something-important-whenever-she-asks-for-pets)
-- [He is Aslan🦁](https://news.puppy-snuggles.com/82101756/he-is-aslan)
-- [No more carrying around my big boys poop!](https://news.puppy-snuggles.com/79456299/no-more-carrying-around-my-big-boys-poop)
+- [Hello Hoomaans. 🥹](https://news.puppy-snuggles.com/86847776/hello-hoomaans)
+- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
+- [Happy 16th birthday to my Lil boy Buddy!](https://news.puppy-snuggles.com/83609233/happy-16th-birthday-to-my-lil-boy-buddy)
+- [Is it weird that my dog has become my favourite topic to talk about all the time?](https://news.puppy-snuggles.com/78680715/is-it-weird-that-my-dog-has-become-my-favourite-topic-to-talk-about-all-the-time)
+- [Does anyone else’s dog licked their other dog to like a ridiculous amount?](https://news.puppy-snuggles.com/78578591/does-anyone-elses-dog-licked-their-other-dog-to-like-a-ridiculous-amount)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
