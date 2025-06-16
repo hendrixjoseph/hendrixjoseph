@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello Hoomaans. 🥹](https://news.puppy-snuggles.com/86847776/hello-hoomaans)
-- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
-- [Happy 16th birthday to my Lil boy Buddy!](https://news.puppy-snuggles.com/83609233/happy-16th-birthday-to-my-lil-boy-buddy)
-- [Is it weird that my dog has become my favourite topic to talk about all the time?](https://news.puppy-snuggles.com/78680715/is-it-weird-that-my-dog-has-become-my-favourite-topic-to-talk-about-all-the-time)
-- [Does anyone else’s dog licked their other dog to like a ridiculous amount?](https://news.puppy-snuggles.com/78578591/does-anyone-elses-dog-licked-their-other-dog-to-like-a-ridiculous-amount)
+- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938241/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
+- [I&amp;#039;ve got a little time today and I&amp;#039;d like to draw your puppies!](https://news.puppy-snuggles.com/84160424/ive-got-a-little-time-today-and-id-like-to-draw-your-puppies)
+- [here he is happy post vet visit no more alien eggs in his hears for this boy](https://news.puppy-snuggles.com/84160432/here-he-is-happy-post-vet-visit-no-more-alien-eggs-in-his-hears-for-this-boy)
+- [RIP Sophie 💔](https://news.puppy-snuggles.com/83476934/rip-sophie)
+- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
