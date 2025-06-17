@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938241/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
-- [I&amp;#039;ve got a little time today and I&amp;#039;d like to draw your puppies!](https://news.puppy-snuggles.com/84160424/ive-got-a-little-time-today-and-id-like-to-draw-your-puppies)
-- [here he is happy post vet visit no more alien eggs in his hears for this boy](https://news.puppy-snuggles.com/84160432/here-he-is-happy-post-vet-visit-no-more-alien-eggs-in-his-hears-for-this-boy)
-- [RIP Sophie 💔](https://news.puppy-snuggles.com/83476934/rip-sophie)
-- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
+- [Adopted a new puppy!🐶](https://news.puppy-snuggles.com/84874197/adopted-a-new-puppy)
+- [My 13yr old Jack Russell mix trying it to fall asleep](https://news.puppy-snuggles.com/84835714/my-13yr-old-jack-russell-mix-trying-it-to-fall-asleep)
+- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
+- [he manages to lay in the one position where I CANT LAY DOWN ON MY OWN BED comfortably😒😒😒](https://news.puppy-snuggles.com/83344942/he-manages-to-lay-in-the-one-position-where-i-cant-lay-down-on-my-own-bed-comfortably)
+- [Löst &amp;amp; found](https://news.puppy-snuggles.com/81934013/lost-found)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
