@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Official Q&amp;A for Saturday, June 14, 2025](https://www.reddit.com/r/running/comments/1lb0l4d/official_qa_for_saturday_june_14_2025/my2jhpm/)
 - [/u/joehx on Official Q&amp;A for Saturday, June 14, 2025](https://www.reddit.com/r/running/comments/1lb0l4d/official_qa_for_saturday_june_14_2025/mxsx9eb/)
 - [/u/joehx on Official Q&amp;A for Saturday, June 14, 2025](https://www.reddit.com/r/running/comments/1lb0l4d/official_qa_for_saturday_june_14_2025/mxrb2rs/)
 - [/u/joehx on Pushing Through a run?](https://www.reddit.com/r/running/comments/1l77osa/pushing_through_a_run/mwwi109/)
 - [/u/joehx on What was a fact taught to you in school, that has been disproven in your lifetime?](https://www.reddit.com/r/AskReddit/comments/1l5skeb/what_was_a_fact_taught_to_you_in_school_that_has/mwkybmh/)
-- [/u/joehx on What was a fact taught to you in school, that has been disproven in your lifetime?](https://www.reddit.com/r/AskReddit/comments/1l5skeb/what_was_a_fact_taught_to_you_in_school_that_has/mwky43a/)
 <!-- REDDIT:END -->
