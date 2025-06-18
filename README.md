@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted a new puppy!🐶](https://news.puppy-snuggles.com/84874197/adopted-a-new-puppy)
-- [My 13yr old Jack Russell mix trying it to fall asleep](https://news.puppy-snuggles.com/84835714/my-13yr-old-jack-russell-mix-trying-it-to-fall-asleep)
-- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
-- [he manages to lay in the one position where I CANT LAY DOWN ON MY OWN BED comfortably😒😒😒](https://news.puppy-snuggles.com/83344942/he-manages-to-lay-in-the-one-position-where-i-cant-lay-down-on-my-own-bed-comfortably)
-- [Löst &amp;amp; found](https://news.puppy-snuggles.com/81934013/lost-found)
+- [If you had to choose, would you sleep with your dog or with your human partner?](https://news.puppy-snuggles.com/85298190/if-you-had-to-choose-would-you-sleep-with-your-dog-or-with-your-human-partner)
+- [Lost my bsf recently](https://news.puppy-snuggles.com/84541047/lost-my-bsf-recently)
+- [Musuko, smiling with all his heart &lpar;and both ears… almost&rpar;](https://news.puppy-snuggles.com/83934465/musuko-smiling-with-all-his-heart-and-both-ears-almost)
+- [What’s the photo you show people when you say this is my dog?](https://news.puppy-snuggles.com/81553135/whats-the-photo-you-show-people-when-you-say-this-is-my-dog)
+- [High on drugs after surgery](https://news.puppy-snuggles.com/81483588/high-on-drugs-after-surgery)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
