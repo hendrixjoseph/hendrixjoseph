@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you had to choose, would you sleep with your dog or with your human partner?](https://news.puppy-snuggles.com/85298190/if-you-had-to-choose-would-you-sleep-with-your-dog-or-with-your-human-partner)
-- [Lost my bsf recently](https://news.puppy-snuggles.com/84541047/lost-my-bsf-recently)
-- [Musuko, smiling with all his heart &lpar;and both ears… almost&rpar;](https://news.puppy-snuggles.com/83934465/musuko-smiling-with-all-his-heart-and-both-ears-almost)
-- [What’s the photo you show people when you say this is my dog?](https://news.puppy-snuggles.com/81553135/whats-the-photo-you-show-people-when-you-say-this-is-my-dog)
-- [High on drugs after surgery](https://news.puppy-snuggles.com/81483588/high-on-drugs-after-surgery)
+- [a quote that really moved me + a pic of me and my doggos](https://news.puppy-snuggles.com/87356626/a-quote-that-really-moved-me-a-pic-of-me-and-my-doggos)
+- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
+- [We just got her and I wanted to get some ideas for a name !](https://news.puppy-snuggles.com/87225145/we-just-got-her-and-i-wanted-to-get-some-ideas-for-a-name)
+- [Smiiiile](https://news.puppy-snuggles.com/87225143/smiiiile)
+- [Show me pictures of your dog sleeping with a pillow](https://news.puppy-snuggles.com/57228472/show-me-pictures-of-your-dog-sleeping-with-a-pillow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
