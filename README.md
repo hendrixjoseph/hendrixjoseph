@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [a quote that really moved me + a pic of me and my doggos](https://news.puppy-snuggles.com/87356626/a-quote-that-really-moved-me-a-pic-of-me-and-my-doggos)
-- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
-- [We just got her and I wanted to get some ideas for a name !](https://news.puppy-snuggles.com/87225145/we-just-got-her-and-i-wanted-to-get-some-ideas-for-a-name)
-- [Smiiiile](https://news.puppy-snuggles.com/87225143/smiiiile)
-- [Show me pictures of your dog sleeping with a pillow](https://news.puppy-snuggles.com/57228472/show-me-pictures-of-your-dog-sleeping-with-a-pillow)
+- [Saying goodbye to Bruce today](https://news.puppy-snuggles.com/87159408/saying-goodbye-to-bruce-today)
+- [This is my favorite picture of us 💕](https://news.puppy-snuggles.com/87159415/this-is-my-favorite-picture-of-us)
+- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
+- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
+- [Someone is even happier bout my home office day than I am](https://news.puppy-snuggles.com/81730061/someone-is-even-happier-bout-my-home-office-day-than-i-am)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
