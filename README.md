@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Saying goodbye to Bruce today](https://news.puppy-snuggles.com/87159408/saying-goodbye-to-bruce-today)
-- [This is my favorite picture of us 💕](https://news.puppy-snuggles.com/87159415/this-is-my-favorite-picture-of-us)
-- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
-- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
-- [Someone is even happier bout my home office day than I am](https://news.puppy-snuggles.com/81730061/someone-is-even-happier-bout-my-home-office-day-than-i-am)
+- [Going to see her bff](https://news.puppy-snuggles.com/87129393/going-to-see-her-bff)
+- [Cancer sucks](https://news.puppy-snuggles.com/87129394/cancer-sucks)
+- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187160/national-rescue-dog-day-lets-see-em)
+- [I just came to say Hello](https://news.puppy-snuggles.com/84835715/i-just-came-to-say-hello)
+- [The many faces of Shep](https://news.puppy-snuggles.com/84835720/the-many-faces-of-shep)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
