@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Going to see her bff](https://news.puppy-snuggles.com/87129393/going-to-see-her-bff)
-- [Cancer sucks](https://news.puppy-snuggles.com/87129394/cancer-sucks)
-- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187160/national-rescue-dog-day-lets-see-em)
-- [I just came to say Hello](https://news.puppy-snuggles.com/84835715/i-just-came-to-say-hello)
-- [The many faces of Shep](https://news.puppy-snuggles.com/84835720/the-many-faces-of-shep)
+- [Saying goodbye to my baby](https://news.puppy-snuggles.com/86414335/saying-goodbye-to-my-baby)
+- [Patch is 12 today!](https://news.puppy-snuggles.com/85684293/patch-is-12-today)
+- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
+- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
+- [Luna as a puppy and her last day with us💔💔💔](https://news.puppy-snuggles.com/83895007/luna-as-a-puppy-and-her-last-day-with-us)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
