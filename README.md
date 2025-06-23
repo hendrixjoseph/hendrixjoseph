@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Saying goodbye to my baby](https://news.puppy-snuggles.com/86414335/saying-goodbye-to-my-baby)
-- [Patch is 12 today!](https://news.puppy-snuggles.com/85684293/patch-is-12-today)
-- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
-- [Her Battle is over today. Goodbye Diamond 🥹](https://news.puppy-snuggles.com/84194936/her-battle-is-over-today-goodbye-diamond)
-- [Luna as a puppy and her last day with us💔💔💔](https://news.puppy-snuggles.com/83895007/luna-as-a-puppy-and-her-last-day-with-us)
+- [Woke up at 3am to discover this dummy had his 2nd encounter with a skunk. I was relieved to not find a dead skunk in our backyard but the stank is terrible. Any tips on how to speed up getting rid of the smell would be greatly appreciated.](https://news.puppy-snuggles.com/87551473/woke-up-at-3am-to-discover-this-dummy-had-his-2nd-encounter-with-a-skunk-i-was-relieved-to-not-find-a-dead-skunk-in-our-backyard-but-the-stank-is-terrible-any-tips-on-how-to-speed-up-getting-rid-of-the-smell-would-be-greatly-appreciated)
+- [Then &amp;amp; Now](https://news.puppy-snuggles.com/87288087/then-now)
+- [She was the best. It&amp;#039;s been a week and I don&amp;#039;t think I&amp;#039;m ever gonna be okay. This sucks.](https://news.puppy-snuggles.com/85221292/she-was-the-best-its-been-a-week-and-i-dont-think-im-ever-gonna-be-okay-this-sucks)
+- [Help me name my new rescue pup!](https://news.puppy-snuggles.com/81151364/help-me-name-my-new-rescue-pup)
+- [We gave away a dog to the wrong people.](https://news.puppy-snuggles.com/81151370/we-gave-away-a-dog-to-the-wrong-people)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
