@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Woke up at 3am to discover this dummy had his 2nd encounter with a skunk. I was relieved to not find a dead skunk in our backyard but the stank is terrible. Any tips on how to speed up getting rid of the smell would be greatly appreciated.](https://news.puppy-snuggles.com/87551473/woke-up-at-3am-to-discover-this-dummy-had-his-2nd-encounter-with-a-skunk-i-was-relieved-to-not-find-a-dead-skunk-in-our-backyard-but-the-stank-is-terrible-any-tips-on-how-to-speed-up-getting-rid-of-the-smell-would-be-greatly-appreciated)
-- [Then &amp;amp; Now](https://news.puppy-snuggles.com/87288087/then-now)
-- [She was the best. It&amp;#039;s been a week and I don&amp;#039;t think I&amp;#039;m ever gonna be okay. This sucks.](https://news.puppy-snuggles.com/85221292/she-was-the-best-its-been-a-week-and-i-dont-think-im-ever-gonna-be-okay-this-sucks)
-- [Help me name my new rescue pup!](https://news.puppy-snuggles.com/81151364/help-me-name-my-new-rescue-pup)
-- [We gave away a dog to the wrong people.](https://news.puppy-snuggles.com/81151370/we-gave-away-a-dog-to-the-wrong-people)
+- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
+- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
+- [What would you name him if he was yours?](https://news.puppy-snuggles.com/83971588/what-would-you-name-him-if-he-was-yours)
+- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
+- [My boy is dying of metastatic cancer. So he gets to eat all the human food.](https://news.puppy-snuggles.com/79312979/my-boy-is-dying-of-metastatic-cancer-so-he-gets-to-eat-all-the-human-food)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
