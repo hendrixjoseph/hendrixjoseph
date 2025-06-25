@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Truffles, she&amp;#039;s mostly smiles most of the time🤪](https://news.puppy-snuggles.com/85259417/meet-truffles-shes-mostly-smiles-most-of-the-time)
-- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
-- [What would you name him if he was yours?](https://news.puppy-snuggles.com/83971588/what-would-you-name-him-if-he-was-yours)
-- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
-- [My boy is dying of metastatic cancer. So he gets to eat all the human food.](https://news.puppy-snuggles.com/79312979/my-boy-is-dying-of-metastatic-cancer-so-he-gets-to-eat-all-the-human-food)
+- [Hello world, meet my dog Batman](https://news.puppy-snuggles.com/55239499/hello-world-meet-my-dog-batman)
+- [Took Dusty for an evening walk! And made r/DustyDoll for her updates!!](https://news.puppy-snuggles.com/49404841/took-dusty-for-an-evening-walk-and-made-rdustydoll-for-her-updates)
+- [Wants to eat](https://news.puppy-snuggles.com/27791117/wants-to-eat)
+- [I played off-leash for the first time at the park with another doggo and made my mom&amp;#039;s heart explode!](https://news.puppy-snuggles.com/24716473/i-played-off-leash-for-the-first-time-at-the-park-with-another-doggo-and-made-my-moms-heart-explode)
+- [Can you guess the breed?](https://news.puppy-snuggles.com/23581718/can-you-guess-the-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
