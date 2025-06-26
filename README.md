@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello world, meet my dog Batman](https://news.puppy-snuggles.com/55239499/hello-world-meet-my-dog-batman)
-- [Took Dusty for an evening walk! And made r/DustyDoll for her updates!!](https://news.puppy-snuggles.com/49404841/took-dusty-for-an-evening-walk-and-made-rdustydoll-for-her-updates)
-- [Wants to eat](https://news.puppy-snuggles.com/27791117/wants-to-eat)
-- [I played off-leash for the first time at the park with another doggo and made my mom&amp;#039;s heart explode!](https://news.puppy-snuggles.com/24716473/i-played-off-leash-for-the-first-time-at-the-park-with-another-doggo-and-made-my-moms-heart-explode)
-- [Can you guess the breed?](https://news.puppy-snuggles.com/23581718/can-you-guess-the-breed)
+- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
+- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
+- [First Photo, why everyone is afraid of my dog. Second Photo, why no one is afraid of my dog](https://news.puppy-snuggles.com/84007875/first-photo-why-everyone-is-afraid-of-my-dog-second-photo-why-no-one-is-afraid-of-my-dog)
+- [Ruby turned 5 on May 1 🎉](https://news.puppy-snuggles.com/83577208/ruby-turned-5-on-may-1)
+- [New baby! I named him Kevin](https://news.puppy-snuggles.com/83577209/new-baby-i-named-him-kevin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
