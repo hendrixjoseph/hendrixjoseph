@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
-- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
-- [First Photo, why everyone is afraid of my dog. Second Photo, why no one is afraid of my dog](https://news.puppy-snuggles.com/84007875/first-photo-why-everyone-is-afraid-of-my-dog-second-photo-why-no-one-is-afraid-of-my-dog)
-- [Ruby turned 5 on May 1 🎉](https://news.puppy-snuggles.com/83577208/ruby-turned-5-on-may-1)
-- [New baby! I named him Kevin](https://news.puppy-snuggles.com/83577209/new-baby-i-named-him-kevin)
+- [weight loss](https://news.puppy-snuggles.com/87551466/weight-loss)
+- [The dog days of summer](https://news.puppy-snuggles.com/87551465/the-dog-days-of-summer)
+- [My Chihuahua, Chloe and her puppies Champ &amp;amp; Chance 🥰](https://news.puppy-snuggles.com/84541049/my-chihuahua-chloe-and-her-puppies-champ-chance)
+- [Weirdest nicknames you have for your dogs??](https://news.puppy-snuggles.com/83022431/weirdest-nicknames-you-have-for-your-dogs)
+- [I&amp;#039;d love to see everyone&amp;#039;s dog families! Here&amp;#039;s my little crew](https://news.puppy-snuggles.com/83022429/id-love-to-see-everyones-dog-families-heres-my-little-crew)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
