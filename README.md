@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [weight loss](https://news.puppy-snuggles.com/87551466/weight-loss)
-- [The dog days of summer](https://news.puppy-snuggles.com/87551465/the-dog-days-of-summer)
-- [My Chihuahua, Chloe and her puppies Champ &amp;amp; Chance 🥰](https://news.puppy-snuggles.com/84541049/my-chihuahua-chloe-and-her-puppies-champ-chance)
-- [Weirdest nicknames you have for your dogs??](https://news.puppy-snuggles.com/83022431/weirdest-nicknames-you-have-for-your-dogs)
-- [I&amp;#039;d love to see everyone&amp;#039;s dog families! Here&amp;#039;s my little crew](https://news.puppy-snuggles.com/83022429/id-love-to-see-everyones-dog-families-heres-my-little-crew)
+- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [Rescue dog. Had her a week.](https://news.puppy-snuggles.com/84947380/rescue-dog-had-her-a-week)
+- [Lost my side kick!](https://news.puppy-snuggles.com/84508638/lost-my-side-kick)
+- [It’s official! My 6yo boy no longer hates his new baby brother.](https://news.puppy-snuggles.com/83781317/its-official-my-6yo-boy-no-longer-hates-his-new-baby-brother)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
