@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [Rescue dog. Had her a week.](https://news.puppy-snuggles.com/84947380/rescue-dog-had-her-a-week)
-- [Lost my side kick!](https://news.puppy-snuggles.com/84508638/lost-my-side-kick)
-- [It’s official! My 6yo boy no longer hates his new baby brother.](https://news.puppy-snuggles.com/83781317/its-official-my-6yo-boy-no-longer-hates-his-new-baby-brother)
+- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
+- [Please show me your Very Serious Dogs](https://news.puppy-snuggles.com/85109339/please-show-me-your-very-serious-dogs)
+- [How Bella fell asleep 😴](https://news.puppy-snuggles.com/85032711/how-bella-fell-asleep)
+- [Look at this distinguished gentleman](https://news.puppy-snuggles.com/84991019/look-at-this-distinguished-gentleman)
+- [I just came to say Hello](https://news.puppy-snuggles.com/84835715/i-just-came-to-say-hello)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
