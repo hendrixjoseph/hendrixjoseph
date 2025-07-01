@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He’s a good boi!](https://news.puppy-snuggles.com/85684300/hes-a-good-boi)
-- [The many faces of Shep](https://news.puppy-snuggles.com/84835720/the-many-faces-of-shep)
-- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
-- [Post your sleepy dog!](https://news.puppy-snuggles.com/82985865/post-your-sleepy-dog)
-- [my 14 year old chi passed away on the 28th. I got this memorial tattoo of him it&amp;#039;s beautiful](https://news.puppy-snuggles.com/80541974/my-14-year-old-chi-passed-away-on-the-28th-i-got-this-memorial-tattoo-of-him-its-beautiful)
+- [Teddy just turned 3!](https://news.puppy-snuggles.com/85938249/teddy-just-turned-3)
+- [Such a handsome smile😁](https://news.puppy-snuggles.com/81760591/such-a-handsome-smile)
+- [Half corgi, half pitbull, all attitude!](https://news.puppy-snuggles.com/78992737/half-corgi-half-pitbull-all-attitude)
+- [Tyson as a puppy](https://news.puppy-snuggles.com/37669605/tyson-as-a-puppy)
+- [I have raised a monster... the monster:](https://news.puppy-snuggles.com/24291266/i-have-raised-a-monster-the-monster)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
