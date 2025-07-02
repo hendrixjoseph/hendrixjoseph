@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Teddy just turned 3!](https://news.puppy-snuggles.com/85938249/teddy-just-turned-3)
-- [Such a handsome smile😁](https://news.puppy-snuggles.com/81760591/such-a-handsome-smile)
-- [Half corgi, half pitbull, all attitude!](https://news.puppy-snuggles.com/78992737/half-corgi-half-pitbull-all-attitude)
-- [Tyson as a puppy](https://news.puppy-snuggles.com/37669605/tyson-as-a-puppy)
-- [I have raised a monster... the monster:](https://news.puppy-snuggles.com/24291266/i-have-raised-a-monster-the-monster)
+- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938247/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
+- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
+- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
+- [Here’s Oliver, my rescue pup](https://news.puppy-snuggles.com/84611318/heres-oliver-my-rescue-pup)
+- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
