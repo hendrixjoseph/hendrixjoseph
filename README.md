@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938247/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
-- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
-- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
-- [Here’s Oliver, my rescue pup](https://news.puppy-snuggles.com/84611318/heres-oliver-my-rescue-pup)
-- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
+- [My furbaby has heart cancer. Please pray for him 🙏](https://news.puppy-snuggles.com/84611316/my-furbaby-has-heart-cancer-please-pray-for-him)
+- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
+- [Bowser saying cheese !!!!](https://news.puppy-snuggles.com/84160426/bowser-saying-cheese)
+- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
+- [I like to eat grass, steal socks and pee in public places](https://news.puppy-snuggles.com/81553138/i-like-to-eat-grass-steal-socks-and-pee-in-public-places)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
