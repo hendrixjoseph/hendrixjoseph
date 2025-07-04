@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My furbaby has heart cancer. Please pray for him 🙏](https://news.puppy-snuggles.com/84611316/my-furbaby-has-heart-cancer-please-pray-for-him)
-- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
-- [Bowser saying cheese !!!!](https://news.puppy-snuggles.com/84160426/bowser-saying-cheese)
-- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
-- [I like to eat grass, steal socks and pee in public places](https://news.puppy-snuggles.com/81553138/i-like-to-eat-grass-steal-socks-and-pee-in-public-places)
+- [PAST due out – CODY is very urgent but this doesn’t have to be the end for him. He urgently needs: A Foster in CA, PNW,NV or AZ &lpar;temporary and zero costs&rpar; or a responsible adopter.](https://news.puppy-snuggles.com/86654102/past-due-out-cody-is-very-urgent-but-this-doesnt-have-to-be-the-end-for-him-he-urgently-needs-a-foster-in-ca-pnwnv-or-az-temporary-and-zero-costs-or-a-responsible-adopter)
+- [Does your puppy like baths? mine not, any suggeston？](https://news.puppy-snuggles.com/62713468/does-your-puppy-like-baths-mine-not-any-suggeston)
+- [Lucy a Rhodesian Ridge Back-hound dog mix](https://news.puppy-snuggles.com/26994811/lucy-a-rhodesian-ridge-back-hound-dog-mix)
+- [Love:&rpar;](https://news.puppy-snuggles.com/26994810/love)
+- [Smiling at love &amp;amp;lt;3](https://news.puppy-snuggles.com/26994809/smiling-at-love-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
