@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [PAST due out – CODY is very urgent but this doesn’t have to be the end for him. He urgently needs: A Foster in CA, PNW,NV or AZ &lpar;temporary and zero costs&rpar; or a responsible adopter.](https://news.puppy-snuggles.com/86654102/past-due-out-cody-is-very-urgent-but-this-doesnt-have-to-be-the-end-for-him-he-urgently-needs-a-foster-in-ca-pnwnv-or-az-temporary-and-zero-costs-or-a-responsible-adopter)
-- [Does your puppy like baths? mine not, any suggeston？](https://news.puppy-snuggles.com/62713468/does-your-puppy-like-baths-mine-not-any-suggeston)
-- [Lucy a Rhodesian Ridge Back-hound dog mix](https://news.puppy-snuggles.com/26994811/lucy-a-rhodesian-ridge-back-hound-dog-mix)
-- [Love:&rpar;](https://news.puppy-snuggles.com/26994810/love)
-- [Smiling at love &amp;amp;lt;3](https://news.puppy-snuggles.com/26994809/smiling-at-love-lt3)
+- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
+- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
+- [Charles happy with his stick ❤️](https://news.puppy-snuggles.com/82819374/charles-happy-with-his-stick)
+- [Send teef pics🙏🏻](https://news.puppy-snuggles.com/82201289/send-teef-pics)
+- [The best every shadow ever crossed the rainbow bridge two days ago](https://news.puppy-snuggles.com/82201291/the-best-every-shadow-ever-crossed-the-rainbow-bridge-two-days-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
