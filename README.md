@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
-- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
-- [Charles happy with his stick ❤️](https://news.puppy-snuggles.com/82819374/charles-happy-with-his-stick)
-- [Send teef pics🙏🏻](https://news.puppy-snuggles.com/82201289/send-teef-pics)
-- [The best every shadow ever crossed the rainbow bridge two days ago](https://news.puppy-snuggles.com/82201291/the-best-every-shadow-ever-crossed-the-rainbow-bridge-two-days-ago)
+- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
+- [Grin](https://news.puppy-snuggles.com/83895010/grin)
+- [This is Honey bun](https://news.puppy-snuggles.com/77479942/this-is-honey-bun)
+- [Post your dog tryin to hide](https://news.puppy-snuggles.com/61542370/post-your-dog-tryin-to-hide)
+- [‘It happened so quickly’: Woman says puppy was mauled to death by another dog at local dog park](https://news.puppy-snuggles.com/41470570/it-happened-so-quickly-woman-says-puppy-was-mauled-to-death-by-another-dog-at-local-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
