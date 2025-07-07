@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
-- [Grin](https://news.puppy-snuggles.com/83895010/grin)
-- [This is Honey bun](https://news.puppy-snuggles.com/77479942/this-is-honey-bun)
-- [Post your dog tryin to hide](https://news.puppy-snuggles.com/61542370/post-your-dog-tryin-to-hide)
-- [‘It happened so quickly’: Woman says puppy was mauled to death by another dog at local dog park](https://news.puppy-snuggles.com/41470570/it-happened-so-quickly-woman-says-puppy-was-mauled-to-death-by-another-dog-at-local-dog-park)
+- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938241/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
+- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
+- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
+- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
+- [This was the moment I knew I wasn’t getting anything done ever again…](https://news.puppy-snuggles.com/81350997/this-was-the-moment-i-knew-i-wasnt-getting-anything-done-ever-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
