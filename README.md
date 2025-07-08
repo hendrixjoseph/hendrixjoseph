@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [June 2025 Book Reading List](https://www.joehxblog.com/june-2025-book-reading-list/)
 - [June 2025 Blog Statistics](https://www.joehxblog.com/june-2025-blog-statistics/)
 - [May 2025 Book Reading List](https://www.joehxblog.com/may-2025-book-reading-list/)
 - [May 2025 Blog Statistics](https://www.joehxblog.com/may-2025-blog-statistics/)
 - [ChatGPT Spinach, Egg, &amp; Cheddar Fritters](https://www.joehxblog.com/chatgpt-spinach-egg-cheddar-fritters/)
-- [Will Pope Leo XIV Vote in US Elections and Pay US Taxes?](https://www.joehxblog.com/will-pope-leo-xiv-vote-in-us-elections-and-pay-us-taxes/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
