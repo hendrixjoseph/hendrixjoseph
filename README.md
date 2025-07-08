@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938241/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
-- [Some favorites of my bestie.](https://news.puppy-snuggles.com/85069743/some-favorites-of-my-bestie)
-- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
-- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
-- [This was the moment I knew I wasn’t getting anything done ever again…](https://news.puppy-snuggles.com/81350997/this-was-the-moment-i-knew-i-wasnt-getting-anything-done-ever-again)
+- [I&amp;#039;m already grown up](https://news.puppy-snuggles.com/85109336/im-already-grown-up)
+- [A happy pups and a happy customer. I love painting dogs like this!](https://news.puppy-snuggles.com/84684967/a-happy-pups-and-a-happy-customer-i-love-painting-dogs-like-this)
+- [Long naps are always necessary](https://news.puppy-snuggles.com/83781326/long-naps-are-always-necessary)
+- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
+- [Had to say goodbye to my old man today. Rest in peace Marley.](https://news.puppy-snuggles.com/81283527/had-to-say-goodbye-to-my-old-man-today-rest-in-peace-marley)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
