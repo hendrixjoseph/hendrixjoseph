@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&amp;#039;m already grown up](https://news.puppy-snuggles.com/85109336/im-already-grown-up)
-- [A happy pups and a happy customer. I love painting dogs like this!](https://news.puppy-snuggles.com/84684967/a-happy-pups-and-a-happy-customer-i-love-painting-dogs-like-this)
-- [Long naps are always necessary](https://news.puppy-snuggles.com/83781326/long-naps-are-always-necessary)
-- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
-- [Had to say goodbye to my old man today. Rest in peace Marley.](https://news.puppy-snuggles.com/81283527/had-to-say-goodbye-to-my-old-man-today-rest-in-peace-marley)
+- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
+- [It&amp;#039;s this girls birthday, she&amp;#039;s 8!](https://news.puppy-snuggles.com/83675385/its-this-girls-birthday-shes-8)
+- [Winston&amp;#039;s smile is kind of infectious lol](https://news.puppy-snuggles.com/80575443/winstons-smile-is-kind-of-infectious-lol)
+- [Before and now](https://news.puppy-snuggles.com/78042409/before-and-now)
+- [Well old friend, it&amp;#039;s been a year now and I still miss you.](https://news.puppy-snuggles.com/77915976/well-old-friend-its-been-a-year-now-and-i-still-miss-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
