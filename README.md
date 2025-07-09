@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Daily Simple Questions Thread - July 08, 2025](https://www.reddit.com/r/Fitness/comments/1lujr4c/daily_simple_questions_thread_july_08_2025/n22idzi/)
 - [/u/joehx on Third Quarter 2025; &#39;Official&#39; Referral Thread](https://www.reddit.com/r/CapitalOne_/comments/1lot70i/third_quarter_2025_official_referral_thread/n0xhbu8/)
 - [/u/joehx on Daily FI discussion thread - Monday, June 30, 2025](https://www.reddit.com/r/financialindependence/comments/1lo2q5l/daily_fi_discussion_thread_monday_june_30_2025/n0nj7wv/)
 - [/u/joehx on question on the AES Smart meters - how often does the screen update?](https://www.reddit.com/r/dayton/comments/1lo9u8y/question_on_the_aes_smart_meters_how_often_does/n0n8na6/)
 - [/u/joehx on question on the AES Smart meters - how often does the screen update?](https://www.reddit.com/r/dayton/comments/1lo9u8y/question_on_the_aes_smart_meters_how_often_does/n0mjtwk/)
-- [/u/joehx on question on the AES Smart meters - how often does the screen update?](https://www.reddit.com/r/dayton/comments/1lo9u8y/question_on_the_aes_smart_meters_how_often_does/n0mbejc/)
 <!-- REDDIT:END -->
