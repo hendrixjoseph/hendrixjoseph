@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
-- [It&amp;#039;s this girls birthday, she&amp;#039;s 8!](https://news.puppy-snuggles.com/83675385/its-this-girls-birthday-shes-8)
-- [Winston&amp;#039;s smile is kind of infectious lol](https://news.puppy-snuggles.com/80575443/winstons-smile-is-kind-of-infectious-lol)
-- [Before and now](https://news.puppy-snuggles.com/78042409/before-and-now)
-- [Well old friend, it&amp;#039;s been a year now and I still miss you.](https://news.puppy-snuggles.com/77915976/well-old-friend-its-been-a-year-now-and-i-still-miss-you)
+- [My cousin&amp;#039;s cute little doggie](https://news.puppy-snuggles.com/85187167/my-cousins-cute-little-doggie)
+- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
+- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
+- [I got a puppy ✨](https://news.puppy-snuggles.com/80179833/i-got-a-puppy)
+- [I lost this good boy a few years ago. And today I’m really missing him.](https://news.puppy-snuggles.com/77915972/i-lost-this-good-boy-a-few-years-ago-and-today-im-really-missing-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
