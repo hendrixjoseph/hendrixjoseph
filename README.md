@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My cousin&amp;#039;s cute little doggie](https://news.puppy-snuggles.com/85187167/my-cousins-cute-little-doggie)
-- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
-- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
-- [I got a puppy ✨](https://news.puppy-snuggles.com/80179833/i-got-a-puppy)
-- [I lost this good boy a few years ago. And today I’m really missing him.](https://news.puppy-snuggles.com/77915972/i-lost-this-good-boy-a-few-years-ago-and-today-im-really-missing-him)
+- [Good dogs rebuilding forest](https://news.puppy-snuggles.com/88915951/good-dogs-rebuilding-forest)
+- [My pretty gurl passed away in my arms last Wednesday 😞 she was such a sweet and loving companion. I miss her so much 🥺 Rest in peace Sophie](https://news.puppy-snuggles.com/85109340/my-pretty-gurl-passed-away-in-my-arms-last-wednesday-she-was-such-a-sweet-and-loving-companion-i-miss-her-so-much-rest-in-peace-sophie)
+- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
+- [Say hi to Charlie](https://news.puppy-snuggles.com/83056401/say-hi-to-charlie)
+- [This is Ozzy, my Jacktzu puppers. He looked so cute before coming in so I had to take a pic 🥹](https://news.puppy-snuggles.com/82953515/this-is-ozzy-my-jacktzu-puppers-he-looked-so-cute-before-coming-in-so-i-had-to-take-a-pic)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
