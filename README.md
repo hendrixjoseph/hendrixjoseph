@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good dogs rebuilding forest](https://news.puppy-snuggles.com/88915951/good-dogs-rebuilding-forest)
-- [My pretty gurl passed away in my arms last Wednesday 😞 she was such a sweet and loving companion. I miss her so much 🥺 Rest in peace Sophie](https://news.puppy-snuggles.com/85109340/my-pretty-gurl-passed-away-in-my-arms-last-wednesday-she-was-such-a-sweet-and-loving-companion-i-miss-her-so-much-rest-in-peace-sophie)
-- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
-- [Say hi to Charlie](https://news.puppy-snuggles.com/83056401/say-hi-to-charlie)
-- [This is Ozzy, my Jacktzu puppers. He looked so cute before coming in so I had to take a pic 🥹](https://news.puppy-snuggles.com/82953515/this-is-ozzy-my-jacktzu-puppers-he-looked-so-cute-before-coming-in-so-i-had-to-take-a-pic)
+- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
+- [From London to India — she crossed continents, not for comfort, but for compassion. Serving our paralysed dogs with love that defies age](https://news.puppy-snuggles.com/84611323/from-london-to-india-she-crossed-continents-not-for-comfort-but-for-compassion-serving-our-paralysed-dogs-with-love-that-defies-age)
+- [Happy Mother’s Day](https://news.puppy-snuggles.com/84432840/happy-mothers-day)
+- [2 months ago, my best friend crossed the Rainbow bridge](https://news.puppy-snuggles.com/84314049/2-months-ago-my-best-friend-crossed-the-rainbow-bridge)
+- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
