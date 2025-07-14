@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on ELI5: How would a gas engine needing to charge a hybrid battery make a car more efficient?](https://www.reddit.com/r/explainlikeimfive/comments/1lz2vyx/eli5_how_would_a_gas_engine_needing_to_charge_a/n2zbcus/)
+- [/u/joehx on ELI5: How would a gas engine needing to charge a hybrid battery make a car more efficient?](https://www.reddit.com/r/explainlikeimfive/comments/1lz2vyx/eli5_how_would_a_gas_engine_needing_to_charge_a/n2z30qs/)
 - [/u/joehx on How hard is it to put eggs in a basket?](https://www.reddit.com/r/KidsAreFuckingStupid/comments/1lxcks4/how_hard_is_it_to_put_eggs_in_a_basket/n2my3sk/)
 - [/u/joehx on I Am A Tax Attorney and Forbes Staff Writer. Ask Me Anything About Trump’s “Big Beautiful Bill” Tax Changes.](https://www.reddit.com/r/IAmA/comments/1lwei7v/i_am_a_tax_attorney_and_forbes_staff_writer_ask/n2mw22x/)
 - [/u/joehx on Two men and a truck-moving company review](https://www.reddit.com/r/dayton/comments/1lv6yy6/two_men_and_a_truckmoving_company_review/n263405/)
-- [/u/joehx on Daily Simple Questions Thread - July 08, 2025](https://www.reddit.com/r/Fitness/comments/1lujr4c/daily_simple_questions_thread_july_08_2025/n22idzi/)
-- [/u/joehx on Third Quarter 2025; &#39;Official&#39; Referral Thread](https://www.reddit.com/r/CapitalOne_/comments/1lot70i/third_quarter_2025_official_referral_thread/n0xhbu8/)
 <!-- REDDIT:END -->
