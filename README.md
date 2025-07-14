@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
-- [He crossed the rainbow bridge early this morning.](https://news.puppy-snuggles.com/78299667/he-crossed-the-rainbow-bridge-early-this-morning)
-- [Pretty sure I’ll never take as cute a photo of my dog.](https://news.puppy-snuggles.com/77980547/pretty-sure-ill-never-take-as-cute-a-photo-of-my-dog)
-- [during vs after I stopped with belly rubs](https://news.puppy-snuggles.com/77509279/during-vs-after-i-stopped-with-belly-rubs)
-- [Margo trying her best to stay awake thru the standoff.](https://news.puppy-snuggles.com/58152388/margo-trying-her-best-to-stay-awake-thru-the-standoff)
+- [Just wanna show you my dog](https://news.puppy-snuggles.com/88785837/just-wanna-show-you-my-dog)
+- [Coco 😍✨❤️](https://news.puppy-snuggles.com/85853738/coco)
+- [Let me sketch your dogs, drop their cute high quality pictures.](https://news.puppy-snuggles.com/85552406/let-me-sketch-your-dogs-drop-their-cute-high-quality-pictures)
+- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
+- [This is your sign to get a big dog](https://news.puppy-snuggles.com/84611320/this-is-your-sign-to-get-a-big-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
