@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [Questions I Had About the Chase Amazon Prime Visa](https://www.reddit.com/r/u_joehx/comments/1lzmyhw/questions_i_had_about_the_chase_amazon_prime_visa/)
 - [/u/joehx on ELI5: How would a gas engine needing to charge a hybrid battery make a car more efficient?](https://www.reddit.com/r/explainlikeimfive/comments/1lz2vyx/eli5_how_would_a_gas_engine_needing_to_charge_a/n2zbcus/)
 - [/u/joehx on ELI5: How would a gas engine needing to charge a hybrid battery make a car more efficient?](https://www.reddit.com/r/explainlikeimfive/comments/1lz2vyx/eli5_how_would_a_gas_engine_needing_to_charge_a/n2z30qs/)
 - [/u/joehx on How hard is it to put eggs in a basket?](https://www.reddit.com/r/KidsAreFuckingStupid/comments/1lxcks4/how_hard_is_it_to_put_eggs_in_a_basket/n2my3sk/)
 - [/u/joehx on I Am A Tax Attorney and Forbes Staff Writer. Ask Me Anything About Trump’s “Big Beautiful Bill” Tax Changes.](https://www.reddit.com/r/IAmA/comments/1lwei7v/i_am_a_tax_attorney_and_forbes_staff_writer_ask/n2mw22x/)
-- [/u/joehx on Two men and a truck-moving company review](https://www.reddit.com/r/dayton/comments/1lv6yy6/two_men_and_a_truckmoving_company_review/n263405/)
 <!-- REDDIT:END -->
