@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just wanna show you my dog](https://news.puppy-snuggles.com/88785837/just-wanna-show-you-my-dog)
-- [Coco 😍✨❤️](https://news.puppy-snuggles.com/85853738/coco)
-- [Let me sketch your dogs, drop their cute high quality pictures.](https://news.puppy-snuggles.com/85552406/let-me-sketch-your-dogs-drop-their-cute-high-quality-pictures)
-- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
-- [This is your sign to get a big dog](https://news.puppy-snuggles.com/84611320/this-is-your-sign-to-get-a-big-dog)
+- [They love laying together as sisters](https://news.puppy-snuggles.com/84574060/they-love-laying-together-as-sisters)
+- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
+- [This isn’t the dog park mom 😭](https://news.puppy-snuggles.com/83091225/this-isnt-the-dog-park-mom)
+- [A few bags ago I posted pics of our dog Kid and new puppy Waylon, here’s an update on them :&rpar;](https://news.puppy-snuggles.com/82344316/a-few-bags-ago-i-posted-pics-of-our-dog-kid-and-new-puppy-waylon-heres-an-update-on-them)
+- [When people ask to see a picture of my dog](https://news.puppy-snuggles.com/81658467/when-people-ask-to-see-a-picture-of-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
