@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [They love laying together as sisters](https://news.puppy-snuggles.com/84574060/they-love-laying-together-as-sisters)
-- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
-- [This isn’t the dog park mom 😭](https://news.puppy-snuggles.com/83091225/this-isnt-the-dog-park-mom)
-- [A few bags ago I posted pics of our dog Kid and new puppy Waylon, here’s an update on them :&rpar;](https://news.puppy-snuggles.com/82344316/a-few-bags-ago-i-posted-pics-of-our-dog-kid-and-new-puppy-waylon-heres-an-update-on-them)
-- [When people ask to see a picture of my dog](https://news.puppy-snuggles.com/81658467/when-people-ask-to-see-a-picture-of-my-dog)
+- [It’s been 11 years since you passed away,but my heart aches like it’s only been 11 minutes,you were flawless](https://news.puppy-snuggles.com/91078410/its-been-11-years-since-you-passed-awaybut-my-heart-aches-like-its-only-been-11-minutesyou-were-flawless)
+- [dog I walk during volunteering](https://news.puppy-snuggles.com/91078409/dog-i-walk-during-volunteering)
+- [I am constantly in awe of how much I love this creature](https://news.puppy-snuggles.com/91078412/i-am-constantly-in-awe-of-how-much-i-love-this-creature)
+- [I love this view💕](https://news.puppy-snuggles.com/91078418/i-love-this-view)
+- [My Lou bear proud of his toys ❤️ does anyone else have a second dog if so is it another Pom or a different breed?](https://news.puppy-snuggles.com/91078417/my-lou-bear-proud-of-his-toys-does-anyone-else-have-a-second-dog-if-so-is-it-another-pom-or-a-different-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
