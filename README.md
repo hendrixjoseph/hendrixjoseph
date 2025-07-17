@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s been 11 years since you passed away,but my heart aches like it’s only been 11 minutes,you were flawless](https://news.puppy-snuggles.com/91078410/its-been-11-years-since-you-passed-awaybut-my-heart-aches-like-its-only-been-11-minutesyou-were-flawless)
-- [dog I walk during volunteering](https://news.puppy-snuggles.com/91078409/dog-i-walk-during-volunteering)
-- [I am constantly in awe of how much I love this creature](https://news.puppy-snuggles.com/91078412/i-am-constantly-in-awe-of-how-much-i-love-this-creature)
-- [I love this view💕](https://news.puppy-snuggles.com/91078418/i-love-this-view)
-- [My Lou bear proud of his toys ❤️ does anyone else have a second dog if so is it another Pom or a different breed?](https://news.puppy-snuggles.com/91078417/my-lou-bear-proud-of-his-toys-does-anyone-else-have-a-second-dog-if-so-is-it-another-pom-or-a-different-breed)
+- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
+- [Jack the dog &lpar;13&rpar; passed peacefully this morning. He was a very good boy 🩷](https://news.puppy-snuggles.com/70359422/jack-the-dog-13-passed-peacefully-this-morning-he-was-a-very-good-boy)
+- [The bestest, goodest, girl ever….](https://news.puppy-snuggles.com/65872987/the-bestest-goodest-girl-ever)
+- [Very cute dog](https://news.puppy-snuggles.com/46747687/very-cute-dog)
+- [Sunday Dumple](https://news.puppy-snuggles.com/27791113/sunday-dumple)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
