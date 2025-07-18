@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
-- [Jack the dog &lpar;13&rpar; passed peacefully this morning. He was a very good boy 🩷](https://news.puppy-snuggles.com/70359422/jack-the-dog-13-passed-peacefully-this-morning-he-was-a-very-good-boy)
-- [The bestest, goodest, girl ever….](https://news.puppy-snuggles.com/65872987/the-bestest-goodest-girl-ever)
-- [Very cute dog](https://news.puppy-snuggles.com/46747687/very-cute-dog)
-- [Sunday Dumple](https://news.puppy-snuggles.com/27791113/sunday-dumple)
+- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [Hal, the blind, one eyed dog](https://news.puppy-snuggles.com/84351624/hal-the-blind-one-eyed-dog)
+- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
+- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
