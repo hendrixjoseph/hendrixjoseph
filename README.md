@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [July 2025 Blog Statistics](https://www.joehxblog.com/july-2025-blog-statistics/)
 - [Questions I Had About the Chase Amazon Prime Visa](https://www.joehxblog.com/questions-i-had-about-the-chase-amazon-prime-visa/)
 - [June 2025 Book Reading List](https://www.joehxblog.com/june-2025-book-reading-list/)
 - [June 2025 Blog Statistics](https://www.joehxblog.com/june-2025-blog-statistics/)
 - [May 2025 Book Reading List](https://www.joehxblog.com/may-2025-book-reading-list/)
-- [May 2025 Blog Statistics](https://www.joehxblog.com/may-2025-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
