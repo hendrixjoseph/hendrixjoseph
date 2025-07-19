@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [Hal, the blind, one eyed dog](https://news.puppy-snuggles.com/84351624/hal-the-blind-one-eyed-dog)
-- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
-- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
+- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [Iggy telling me he’d really like my food](https://news.puppy-snuggles.com/83851260/iggy-telling-me-hed-really-like-my-food)
+- [A few bags ago I posted pics of our dog Kid and new puppy Waylon, here’s an update on them :&rpar;](https://news.puppy-snuggles.com/82344316/a-few-bags-ago-i-posted-pics-of-our-dog-kid-and-new-puppy-waylon-heres-an-update-on-them)
+- [Who Rescued Whom?](https://news.puppy-snuggles.com/81252272/who-rescued-whom)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
