@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [Iggy telling me he’d really like my food](https://news.puppy-snuggles.com/83851260/iggy-telling-me-hed-really-like-my-food)
-- [A few bags ago I posted pics of our dog Kid and new puppy Waylon, here’s an update on them :&rpar;](https://news.puppy-snuggles.com/82344316/a-few-bags-ago-i-posted-pics-of-our-dog-kid-and-new-puppy-waylon-heres-an-update-on-them)
-- [Who Rescued Whom?](https://news.puppy-snuggles.com/81252272/who-rescued-whom)
+- [Our dog died yesterday, She’s been with us since I was baby . Run free Mitsy you will always be in our hearts](https://news.puppy-snuggles.com/85425543/our-dog-died-yesterday-shes-been-with-us-since-i-was-baby-run-free-mitsy-you-will-always-be-in-our-hearts)
+- [Groomers hooked my boy up with a nice tie I just crack up everytime I see him 😆😆♥️](https://news.puppy-snuggles.com/84351622/groomers-hooked-my-boy-up-with-a-nice-tie-i-just-crack-up-everytime-i-see-him)
+- [Such a happy girl](https://news.puppy-snuggles.com/84007871/such-a-happy-girl)
+- [My second adoption turned one! Happy birthday Enzo sorry for the bath &lpar;he was in the pond before the second pic&rpar;](https://news.puppy-snuggles.com/83542413/my-second-adoption-turned-one-happy-birthday-enzo-sorry-for-the-bath-he-was-in-the-pond-before-the-second-pic)
+- [Say hi to Charlie](https://news.puppy-snuggles.com/83056401/say-hi-to-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
