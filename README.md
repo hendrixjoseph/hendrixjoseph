@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our dog died yesterday, She’s been with us since I was baby . Run free Mitsy you will always be in our hearts](https://news.puppy-snuggles.com/85425543/our-dog-died-yesterday-shes-been-with-us-since-i-was-baby-run-free-mitsy-you-will-always-be-in-our-hearts)
-- [Groomers hooked my boy up with a nice tie I just crack up everytime I see him 😆😆♥️](https://news.puppy-snuggles.com/84351622/groomers-hooked-my-boy-up-with-a-nice-tie-i-just-crack-up-everytime-i-see-him)
-- [Such a happy girl](https://news.puppy-snuggles.com/84007871/such-a-happy-girl)
-- [My second adoption turned one! Happy birthday Enzo sorry for the bath &lpar;he was in the pond before the second pic&rpar;](https://news.puppy-snuggles.com/83542413/my-second-adoption-turned-one-happy-birthday-enzo-sorry-for-the-bath-he-was-in-the-pond-before-the-second-pic)
-- [Say hi to Charlie](https://news.puppy-snuggles.com/83056401/say-hi-to-charlie)
+- [Most frequently asked questions to fur parents 😂](https://news.puppy-snuggles.com/88449479/most-frequently-asked-questions-to-fur-parents)
+- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
+- [I have to say goodbye to my 14.5 year old soul dog tomorrow](https://news.puppy-snuggles.com/84351619/i-have-to-say-goodbye-to-my-145-year-old-soul-dog-tomorrow)
+- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
+- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
