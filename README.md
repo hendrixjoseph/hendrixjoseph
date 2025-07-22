@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Most frequently asked questions to fur parents 😂](https://news.puppy-snuggles.com/88449479/most-frequently-asked-questions-to-fur-parents)
-- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
-- [I have to say goodbye to my 14.5 year old soul dog tomorrow](https://news.puppy-snuggles.com/84351619/i-have-to-say-goodbye-to-my-145-year-old-soul-dog-tomorrow)
-- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
-- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
+- [My buddy](https://news.puppy-snuggles.com/91807499/my-buddy)
+- [Rescue puppy](https://news.puppy-snuggles.com/86877482/rescue-puppy)
+- [Happy 10th Birthday Gatsby](https://news.puppy-snuggles.com/86414334/happy-10th-birthday-gatsby)
+- [I think my dog has a Christmas tree addiction! She gets all mellow like she&amp;#039;s high when she enters the realm of the Christmas tree. We got a living one and it lives outside the rest of the year. She does this when it is inside as well and did it with the first tree we got too. Is she tripping?!?](https://news.puppy-snuggles.com/85804766/i-think-my-dog-has-a-christmas-tree-addiction-she-gets-all-mellow-like-shes-high-when-she-enters-the-realm-of-the-christmas-tree-we-got-a-living-one-and-it-lives-outside-the-rest-of-the-year-she-does-this-when-it-is-inside-as-well-and-did-it-with-the-first-tree-we-got-too-is-she-tripping)
+- [My old gal](https://news.puppy-snuggles.com/71105252/my-old-gal)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
