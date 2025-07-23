@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My buddy](https://news.puppy-snuggles.com/91807499/my-buddy)
-- [Rescue puppy](https://news.puppy-snuggles.com/86877482/rescue-puppy)
-- [Happy 10th Birthday Gatsby](https://news.puppy-snuggles.com/86414334/happy-10th-birthday-gatsby)
-- [I think my dog has a Christmas tree addiction! She gets all mellow like she&amp;#039;s high when she enters the realm of the Christmas tree. We got a living one and it lives outside the rest of the year. She does this when it is inside as well and did it with the first tree we got too. Is she tripping?!?](https://news.puppy-snuggles.com/85804766/i-think-my-dog-has-a-christmas-tree-addiction-she-gets-all-mellow-like-shes-high-when-she-enters-the-realm-of-the-christmas-tree-we-got-a-living-one-and-it-lives-outside-the-rest-of-the-year-she-does-this-when-it-is-inside-as-well-and-did-it-with-the-first-tree-we-got-too-is-she-tripping)
-- [My old gal](https://news.puppy-snuggles.com/71105252/my-old-gal)
+- [My boy - prefart and post fart.](https://news.puppy-snuggles.com/91807494/my-boy-prefart-and-post-fart)
+- [We found out today Gus doesn’t have cancer!](https://news.puppy-snuggles.com/91307989/we-found-out-today-gus-doesnt-have-cancer)
+- [I post about my dog a lot so I’m gonna do it again. My boy Zeus!](https://news.puppy-snuggles.com/87938393/i-post-about-my-dog-a-lot-so-im-gonna-do-it-again-my-boy-zeus)
+- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
+- [This little guy has half a brain cell only used to spin for treats](https://news.puppy-snuggles.com/84874198/this-little-guy-has-half-a-brain-cell-only-used-to-spin-for-treats)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
