@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy - prefart and post fart.](https://news.puppy-snuggles.com/91807494/my-boy-prefart-and-post-fart)
-- [We found out today Gus doesn’t have cancer!](https://news.puppy-snuggles.com/91307989/we-found-out-today-gus-doesnt-have-cancer)
-- [I post about my dog a lot so I’m gonna do it again. My boy Zeus!](https://news.puppy-snuggles.com/87938393/i-post-about-my-dog-a-lot-so-im-gonna-do-it-again-my-boy-zeus)
-- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
-- [This little guy has half a brain cell only used to spin for treats](https://news.puppy-snuggles.com/84874198/this-little-guy-has-half-a-brain-cell-only-used-to-spin-for-treats)
+- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
+- [How could anyone have a bad day after seeing this angel? He smiles all the time too.](https://news.puppy-snuggles.com/64295088/how-could-anyone-have-a-bad-day-after-seeing-this-angel-he-smiles-all-the-time-too)
+- [My old man](https://news.puppy-snuggles.com/63562080/my-old-man)
+- [My little buddy being happy as ever on the coast](https://news.puppy-snuggles.com/61180364/my-little-buddy-being-happy-as-ever-on-the-coast)
+- [do you trust your dog regarding your babies?](https://news.puppy-snuggles.com/40758311/do-you-trust-your-dog-regarding-your-babies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
