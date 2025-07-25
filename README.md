@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 14 year old pup when she was young](https://news.puppy-snuggles.com/64295086/my-14-year-old-pup-when-she-was-young)
-- [How could anyone have a bad day after seeing this angel? He smiles all the time too.](https://news.puppy-snuggles.com/64295088/how-could-anyone-have-a-bad-day-after-seeing-this-angel-he-smiles-all-the-time-too)
-- [My old man](https://news.puppy-snuggles.com/63562080/my-old-man)
-- [My little buddy being happy as ever on the coast](https://news.puppy-snuggles.com/61180364/my-little-buddy-being-happy-as-ever-on-the-coast)
-- [do you trust your dog regarding your babies?](https://news.puppy-snuggles.com/40758311/do-you-trust-your-dog-regarding-your-babies)
+- [We named her Lana, after Lana Del Rey 🖤](https://news.puppy-snuggles.com/90101631/we-named-her-lana-after-lana-del-rey)
+- [If judgemental were a breed of dog I think that would be my daughter’s dog’s breed](https://news.puppy-snuggles.com/78403649/if-judgemental-were-a-breed-of-dog-i-think-that-would-be-my-daughters-dogs-breed)
+- [Happy 3rd birthday Reese.](https://news.puppy-snuggles.com/70419609/happy-3rd-birthday-reese)
+- [Scarry](https://news.puppy-snuggles.com/58018763/scarry)
+- [Post your “caught red handed” pictures](https://news.puppy-snuggles.com/56344550/post-your-caught-red-handed-pictures)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
