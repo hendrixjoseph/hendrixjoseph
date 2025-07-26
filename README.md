@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We named her Lana, after Lana Del Rey 🖤](https://news.puppy-snuggles.com/90101631/we-named-her-lana-after-lana-del-rey)
-- [If judgemental were a breed of dog I think that would be my daughter’s dog’s breed](https://news.puppy-snuggles.com/78403649/if-judgemental-were-a-breed-of-dog-i-think-that-would-be-my-daughters-dogs-breed)
-- [Happy 3rd birthday Reese.](https://news.puppy-snuggles.com/70419609/happy-3rd-birthday-reese)
-- [Scarry](https://news.puppy-snuggles.com/58018763/scarry)
-- [Post your “caught red handed” pictures](https://news.puppy-snuggles.com/56344550/post-your-caught-red-handed-pictures)
+- [Its someones birthday today. She&amp;#039;s trying her best to contain herself...](https://news.puppy-snuggles.com/89934593/its-someones-birthday-today-shes-trying-her-best-to-contain-herself)
+- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
+- [Wish me luck guys. I’m going to try and get this baby in the morning. I’ll update tomorrow.](https://news.puppy-snuggles.com/85298194/wish-me-luck-guys-im-going-to-try-and-get-this-baby-in-the-morning-ill-update-tomorrow)
+- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
+- [My baby turned 12 yrs old!](https://news.puppy-snuggles.com/82985867/my-baby-turned-12-yrs-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
