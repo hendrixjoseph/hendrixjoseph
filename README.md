@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Its someones birthday today. She&amp;#039;s trying her best to contain herself...](https://news.puppy-snuggles.com/89934593/its-someones-birthday-today-shes-trying-her-best-to-contain-herself)
-- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
-- [Wish me luck guys. I’m going to try and get this baby in the morning. I’ll update tomorrow.](https://news.puppy-snuggles.com/85298194/wish-me-luck-guys-im-going-to-try-and-get-this-baby-in-the-morning-ill-update-tomorrow)
-- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
-- [My baby turned 12 yrs old!](https://news.puppy-snuggles.com/82985867/my-baby-turned-12-yrs-old)
+- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
+- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
+- [Refusing to go inside because he want to sunbathe has never looked so regal](https://news.puppy-snuggles.com/81553140/refusing-to-go-inside-because-he-want-to-sunbathe-has-never-looked-so-regal)
+- [My little shitstain ❤️](https://news.puppy-snuggles.com/81083971/my-little-shitstain)
+- [It is my babies 4th birthday! Happy Birthday Nala 🌺](https://news.puppy-snuggles.com/80145870/it-is-my-babies-4th-birthday-happy-birthday-nala)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
