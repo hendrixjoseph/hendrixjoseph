@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
-- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
-- [Refusing to go inside because he want to sunbathe has never looked so regal](https://news.puppy-snuggles.com/81553140/refusing-to-go-inside-because-he-want-to-sunbathe-has-never-looked-so-regal)
-- [My little shitstain ❤️](https://news.puppy-snuggles.com/81083971/my-little-shitstain)
-- [It is my babies 4th birthday! Happy Birthday Nala 🌺](https://news.puppy-snuggles.com/80145870/it-is-my-babies-4th-birthday-happy-birthday-nala)
+- [If you had to choose, would you sleep with your dog or with your human partner?](https://news.puppy-snuggles.com/85298190/if-you-had-to-choose-would-you-sleep-with-your-dog-or-with-your-human-partner)
+- [Domi says hi!](https://news.puppy-snuggles.com/84874195/domi-says-hi)
+- [My son is my dogs favorite person. This is how he acts every time my son comes home from college.](https://news.puppy-snuggles.com/84684962/my-son-is-my-dogs-favorite-person-this-is-how-he-acts-every-time-my-son-comes-home-from-college)
+- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
+- [Adopting this fella next week, need to decide on a name!](https://news.puppy-snuggles.com/83412308/adopting-this-fella-next-week-need-to-decide-on-a-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
