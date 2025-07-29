@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If you had to choose, would you sleep with your dog or with your human partner?](https://news.puppy-snuggles.com/85298190/if-you-had-to-choose-would-you-sleep-with-your-dog-or-with-your-human-partner)
-- [Domi says hi!](https://news.puppy-snuggles.com/84874195/domi-says-hi)
-- [My son is my dogs favorite person. This is how he acts every time my son comes home from college.](https://news.puppy-snuggles.com/84684962/my-son-is-my-dogs-favorite-person-this-is-how-he-acts-every-time-my-son-comes-home-from-college)
-- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
-- [Adopting this fella next week, need to decide on a name!](https://news.puppy-snuggles.com/83412308/adopting-this-fella-next-week-need-to-decide-on-a-name)
+- [Our family just adopted this cutie. What should we name her????](https://news.puppy-snuggles.com/90819555/our-family-just-adopted-this-cutie-what-should-we-name-her)
+- [Sweetie I saw at Walmart](https://news.puppy-snuggles.com/89969409/sweetie-i-saw-at-walmart)
+- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
+- [My beloved dog is in heaven since an hour ago.](https://news.puppy-snuggles.com/83280106/my-beloved-dog-is-in-heaven-since-an-hour-ago)
+- [Daily dose of belle](https://news.puppy-snuggles.com/81318998/daily-dose-of-belle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
