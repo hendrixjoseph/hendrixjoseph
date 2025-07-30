@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our family just adopted this cutie. What should we name her????](https://news.puppy-snuggles.com/90819555/our-family-just-adopted-this-cutie-what-should-we-name-her)
-- [Sweetie I saw at Walmart](https://news.puppy-snuggles.com/89969409/sweetie-i-saw-at-walmart)
-- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
-- [My beloved dog is in heaven since an hour ago.](https://news.puppy-snuggles.com/83280106/my-beloved-dog-is-in-heaven-since-an-hour-ago)
-- [Daily dose of belle](https://news.puppy-snuggles.com/81318998/daily-dose-of-belle)
+- [Pepperoni in one of her King Size Floor Beds.](https://news.puppy-snuggles.com/90391802/pepperoni-in-one-of-her-king-size-floor-beds)
+- [Primrose turned 1 today 👑💜](https://news.puppy-snuggles.com/90391805/primrose-turned-1-today)
+- [Does anyone else’s dog start to cuddle in awkward ways?](https://news.puppy-snuggles.com/90391800/does-anyone-elses-dog-start-to-cuddle-in-awkward-ways)
+- [I never realized how much a dog could change your life until I got one.](https://news.puppy-snuggles.com/88785843/i-never-realized-how-much-a-dog-could-change-your-life-until-i-got-one)
+- [Puppy Smiles Galore - Best Perk of Pet Sitting](https://news.puppy-snuggles.com/86300462/puppy-smiles-galore-best-perk-of-pet-sitting)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
