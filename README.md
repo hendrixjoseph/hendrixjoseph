@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pepperoni in one of her King Size Floor Beds.](https://news.puppy-snuggles.com/90391802/pepperoni-in-one-of-her-king-size-floor-beds)
-- [Primrose turned 1 today 👑💜](https://news.puppy-snuggles.com/90391805/primrose-turned-1-today)
-- [Does anyone else’s dog start to cuddle in awkward ways?](https://news.puppy-snuggles.com/90391800/does-anyone-elses-dog-start-to-cuddle-in-awkward-ways)
-- [I never realized how much a dog could change your life until I got one.](https://news.puppy-snuggles.com/88785843/i-never-realized-how-much-a-dog-could-change-your-life-until-i-got-one)
-- [Puppy Smiles Galore - Best Perk of Pet Sitting](https://news.puppy-snuggles.com/86300462/puppy-smiles-galore-best-perk-of-pet-sitting)
+- [Update: Henry](https://news.puppy-snuggles.com/90949578/update-henry)
+- [I&amp;#039;m already grown up](https://news.puppy-snuggles.com/85109336/im-already-grown-up)
+- [Lost my side kick!](https://news.puppy-snuggles.com/84508638/lost-my-side-kick)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 180](https://news.puppy-snuggles.com/83895014/365-days-of-pepperoni-her-mama-day-180)
+- [Got my first ever puppy. She’s 2 months old and just a baby. Would love name suggestions!](https://news.puppy-snuggles.com/81151361/got-my-first-ever-puppy-shes-2-months-old-and-just-a-baby-would-love-name-suggestions)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
