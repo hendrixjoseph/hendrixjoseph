@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Update: Henry](https://news.puppy-snuggles.com/90949578/update-henry)
-- [I&amp;#039;m already grown up](https://news.puppy-snuggles.com/85109336/im-already-grown-up)
-- [Lost my side kick!](https://news.puppy-snuggles.com/84508638/lost-my-side-kick)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 180](https://news.puppy-snuggles.com/83895014/365-days-of-pepperoni-her-mama-day-180)
-- [Got my first ever puppy. She’s 2 months old and just a baby. Would love name suggestions!](https://news.puppy-snuggles.com/81151361/got-my-first-ever-puppy-shes-2-months-old-and-just-a-baby-would-love-name-suggestions)
+- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
+- [Domino turns 6 today!](https://news.puppy-snuggles.com/84432837/domino-turns-6-today)
+- [Let’s see the funniest picture of your dog](https://news.puppy-snuggles.com/83971587/lets-see-the-funniest-picture-of-your-dog)
+- [Lost my best friend on Saturday](https://news.puppy-snuggles.com/83895008/lost-my-best-friend-on-saturday)
+- [Ronald](https://news.puppy-snuggles.com/83188616/ronald)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
