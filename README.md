@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
-- [Domino turns 6 today!](https://news.puppy-snuggles.com/84432837/domino-turns-6-today)
-- [Let’s see the funniest picture of your dog](https://news.puppy-snuggles.com/83971587/lets-see-the-funniest-picture-of-your-dog)
-- [Lost my best friend on Saturday](https://news.puppy-snuggles.com/83895008/lost-my-best-friend-on-saturday)
-- [Ronald](https://news.puppy-snuggles.com/83188616/ronald)
+- [All smiles with his bone😍](https://news.puppy-snuggles.com/92251021/all-smiles-with-his-bone)
+- [I Know I&amp;#039;m Biased, but My Margot has the Prettiest Eyes](https://news.puppy-snuggles.com/92061401/i-know-im-biased-but-my-margot-has-the-prettiest-eyes)
+- [Meet Hank.](https://news.puppy-snuggles.com/87815273/meet-hank)
+- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
+- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
