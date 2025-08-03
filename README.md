@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All smiles with his bone😍](https://news.puppy-snuggles.com/92251021/all-smiles-with-his-bone)
-- [I Know I&amp;#039;m Biased, but My Margot has the Prettiest Eyes](https://news.puppy-snuggles.com/92061401/i-know-im-biased-but-my-margot-has-the-prettiest-eyes)
-- [Meet Hank.](https://news.puppy-snuggles.com/87815273/meet-hank)
-- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
-- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
+- [An older puppy](https://news.puppy-snuggles.com/84045725/an-older-puppy)
+- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
+- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
+- [Odd smiling is my only way of smiling](https://news.puppy-snuggles.com/58228581/odd-smiling-is-my-only-way-of-smiling)
+- [Today is my cakeday! Show your dogs in the comments and I’ll draw as many of their colourful portraits as I can!](https://news.puppy-snuggles.com/53165080/today-is-my-cakeday-show-your-dogs-in-the-comments-and-ill-draw-as-many-of-their-colourful-portraits-as-i-can)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
