@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [An older puppy](https://news.puppy-snuggles.com/84045725/an-older-puppy)
-- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
-- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
-- [Odd smiling is my only way of smiling](https://news.puppy-snuggles.com/58228581/odd-smiling-is-my-only-way-of-smiling)
-- [Today is my cakeday! Show your dogs in the comments and I’ll draw as many of their colourful portraits as I can!](https://news.puppy-snuggles.com/53165080/today-is-my-cakeday-show-your-dogs-in-the-comments-and-ill-draw-as-many-of-their-colourful-portraits-as-i-can)
+- [I need to tell the world about Jake](https://news.puppy-snuggles.com/91175760/i-need-to-tell-the-world-about-jake)
+- [The most dapper sploot](https://news.puppy-snuggles.com/86337987/the-most-dapper-sploot)
+- [I personally think she likes her new hair, right..?](https://news.puppy-snuggles.com/84508643/i-personally-think-she-likes-her-new-hair-right)
+- [Dog or Dolphin?](https://news.puppy-snuggles.com/84118655/dog-or-dolphin)
+- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
