@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I need to tell the world about Jake](https://news.puppy-snuggles.com/91175760/i-need-to-tell-the-world-about-jake)
-- [The most dapper sploot](https://news.puppy-snuggles.com/86337987/the-most-dapper-sploot)
-- [I personally think she likes her new hair, right..?](https://news.puppy-snuggles.com/84508643/i-personally-think-she-likes-her-new-hair-right)
-- [Dog or Dolphin?](https://news.puppy-snuggles.com/84118655/dog-or-dolphin)
-- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
+- [Teddy](https://news.puppy-snuggles.com/88528250/teddy)
+- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
+- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
+- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
+- [Post your dog jumping](https://news.puppy-snuggles.com/82819377/post-your-dog-jumping)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
