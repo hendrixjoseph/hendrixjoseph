@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Teddy](https://news.puppy-snuggles.com/88528250/teddy)
-- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
-- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
-- [The pain of losing you still hurts after 2 months](https://news.puppy-snuggles.com/84761717/the-pain-of-losing-you-still-hurts-after-2-months)
-- [Post your dog jumping](https://news.puppy-snuggles.com/82819377/post-your-dog-jumping)
+- [I&amp;#039;m losing my best friend](https://news.puppy-snuggles.com/88561055/im-losing-my-best-friend)
+- [Our dog has eyebrows](https://news.puppy-snuggles.com/84947384/our-dog-has-eyebrows)
+- [This is your sign to get a big dog](https://news.puppy-snuggles.com/84611320/this-is-your-sign-to-get-a-big-dog)
+- [Is my shelter dog gotten obese? She was thin when we got her but also has a ton of extra skin from being a breeder dog, however I’m worried that she’s gotten too chunky? What do I do if she has, she has a lot of trauma around food?](https://news.puppy-snuggles.com/83707719/is-my-shelter-dog-gotten-obese-she-was-thin-when-we-got-her-but-also-has-a-ton-of-extra-skin-from-being-a-breeder-dog-however-im-worried-that-shes-gotten-too-chunky-what-do-i-do-if-she-has-she-has-a-lot-of-trauma-around-food)
+- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
