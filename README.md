@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&amp;#039;m losing my best friend](https://news.puppy-snuggles.com/88561055/im-losing-my-best-friend)
-- [Our dog has eyebrows](https://news.puppy-snuggles.com/84947384/our-dog-has-eyebrows)
-- [This is your sign to get a big dog](https://news.puppy-snuggles.com/84611320/this-is-your-sign-to-get-a-big-dog)
-- [Is my shelter dog gotten obese? She was thin when we got her but also has a ton of extra skin from being a breeder dog, however I’m worried that she’s gotten too chunky? What do I do if she has, she has a lot of trauma around food?](https://news.puppy-snuggles.com/83707719/is-my-shelter-dog-gotten-obese-she-was-thin-when-we-got-her-but-also-has-a-ton-of-extra-skin-from-being-a-breeder-dog-however-im-worried-that-shes-gotten-too-chunky-what-do-i-do-if-she-has-she-has-a-lot-of-trauma-around-food)
-- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 249](https://news.puppy-snuggles.com/93647728/365-days-of-pepperoni-her-mama-day-249)
+- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
+- [Primrose turned 1 today 👑💜](https://news.puppy-snuggles.com/90391805/primrose-turned-1-today)
+- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
+- [Took the neighbours dog for a walk for the first time- before and after](https://news.puppy-snuggles.com/86847773/took-the-neighbours-dog-for-a-walk-for-the-first-time-before-and-after)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
