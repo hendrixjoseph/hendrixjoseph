@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 249](https://news.puppy-snuggles.com/93647728/365-days-of-pepperoni-her-mama-day-249)
-- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
-- [Primrose turned 1 today 👑💜](https://news.puppy-snuggles.com/90391805/primrose-turned-1-today)
-- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
-- [Took the neighbours dog for a walk for the first time- before and after](https://news.puppy-snuggles.com/86847773/took-the-neighbours-dog-for-a-walk-for-the-first-time-before-and-after)
+- [Mr. Benny Boy, being cute as always 💛](https://news.puppy-snuggles.com/84118656/mr-benny-boy-being-cute-as-always)
+- [puppy teeth, last week vs this week!](https://news.puppy-snuggles.com/84045729/puppy-teeth-last-week-vs-this-week)
+- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
+- [The face my dog makes when she’s caught doing something bad 😂](https://news.puppy-snuggles.com/83375222/the-face-my-dog-makes-when-shes-caught-doing-something-bad)
+- [Today is his last day on this Earth](https://news.puppy-snuggles.com/83280105/today-is-his-last-day-on-this-earth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
