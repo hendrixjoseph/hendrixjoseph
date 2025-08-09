@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mr. Benny Boy, being cute as always 💛](https://news.puppy-snuggles.com/84118656/mr-benny-boy-being-cute-as-always)
-- [puppy teeth, last week vs this week!](https://news.puppy-snuggles.com/84045729/puppy-teeth-last-week-vs-this-week)
-- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
-- [The face my dog makes when she’s caught doing something bad 😂](https://news.puppy-snuggles.com/83375222/the-face-my-dog-makes-when-shes-caught-doing-something-bad)
-- [Today is his last day on this Earth](https://news.puppy-snuggles.com/83280105/today-is-his-last-day-on-this-earth)
+- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
+- [We broke out the pound!](https://news.puppy-snuggles.com/84045722/we-broke-out-the-pound)
+- [Sweet Sam turned 13 this week ❤️](https://news.puppy-snuggles.com/83781318/sweet-sam-turned-13-this-week)
+- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
+- [MY FUCKING DOG KEEPS EATING EVERYTHING](https://news.puppy-snuggles.com/83188618/my-fucking-dog-keeps-eating-everything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
