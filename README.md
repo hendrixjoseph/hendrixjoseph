@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What’s an everyday product you think will be banned in the future for health reasons?](https://www.reddit.com/r/AskReddit/comments/1ml2kcb/whats_an_everyday_product_you_think_will_be/n7o6cbq/)
 - [/u/joehx on What is the fastest you have ever driven a car?](https://www.reddit.com/r/AskReddit/comments/1mka5tc/what_is_the_fastest_you_have_ever_driven_a_car/n7h80lx/)
 - [/u/joehx on What&#39;s so bad about having your cake and eating it too? What&#39;s the point of having a cake if you can&#39;t eat it?](https://www.reddit.com/r/AskReddit/comments/1mka91d/whats_so_bad_about_having_your_cake_and_eating_it/n7h7irm/)
 - [/u/joehx on What’s a widely accepted &#39;fact&#39; that you’re 100% sure is completely wrong?](https://www.reddit.com/r/AskReddit/comments/1m6vz4d/whats_a_widely_accepted_fact_that_youre_100_sure/n4sp4n2/)
 - [/u/joehx on Today I have discovered the &quot;Code too large&quot; error](https://www.reddit.com/r/java/comments/1m2nq47/today_i_have_discovered_the_code_too_large_error/n3tof4f/)
-- [Questions I Had About the Chase Amazon Prime Visa](https://www.reddit.com/r/u_joehx/comments/1lzmyhw/questions_i_had_about_the_chase_amazon_prime_visa/)
 <!-- REDDIT:END -->
