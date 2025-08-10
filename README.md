@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
-- [We broke out the pound!](https://news.puppy-snuggles.com/84045722/we-broke-out-the-pound)
-- [Sweet Sam turned 13 this week ❤️](https://news.puppy-snuggles.com/83781318/sweet-sam-turned-13-this-week)
-- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
-- [MY FUCKING DOG KEEPS EATING EVERYTHING](https://news.puppy-snuggles.com/83188618/my-fucking-dog-keeps-eating-everything)
+- [Play time!](https://news.puppy-snuggles.com/93070789/play-time)
+- [Franquito, our neighbors dog, showed up on my wife&amp;#039;s birthday. He&amp;#039;s a chill boy](https://news.puppy-snuggles.com/85298186/franquito-our-neighbors-dog-showed-up-on-my-wifes-birthday-hes-a-chill-boy)
+- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
+- [She was trying to eat a fly 😅](https://news.puppy-snuggles.com/83643214/she-was-trying-to-eat-a-fly)
+- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
