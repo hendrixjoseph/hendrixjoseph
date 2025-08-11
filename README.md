@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Play time!](https://news.puppy-snuggles.com/93070789/play-time)
-- [Franquito, our neighbors dog, showed up on my wife&amp;#039;s birthday. He&amp;#039;s a chill boy](https://news.puppy-snuggles.com/85298186/franquito-our-neighbors-dog-showed-up-on-my-wifes-birthday-hes-a-chill-boy)
-- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
-- [She was trying to eat a fly 😅](https://news.puppy-snuggles.com/83643214/she-was-trying-to-eat-a-fly)
-- [Our 13 year old baby girl outshining me on my wedding day.](https://news.puppy-snuggles.com/83126849/our-13-year-old-baby-girl-outshining-me-on-my-wedding-day)
+- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
+- [Did someone say it’s the weekend?? It’s wagging tails and love all round here at Sara Morocco](https://news.puppy-snuggles.com/85425544/did-someone-say-its-the-weekend-its-wagging-tails-and-love-all-round-here-at-sara-morocco)
+- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
+- [Lost a huge part of our family today. 😔](https://news.puppy-snuggles.com/81351000/lost-a-huge-part-of-our-family-today)
+- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
