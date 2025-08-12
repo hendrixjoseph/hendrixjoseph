@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
-- [Did someone say it’s the weekend?? It’s wagging tails and love all round here at Sara Morocco](https://news.puppy-snuggles.com/85425544/did-someone-say-its-the-weekend-its-wagging-tails-and-love-all-round-here-at-sara-morocco)
-- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
-- [Lost a huge part of our family today. 😔](https://news.puppy-snuggles.com/81351000/lost-a-huge-part-of-our-family-today)
-- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
+- [Please show me your Very Serious Dogs](https://news.puppy-snuggles.com/85109339/please-show-me-your-very-serious-dogs)
+- [2 months ago, my best friend crossed the Rainbow bridge](https://news.puppy-snuggles.com/84314049/2-months-ago-my-best-friend-crossed-the-rainbow-bridge)
+- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
+- [Can I see your dog&amp;#039;s crazy look? I want to draw him a doodle!](https://news.puppy-snuggles.com/82551283/can-i-see-your-dogs-crazy-look-i-want-to-draw-him-a-doodle)
+- [I drew this portrait for my client. I used colored pencils to bring this piece to life. What are your thoughts on it](https://news.puppy-snuggles.com/82236862/i-drew-this-portrait-for-my-client-i-used-colored-pencils-to-bring-this-piece-to-life-what-are-your-thoughts-on-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
