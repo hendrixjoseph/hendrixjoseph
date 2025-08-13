@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please show me your Very Serious Dogs](https://news.puppy-snuggles.com/85109339/please-show-me-your-very-serious-dogs)
-- [2 months ago, my best friend crossed the Rainbow bridge](https://news.puppy-snuggles.com/84314049/2-months-ago-my-best-friend-crossed-the-rainbow-bridge)
-- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
-- [Can I see your dog&amp;#039;s crazy look? I want to draw him a doodle!](https://news.puppy-snuggles.com/82551283/can-i-see-your-dogs-crazy-look-i-want-to-draw-him-a-doodle)
-- [I drew this portrait for my client. I used colored pencils to bring this piece to life. What are your thoughts on it](https://news.puppy-snuggles.com/82236862/i-drew-this-portrait-for-my-client-i-used-colored-pencils-to-bring-this-piece-to-life-what-are-your-thoughts-on-it)
+- [So….you finishing that? 😛](https://news.puppy-snuggles.com/94321689/soyou-finishing-that)
+- [My sweet little Shiba mix buddy…he was my best friend and my twin soul. I’m going to miss him so much. 2013-8.10.25](https://news.puppy-snuggles.com/94321686/my-sweet-little-shiba-mix-buddyhe-was-my-best-friend-and-my-twin-soul-im-going-to-miss-him-so-much-2013-81025)
+- [6 years without you](https://news.puppy-snuggles.com/89934604/6-years-without-you)
+- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
+- [He is called Easton](https://news.puppy-snuggles.com/81966514/he-is-called-easton)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
