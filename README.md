@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So….you finishing that? 😛](https://news.puppy-snuggles.com/94321689/soyou-finishing-that)
-- [My sweet little Shiba mix buddy…he was my best friend and my twin soul. I’m going to miss him so much. 2013-8.10.25](https://news.puppy-snuggles.com/94321686/my-sweet-little-shiba-mix-buddyhe-was-my-best-friend-and-my-twin-soul-im-going-to-miss-him-so-much-2013-81025)
-- [6 years without you](https://news.puppy-snuggles.com/89934604/6-years-without-you)
-- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
-- [He is called Easton](https://news.puppy-snuggles.com/81966514/he-is-called-easton)
+- [Elka is just such a happy girl! 🥰 &lpar;her ear being cropped was from her life prior to me rescuing her&rpar; ... Took awhile to get her to this place, but she&amp;#039;s just so full of love and happiness!](https://news.puppy-snuggles.com/92738981/elka-is-just-such-a-happy-girl-her-ear-being-cropped-was-from-her-life-prior-to-me-rescuing-her-took-awhile-to-get-her-to-this-place-but-shes-just-so-full-of-love-and-happiness)
+- [Outdoor Adventures](https://news.puppy-snuggles.com/92478198/outdoor-adventures)
+- [Rate this pictures cuteness out of 10 on the doggo scale](https://news.puppy-snuggles.com/82101759/rate-this-pictures-cuteness-out-of-10-on-the-doggo-scale)
+- [Our best friend did not make it today.....here my favorite picture](https://news.puppy-snuggles.com/79487588/our-best-friend-did-not-make-it-todayhere-my-favorite-picture)
+- [Does anyone else’s dog licked their other dog to like a ridiculous amount?](https://news.puppy-snuggles.com/78578591/does-anyone-elses-dog-licked-their-other-dog-to-like-a-ridiculous-amount)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
