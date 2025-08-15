@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Elka is just such a happy girl! 🥰 &lpar;her ear being cropped was from her life prior to me rescuing her&rpar; ... Took awhile to get her to this place, but she&amp;#039;s just so full of love and happiness!](https://news.puppy-snuggles.com/92738981/elka-is-just-such-a-happy-girl-her-ear-being-cropped-was-from-her-life-prior-to-me-rescuing-her-took-awhile-to-get-her-to-this-place-but-shes-just-so-full-of-love-and-happiness)
-- [Outdoor Adventures](https://news.puppy-snuggles.com/92478198/outdoor-adventures)
-- [Rate this pictures cuteness out of 10 on the doggo scale](https://news.puppy-snuggles.com/82101759/rate-this-pictures-cuteness-out-of-10-on-the-doggo-scale)
-- [Our best friend did not make it today.....here my favorite picture](https://news.puppy-snuggles.com/79487588/our-best-friend-did-not-make-it-todayhere-my-favorite-picture)
-- [Does anyone else’s dog licked their other dog to like a ridiculous amount?](https://news.puppy-snuggles.com/78578591/does-anyone-elses-dog-licked-their-other-dog-to-like-a-ridiculous-amount)
+- [Parker is so patient with his little sister, Bailey.](https://news.puppy-snuggles.com/94547384/parker-is-so-patient-with-his-little-sister-bailey)
+- [The cutest gang i ever had](https://news.puppy-snuggles.com/94547379/the-cutest-gang-i-ever-had)
+- [I love this silly girl](https://news.puppy-snuggles.com/94547378/i-love-this-silly-girl)
+- [My dog died today](https://news.puppy-snuggles.com/94547373/my-dog-died-today)
+- [What color is she?](https://news.puppy-snuggles.com/94547376/what-color-is-she)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
