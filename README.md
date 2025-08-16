@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Parker is so patient with his little sister, Bailey.](https://news.puppy-snuggles.com/94547384/parker-is-so-patient-with-his-little-sister-bailey)
-- [The cutest gang i ever had](https://news.puppy-snuggles.com/94547379/the-cutest-gang-i-ever-had)
-- [I love this silly girl](https://news.puppy-snuggles.com/94547378/i-love-this-silly-girl)
-- [My dog died today](https://news.puppy-snuggles.com/94547373/my-dog-died-today)
-- [What color is she?](https://news.puppy-snuggles.com/94547376/what-color-is-she)
+- [I asked her if she stuck her face in the wallpaper glue.](https://news.puppy-snuggles.com/90919153/i-asked-her-if-she-stuck-her-face-in-the-wallpaper-glue)
+- [New baby! I named him Kevin](https://news.puppy-snuggles.com/83577209/new-baby-i-named-him-kevin)
+- [A portrait leather carving hang tag I made for Ciri. I&amp;#039;m glad I could capture all his details perfectly.](https://news.puppy-snuggles.com/76840642/a-portrait-leather-carving-hang-tag-i-made-for-ciri-im-glad-i-could-capture-all-his-details-perfectly)
+- [How cute is my girl Aika when she comes back from the groomer!🥰 You guys can guess which race my dog is? 😜](https://news.puppy-snuggles.com/75804554/how-cute-is-my-girl-aika-when-she-comes-back-from-the-groomer-you-guys-can-guess-which-race-my-dog-is)
+- [Trying to get a good group picture at our play date but someone’s lips are always stuck on their teeth 🤣](https://news.puppy-snuggles.com/75339608/trying-to-get-a-good-group-picture-at-our-play-date-but-someones-lips-are-always-stuck-on-their-teeth)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
