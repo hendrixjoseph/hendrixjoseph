@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I asked her if she stuck her face in the wallpaper glue.](https://news.puppy-snuggles.com/90919153/i-asked-her-if-she-stuck-her-face-in-the-wallpaper-glue)
-- [New baby! I named him Kevin](https://news.puppy-snuggles.com/83577209/new-baby-i-named-him-kevin)
-- [A portrait leather carving hang tag I made for Ciri. I&amp;#039;m glad I could capture all his details perfectly.](https://news.puppy-snuggles.com/76840642/a-portrait-leather-carving-hang-tag-i-made-for-ciri-im-glad-i-could-capture-all-his-details-perfectly)
-- [How cute is my girl Aika when she comes back from the groomer!🥰 You guys can guess which race my dog is? 😜](https://news.puppy-snuggles.com/75804554/how-cute-is-my-girl-aika-when-she-comes-back-from-the-groomer-you-guys-can-guess-which-race-my-dog-is)
-- [Trying to get a good group picture at our play date but someone’s lips are always stuck on their teeth 🤣](https://news.puppy-snuggles.com/75339608/trying-to-get-a-good-group-picture-at-our-play-date-but-someones-lips-are-always-stuck-on-their-teeth)
+- [Got a new dog what do you think](https://news.puppy-snuggles.com/94741151/got-a-new-dog-what-do-you-think)
+- [My 76 year old dad with his best friend](https://news.puppy-snuggles.com/90164274/my-76-year-old-dad-with-his-best-friend)
+- [Losing my dog this week 10/07](https://news.puppy-snuggles.com/89934597/losing-my-dog-this-week-1007)
+- [The first day my dog met his new brother &lpar;feel good, picture series&rpar;.](https://news.puppy-snuggles.com/89934596/the-first-day-my-dog-met-his-new-brother-feel-good-picture-series)
+- [What a beautiful morning](https://news.puppy-snuggles.com/88723157/what-a-beautiful-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
