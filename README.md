@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Got a new dog what do you think](https://news.puppy-snuggles.com/94741151/got-a-new-dog-what-do-you-think)
-- [My 76 year old dad with his best friend](https://news.puppy-snuggles.com/90164274/my-76-year-old-dad-with-his-best-friend)
-- [Losing my dog this week 10/07](https://news.puppy-snuggles.com/89934597/losing-my-dog-this-week-1007)
-- [The first day my dog met his new brother &lpar;feel good, picture series&rpar;.](https://news.puppy-snuggles.com/89934596/the-first-day-my-dog-met-his-new-brother-feel-good-picture-series)
-- [What a beautiful morning](https://news.puppy-snuggles.com/88723157/what-a-beautiful-morning)
+- [“ Pardon me , would you have any Grey Poupon ? “ 🐶😭](https://news.puppy-snuggles.com/93102694/pardon-me-would-you-have-any-grey-poupon)
+- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
+- [My dinner is calling me, I can hear it beyond my front gate! Yippeeee! Who loves chicken?](https://news.puppy-snuggles.com/80179829/my-dinner-is-calling-me-i-can-hear-it-beyond-my-front-gate-yippeeee-who-loves-chicken)
+- [my dog frida, rescued her in méxico city](https://news.puppy-snuggles.com/79348563/my-dog-frida-rescued-her-in-mexico-city)
+- [Sharing my little angel Chiko tonight, he will leave me tomorrow](https://news.puppy-snuggles.com/77702896/sharing-my-little-angel-chiko-tonight-he-will-leave-me-tomorrow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
