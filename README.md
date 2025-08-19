@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“ Pardon me , would you have any Grey Poupon ? “ 🐶😭](https://news.puppy-snuggles.com/93102694/pardon-me-would-you-have-any-grey-poupon)
-- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
-- [My dinner is calling me, I can hear it beyond my front gate! Yippeeee! Who loves chicken?](https://news.puppy-snuggles.com/80179829/my-dinner-is-calling-me-i-can-hear-it-beyond-my-front-gate-yippeeee-who-loves-chicken)
-- [my dog frida, rescued her in méxico city](https://news.puppy-snuggles.com/79348563/my-dog-frida-rescued-her-in-mexico-city)
-- [Sharing my little angel Chiko tonight, he will leave me tomorrow](https://news.puppy-snuggles.com/77702896/sharing-my-little-angel-chiko-tonight-he-will-leave-me-tomorrow)
+- [Smiles don&amp;#039;t get any more genuine than this](https://news.puppy-snuggles.com/94982193/smiles-dont-get-any-more-genuine-than-this)
+- [Dog](https://news.puppy-snuggles.com/93278921/dog)
+- [Happy 10th Birthday Pepperoni ❤️](https://news.puppy-snuggles.com/88979309/happy-10th-birthday-pepperoni)
+- [Can’t believe this dude turns 8 today. Feels like I just blinked and he went from zoomies to naps.](https://news.puppy-snuggles.com/85069734/cant-believe-this-dude-turns-8-today-feels-like-i-just-blinked-and-he-went-from-zoomies-to-naps)
+- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
