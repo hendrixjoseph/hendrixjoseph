@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiles don&amp;#039;t get any more genuine than this](https://news.puppy-snuggles.com/94982193/smiles-dont-get-any-more-genuine-than-this)
-- [Dog](https://news.puppy-snuggles.com/93278921/dog)
-- [Happy 10th Birthday Pepperoni ❤️](https://news.puppy-snuggles.com/88979309/happy-10th-birthday-pepperoni)
-- [Can’t believe this dude turns 8 today. Feels like I just blinked and he went from zoomies to naps.](https://news.puppy-snuggles.com/85069734/cant-believe-this-dude-turns-8-today-feels-like-i-just-blinked-and-he-went-from-zoomies-to-naps)
-- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
+- [Bringing a smile to your face!](https://news.puppy-snuggles.com/95115555/bringing-a-smile-to-your-face)
+- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
+- [Our first puppy on day 1 vs now](https://news.puppy-snuggles.com/82717865/our-first-puppy-on-day-1-vs-now)
+- [What’s the photo you show people when you say this is my dog?](https://news.puppy-snuggles.com/81553135/whats-the-photo-you-show-people-when-you-say-this-is-my-dog)
+- [It’s an honor for me to be part of your life. Thank you very much Rita](https://news.puppy-snuggles.com/79909551/its-an-honor-for-me-to-be-part-of-your-life-thank-you-very-much-rita)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
