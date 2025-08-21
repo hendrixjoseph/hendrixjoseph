@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bringing a smile to your face!](https://news.puppy-snuggles.com/95115555/bringing-a-smile-to-your-face)
-- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
-- [Our first puppy on day 1 vs now](https://news.puppy-snuggles.com/82717865/our-first-puppy-on-day-1-vs-now)
-- [What’s the photo you show people when you say this is my dog?](https://news.puppy-snuggles.com/81553135/whats-the-photo-you-show-people-when-you-say-this-is-my-dog)
-- [It’s an honor for me to be part of your life. Thank you very much Rita](https://news.puppy-snuggles.com/79909551/its-an-honor-for-me-to-be-part-of-your-life-thank-you-very-much-rita)
+- [Good morning 🐽](https://news.puppy-snuggles.com/95180513/good-morning)
+- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
+- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
+- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
+- [Each wood carving I make of people&amp;#039;s pup reminds me why I love being a woodcarver](https://news.puppy-snuggles.com/83707720/each-wood-carving-i-make-of-peoples-pup-reminds-me-why-i-love-being-a-woodcarver)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
