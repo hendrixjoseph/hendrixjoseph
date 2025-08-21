@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is the number 0: positive or negative?](https://www.reddit.com/r/AskReddit/comments/1mvqgr2/what_is_the_number_0_positive_or_negative/n9s02zq/)
+- [/u/joehx on Had to mark myself as ‘other’ at the doctor.](https://www.reddit.com/r/daddit/comments/1mvngfv/had_to_mark_myself_as_other_at_the_doctor/n9rxuvr/)
 - [/u/joehx on was very confused for a minute, but per caption his name is actually third](https://www.reddit.com/r/tragedeigh/comments/1mtwa7w/was_very_confused_for_a_minute_but_per_caption/n9gff0x/)
 - [/u/joehx on What’s an everyday product you think will be banned in the future for health reasons?](https://www.reddit.com/r/AskReddit/comments/1ml2kcb/whats_an_everyday_product_you_think_will_be/n7o6cbq/)
 - [/u/joehx on What is the fastest you have ever driven a car?](https://www.reddit.com/r/AskReddit/comments/1mka5tc/what_is_the_fastest_you_have_ever_driven_a_car/n7h80lx/)
-- [/u/joehx on What&#39;s so bad about having your cake and eating it too? What&#39;s the point of having a cake if you can&#39;t eat it?](https://www.reddit.com/r/AskReddit/comments/1mka91d/whats_so_bad_about_having_your_cake_and_eating_it/n7h7irm/)
-- [/u/joehx on What’s a widely accepted &#39;fact&#39; that you’re 100% sure is completely wrong?](https://www.reddit.com/r/AskReddit/comments/1m6vz4d/whats_a_widely_accepted_fact_that_youre_100_sure/n4sp4n2/)
 <!-- REDDIT:END -->
