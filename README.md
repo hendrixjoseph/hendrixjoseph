@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good morning 🐽](https://news.puppy-snuggles.com/95180513/good-morning)
-- [Lost my boy today](https://news.puppy-snuggles.com/86454048/lost-my-boy-today)
-- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
-- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
-- [Each wood carving I make of people&amp;#039;s pup reminds me why I love being a woodcarver](https://news.puppy-snuggles.com/83707720/each-wood-carving-i-make-of-peoples-pup-reminds-me-why-i-love-being-a-woodcarver)
+- [Meet Elliot!](https://news.puppy-snuggles.com/92546242/meet-elliot)
+- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
+- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
+- [Who still has photos of their dog as a kid in their photo album? This is a photo of my dog when he was little](https://news.puppy-snuggles.com/46564815/who-still-has-photos-of-their-dog-as-a-kid-in-their-photo-album-this-is-a-photo-of-my-dog-when-he-was-little)
+- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
