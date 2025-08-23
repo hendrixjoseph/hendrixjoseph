@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Elliot!](https://news.puppy-snuggles.com/92546242/meet-elliot)
-- [I just wanted to write a post to say goodbye to Milo. Drew with colored pencils for my client.](https://news.puppy-snuggles.com/84274199/i-just-wanted-to-write-a-post-to-say-goodbye-to-milo-drew-with-colored-pencils-for-my-client)
-- [Rosco; the bestest boy with two hearts and no brains](https://news.puppy-snuggles.com/83157612/rosco-the-bestest-boy-with-two-hearts-and-no-brains)
-- [Who still has photos of their dog as a kid in their photo album? This is a photo of my dog when he was little](https://news.puppy-snuggles.com/46564815/who-still-has-photos-of-their-dog-as-a-kid-in-their-photo-album-this-is-a-photo-of-my-dog-when-he-was-little)
-- [Someone did not wake up in the best mood today, Rambo has donated blood for his brother and needles are not his favorite](https://news.puppy-snuggles.com/39872580/someone-did-not-wake-up-in-the-best-mood-today-rambo-has-donated-blood-for-his-brother-and-needles-are-not-his-favorite)
+- [show me pls the way your dog sleeps 🐾](https://news.puppy-snuggles.com/95248510/show-me-pls-the-way-your-dog-sleeps)
+- [9 years young. Happy birthday, pup! 🐺🎉](https://news.puppy-snuggles.com/87159416/9-years-young-happy-birthday-pup)
+- [My beautiful baby ❤️‍🩹 She is in heaven now 🪽](https://news.puppy-snuggles.com/86610907/my-beautiful-baby-she-is-in-heaven-now)
+- [MY TOTO](https://news.puppy-snuggles.com/81015309/my-toto)
+- [Update - Rosco&amp;#039;s passing. Thank you all!](https://news.puppy-snuggles.com/80277964/update-roscos-passing-thank-you-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
