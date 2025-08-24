@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [show me pls the way your dog sleeps 🐾](https://news.puppy-snuggles.com/95248510/show-me-pls-the-way-your-dog-sleeps)
-- [9 years young. Happy birthday, pup! 🐺🎉](https://news.puppy-snuggles.com/87159416/9-years-young-happy-birthday-pup)
-- [My beautiful baby ❤️‍🩹 She is in heaven now 🪽](https://news.puppy-snuggles.com/86610907/my-beautiful-baby-she-is-in-heaven-now)
-- [MY TOTO](https://news.puppy-snuggles.com/81015309/my-toto)
-- [Update - Rosco&amp;#039;s passing. Thank you all!](https://news.puppy-snuggles.com/80277964/update-roscos-passing-thank-you-all)
+- [Comfy spot](https://news.puppy-snuggles.com/94877591/comfy-spot)
+- [Franquito, our neighbors dog, showed up on my wife&amp;#039;s birthday. He&amp;#039;s a chill boy](https://news.puppy-snuggles.com/85298186/franquito-our-neighbors-dog-showed-up-on-my-wifes-birthday-hes-a-chill-boy)
+- [140lbs of cutie!!](https://news.puppy-snuggles.com/80042822/140lbs-of-cutie)
+- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
+- [My dog Axel on the day he was adopted](https://news.puppy-snuggles.com/60208904/my-dog-axel-on-the-day-he-was-adopted)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
