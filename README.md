@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Comfy spot](https://news.puppy-snuggles.com/94877591/comfy-spot)
-- [Franquito, our neighbors dog, showed up on my wife&amp;#039;s birthday. He&amp;#039;s a chill boy](https://news.puppy-snuggles.com/85298186/franquito-our-neighbors-dog-showed-up-on-my-wifes-birthday-hes-a-chill-boy)
-- [140lbs of cutie!!](https://news.puppy-snuggles.com/80042822/140lbs-of-cutie)
-- [This is Milly](https://news.puppy-snuggles.com/62871863/this-is-milly)
-- [My dog Axel on the day he was adopted](https://news.puppy-snuggles.com/60208904/my-dog-axel-on-the-day-he-was-adopted)
+- [We hiked this morning and she jumped in her pool after](https://news.puppy-snuggles.com/95646623/we-hiked-this-morning-and-she-jumped-in-her-pool-after)
+- [He destroys me when hi sleeps like this with his paws covering his face! My angel Rocco](https://news.puppy-snuggles.com/95646627/he-destroys-me-when-hi-sleeps-like-this-with-his-paws-covering-his-face-my-angel-rocco)
+- [Post walk lab happy face](https://news.puppy-snuggles.com/95646621/post-walk-lab-happy-face)
+- [Anyone else’s dog do this?](https://news.puppy-snuggles.com/90919144/anyone-elses-dog-do-this)
+- [After 17 years we say goodbye to our sweet old lady. To honor her please share with us your favorite memories with your dogs. ✨](https://news.puppy-snuggles.com/90885516/after-17-years-we-say-goodbye-to-our-sweet-old-lady-to-honor-her-please-share-with-us-your-favorite-memories-with-your-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
