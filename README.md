@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We hiked this morning and she jumped in her pool after](https://news.puppy-snuggles.com/95646623/we-hiked-this-morning-and-she-jumped-in-her-pool-after)
-- [He destroys me when hi sleeps like this with his paws covering his face! My angel Rocco](https://news.puppy-snuggles.com/95646627/he-destroys-me-when-hi-sleeps-like-this-with-his-paws-covering-his-face-my-angel-rocco)
-- [Post walk lab happy face](https://news.puppy-snuggles.com/95646621/post-walk-lab-happy-face)
-- [Anyone else’s dog do this?](https://news.puppy-snuggles.com/90919144/anyone-elses-dog-do-this)
-- [After 17 years we say goodbye to our sweet old lady. To honor her please share with us your favorite memories with your dogs. ✨](https://news.puppy-snuggles.com/90885516/after-17-years-we-say-goodbye-to-our-sweet-old-lady-to-honor-her-please-share-with-us-your-favorite-memories-with-your-dogs)
+- [Play time!](https://news.puppy-snuggles.com/93070789/play-time)
+- [The Dude🎳🕶️](https://news.puppy-snuggles.com/91998524/the-dude)
+- [Ender was attacked by another dog, taking brunt protecting his 14 year old sister. 30+ stitches, 2 Penrose drains, and a rabies booster later, he&amp;#039;s the bestest and bravest boy.](https://news.puppy-snuggles.com/89308735/ender-was-attacked-by-another-dog-taking-brunt-protecting-his-14-year-old-sister-30-stitches-2-penrose-drains-and-a-rabies-booster-later-hes-the-bestest-and-bravest-boy)
+- [Should we get a second dog?](https://news.puppy-snuggles.com/84351626/should-we-get-a-second-dog)
+- [Do I have to wake up?](https://news.puppy-snuggles.com/82750857/do-i-have-to-wake-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
