@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Play time!](https://news.puppy-snuggles.com/93070789/play-time)
-- [The Dude🎳🕶️](https://news.puppy-snuggles.com/91998524/the-dude)
-- [Ender was attacked by another dog, taking brunt protecting his 14 year old sister. 30+ stitches, 2 Penrose drains, and a rabies booster later, he&amp;#039;s the bestest and bravest boy.](https://news.puppy-snuggles.com/89308735/ender-was-attacked-by-another-dog-taking-brunt-protecting-his-14-year-old-sister-30-stitches-2-penrose-drains-and-a-rabies-booster-later-hes-the-bestest-and-bravest-boy)
-- [Should we get a second dog?](https://news.puppy-snuggles.com/84351626/should-we-get-a-second-dog)
-- [Do I have to wake up?](https://news.puppy-snuggles.com/82750857/do-i-have-to-wake-up)
+- [I took my dog to the beach last night, and the most heartwarming thing happened!](https://news.puppy-snuggles.com/95889177/i-took-my-dog-to-the-beach-last-night-and-the-most-heartwarming-thing-happened)
+- [This is our dog. He was brought up as a therapy dog. For 10 years, he went weekly to a care home for the elderly and those who can&amp;#039;t take care of themselves. And today marks his retirement day; he made one last round today as a elderly 12-year-old Golden Retriever.](https://news.puppy-snuggles.com/92128018/this-is-our-dog-he-was-brought-up-as-a-therapy-dog-for-10-years-he-went-weekly-to-a-care-home-for-the-elderly-and-those-who-cant-take-care-of-themselves-and-today-marks-his-retirement-day-he-made-one-last-round-today-as-a-elderly-12-year-old-golden-retriever)
+- [Adopted a new puppy!🐶](https://news.puppy-snuggles.com/84874197/adopted-a-new-puppy)
+- [Each wood carving I make of people&amp;#039;s pup reminds me why I love being a woodcarver](https://news.puppy-snuggles.com/83707720/each-wood-carving-i-make-of-peoples-pup-reminds-me-why-i-love-being-a-woodcarver)
+- [Weirdest nicknames you have for your dogs??](https://news.puppy-snuggles.com/83022431/weirdest-nicknames-you-have-for-your-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
