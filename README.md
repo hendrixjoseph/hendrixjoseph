@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I took my dog to the beach last night, and the most heartwarming thing happened!](https://news.puppy-snuggles.com/95889177/i-took-my-dog-to-the-beach-last-night-and-the-most-heartwarming-thing-happened)
-- [This is our dog. He was brought up as a therapy dog. For 10 years, he went weekly to a care home for the elderly and those who can&amp;#039;t take care of themselves. And today marks his retirement day; he made one last round today as a elderly 12-year-old Golden Retriever.](https://news.puppy-snuggles.com/92128018/this-is-our-dog-he-was-brought-up-as-a-therapy-dog-for-10-years-he-went-weekly-to-a-care-home-for-the-elderly-and-those-who-cant-take-care-of-themselves-and-today-marks-his-retirement-day-he-made-one-last-round-today-as-a-elderly-12-year-old-golden-retriever)
-- [Adopted a new puppy!🐶](https://news.puppy-snuggles.com/84874197/adopted-a-new-puppy)
-- [Each wood carving I make of people&amp;#039;s pup reminds me why I love being a woodcarver](https://news.puppy-snuggles.com/83707720/each-wood-carving-i-make-of-peoples-pup-reminds-me-why-i-love-being-a-woodcarver)
-- [Weirdest nicknames you have for your dogs??](https://news.puppy-snuggles.com/83022431/weirdest-nicknames-you-have-for-your-dogs)
+- [Our New Puppy](https://news.puppy-snuggles.com/95992725/our-new-puppy)
+- [The many faces of Shep](https://news.puppy-snuggles.com/84835720/the-many-faces-of-shep)
+- [My in-law&amp;#039;s dog likes to be held like a baby 😂](https://news.puppy-snuggles.com/82953514/my-in-laws-dog-likes-to-be-held-like-a-baby)
+- [A random dog in front of my door？？What should I do？？？](https://news.puppy-snuggles.com/78103765/a-random-dog-in-front-of-my-doorwhat-should-i-do)
+- [Another awkward night with my dog](https://news.puppy-snuggles.com/76327870/another-awkward-night-with-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
