@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our New Puppy](https://news.puppy-snuggles.com/95992725/our-new-puppy)
-- [The many faces of Shep](https://news.puppy-snuggles.com/84835720/the-many-faces-of-shep)
-- [My in-law&amp;#039;s dog likes to be held like a baby 😂](https://news.puppy-snuggles.com/82953514/my-in-laws-dog-likes-to-be-held-like-a-baby)
-- [A random dog in front of my door？？What should I do？？？](https://news.puppy-snuggles.com/78103765/a-random-dog-in-front-of-my-doorwhat-should-i-do)
-- [Another awkward night with my dog](https://news.puppy-snuggles.com/76327870/another-awkward-night-with-my-dog)
+- [Legend has it that my poor dog sitter is still trying to get this husky home lol](https://news.puppy-snuggles.com/90852309/legend-has-it-that-my-poor-dog-sitter-is-still-trying-to-get-this-husky-home-lol)
+- [Nasal cancer—RIP little boy](https://news.puppy-snuggles.com/88561060/nasal-cancer-rip-little-boy)
+- [Most frequently asked questions to fur parents 😂](https://news.puppy-snuggles.com/88449479/most-frequently-asked-questions-to-fur-parents)
+- [Feeling down mind sharing photos of your doggos? Here&amp;#039;s mine](https://news.puppy-snuggles.com/88449476/feeling-down-mind-sharing-photos-of-your-doggos-heres-mine)
+- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
