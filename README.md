@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dolly Daydream 😁](https://news.puppy-snuggles.com/96104576/dolly-daydream)
-- [R.I.P Blaine ♥️](https://news.puppy-snuggles.com/84471319/rip-blaine)
-- [Is my shelter dog gotten obese? She was thin when we got her but also has a ton of extra skin from being a breeder dog, however I’m worried that she’s gotten too chunky? What do I do if she has, she has a lot of trauma around food?](https://news.puppy-snuggles.com/83707719/is-my-shelter-dog-gotten-obese-she-was-thin-when-we-got-her-but-also-has-a-ton-of-extra-skin-from-being-a-breeder-dog-however-im-worried-that-shes-gotten-too-chunky-what-do-i-do-if-she-has-she-has-a-lot-of-trauma-around-food)
-- [Missing her tremendously today ❤️](https://news.puppy-snuggles.com/71698693/missing-her-tremendously-today)
-- [Smiley rascal](https://news.puppy-snuggles.com/62457755/smiley-rascal)
+- [He met a new otter friend today](https://news.puppy-snuggles.com/91741010/he-met-a-new-otter-friend-today)
+- [Sorry, grieving post 🚨 struggling hard tonight.](https://news.puppy-snuggles.com/91741025/sorry-grieving-post-struggling-hard-tonight)
+- [My dog under a blanket](https://news.puppy-snuggles.com/91707542/my-dog-under-a-blanket)
+- [Lost a best friend on Friday. He had 15 great years on this Earth. I miss him so much.](https://news.puppy-snuggles.com/91707539/lost-a-best-friend-on-friday-he-had-15-great-years-on-this-earth-i-miss-him-so-much)
+- [May I have a bite please?](https://news.puppy-snuggles.com/91707543/may-i-have-a-bite-please)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
