@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He met a new otter friend today](https://news.puppy-snuggles.com/91741010/he-met-a-new-otter-friend-today)
-- [Sorry, grieving post 🚨 struggling hard tonight.](https://news.puppy-snuggles.com/91741025/sorry-grieving-post-struggling-hard-tonight)
-- [My dog under a blanket](https://news.puppy-snuggles.com/91707542/my-dog-under-a-blanket)
-- [Lost a best friend on Friday. He had 15 great years on this Earth. I miss him so much.](https://news.puppy-snuggles.com/91707539/lost-a-best-friend-on-friday-he-had-15-great-years-on-this-earth-i-miss-him-so-much)
-- [May I have a bite please?](https://news.puppy-snuggles.com/91707543/may-i-have-a-bite-please)
+- [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
+- [I need to tell the world about Jake](https://news.puppy-snuggles.com/91175760/i-need-to-tell-the-world-about-jake)
+- [This is my dog Nigel. He was named after Nigel Tufnel of Spinal Tap.](https://news.puppy-snuggles.com/89047444/this-is-my-dog-nigel-he-was-named-after-nigel-tufnel-of-spinal-tap)
+- [Then &amp;amp; Now](https://news.puppy-snuggles.com/87288087/then-now)
+- [Pepperoni doesn&amp;#039;t like boom booms.](https://news.puppy-snuggles.com/83743752/pepperoni-doesnt-like-boom-booms)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
