@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [A reminder popped up.. Today was the day that Kira learned.. the ocean is salty.. hihi](https://news.puppy-snuggles.com/96410943/a-reminder-popped-up-today-was-the-day-that-kira-learned-the-ocean-is-salty-hihi)
+- [Sending Grace Off with Love.](https://news.puppy-snuggles.com/96332099/sending-grace-off-with-love)
+- [Man builds alternate route to senior dog who can no longer climb stairs.](https://news.puppy-snuggles.com/96294507/man-builds-alternate-route-to-senior-dog-who-can-no-longer-climb-stairs)
 - [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
-- [I need to tell the world about Jake](https://news.puppy-snuggles.com/91175760/i-need-to-tell-the-world-about-jake)
-- [This is my dog Nigel. He was named after Nigel Tufnel of Spinal Tap.](https://news.puppy-snuggles.com/89047444/this-is-my-dog-nigel-he-was-named-after-nigel-tufnel-of-spinal-tap)
-- [Then &amp;amp; Now](https://news.puppy-snuggles.com/87288087/then-now)
-- [Pepperoni doesn&amp;#039;t like boom booms.](https://news.puppy-snuggles.com/83743752/pepperoni-doesnt-like-boom-booms)
+- [My son](https://news.puppy-snuggles.com/96294505/my-son)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
