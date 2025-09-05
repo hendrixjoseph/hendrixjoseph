@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I rehomed my dog for his own safety… and I’m regretting it so much.](https://news.puppy-snuggles.com/90949574/i-rehomed-my-dog-for-his-own-safety-and-im-regretting-it-so-much)
-- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
-- [My furbaby has heart cancer. Please pray for him 🙏](https://news.puppy-snuggles.com/84611316/my-furbaby-has-heart-cancer-please-pray-for-him)
-- [My Chihuahua, Chloe and her puppies Champ &amp;amp; Chance 🥰](https://news.puppy-snuggles.com/84541049/my-chihuahua-chloe-and-her-puppies-champ-chance)
-- [Iggy telling me he’d really like my food](https://news.puppy-snuggles.com/83851260/iggy-telling-me-hed-really-like-my-food)
+- [Said goodbye to Ivy - please do too](https://news.puppy-snuggles.com/96683581/said-goodbye-to-ivy-please-do-too)
+- [The owner of the pitbulls can’t even use the bathroom in peace. The photograph is turning into a painting.](https://news.puppy-snuggles.com/96683583/the-owner-of-the-pitbulls-cant-even-use-the-bathroom-in-peace-the-photograph-is-turning-into-a-painting)
+- [My dog is a mama now! Any advice?](https://news.puppy-snuggles.com/96683578/my-dog-is-a-mama-now-any-advice)
+- [I just lost Roxy a few hours ago, she was a few weeks shy of 17. I&amp;#039;ll never forget you, my friend.](https://news.puppy-snuggles.com/96683579/i-just-lost-roxy-a-few-hours-ago-she-was-a-few-weeks-shy-of-17-ill-never-forget-you-my-friend)
+- [Hasn’t even been a year since we had to say goodbye; feels like a lifetime though. Just isn’t the same without you little buddy](https://news.puppy-snuggles.com/96645851/hasnt-even-been-a-year-since-we-had-to-say-goodbye-feels-like-a-lifetime-though-just-isnt-the-same-without-you-little-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
