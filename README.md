@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to Ivy - please do too](https://news.puppy-snuggles.com/96683581/said-goodbye-to-ivy-please-do-too)
-- [The owner of the pitbulls can’t even use the bathroom in peace. The photograph is turning into a painting.](https://news.puppy-snuggles.com/96683583/the-owner-of-the-pitbulls-cant-even-use-the-bathroom-in-peace-the-photograph-is-turning-into-a-painting)
-- [My dog is a mama now! Any advice?](https://news.puppy-snuggles.com/96683578/my-dog-is-a-mama-now-any-advice)
-- [I just lost Roxy a few hours ago, she was a few weeks shy of 17. I&amp;#039;ll never forget you, my friend.](https://news.puppy-snuggles.com/96683579/i-just-lost-roxy-a-few-hours-ago-she-was-a-few-weeks-shy-of-17-ill-never-forget-you-my-friend)
-- [Hasn’t even been a year since we had to say goodbye; feels like a lifetime though. Just isn’t the same without you little buddy](https://news.puppy-snuggles.com/96645851/hasnt-even-been-a-year-since-we-had-to-say-goodbye-feels-like-a-lifetime-though-just-isnt-the-same-without-you-little-buddy)
+- [Don’t know much about dogs but am becoming capable of owning one and wondering what breed this dog is found it in a neighborhood and it was so cute and energetic](https://news.puppy-snuggles.com/96294511/dont-know-much-about-dogs-but-am-becoming-capable-of-owning-one-and-wondering-what-breed-this-dog-is-found-it-in-a-neighborhood-and-it-was-so-cute-and-energetic)
+- [Happy Birthday to Jerome!](https://news.puppy-snuggles.com/92971392/happy-birthday-to-jerome)
+- [Help with his name](https://news.puppy-snuggles.com/90518616/help-with-his-name)
+- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
+- [Just a slide show of my little lady](https://news.puppy-snuggles.com/83314637/just-a-slide-show-of-my-little-lady)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
