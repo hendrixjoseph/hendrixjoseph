@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Don’t know much about dogs but am becoming capable of owning one and wondering what breed this dog is found it in a neighborhood and it was so cute and energetic](https://news.puppy-snuggles.com/96294511/dont-know-much-about-dogs-but-am-becoming-capable-of-owning-one-and-wondering-what-breed-this-dog-is-found-it-in-a-neighborhood-and-it-was-so-cute-and-energetic)
-- [Happy Birthday to Jerome!](https://news.puppy-snuggles.com/92971392/happy-birthday-to-jerome)
-- [Help with his name](https://news.puppy-snuggles.com/90518616/help-with-his-name)
-- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
-- [Just a slide show of my little lady](https://news.puppy-snuggles.com/83314637/just-a-slide-show-of-my-little-lady)
+- [Just got him recently and haven’t picked a name yet. He’s goofy, cuddly, and obsessed with treats. Open to suggestions!](https://news.puppy-snuggles.com/92061403/just-got-him-recently-and-havent-picked-a-name-yet-hes-goofy-cuddly-and-obsessed-with-treats-open-to-suggestions)
+- [Happiest Boy!!](https://news.puppy-snuggles.com/85552407/happiest-boy)
+- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
+- [Someone asked for dog teeth?](https://news.puppy-snuggles.com/76570277/someone-asked-for-dog-teeth)
+- [Chico, my best friend &lpar;RIP&rpar;](https://news.puppy-snuggles.com/73728973/chico-my-best-friend-rip)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
