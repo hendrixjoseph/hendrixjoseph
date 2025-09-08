@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just got him recently and haven’t picked a name yet. He’s goofy, cuddly, and obsessed with treats. Open to suggestions!](https://news.puppy-snuggles.com/92061403/just-got-him-recently-and-havent-picked-a-name-yet-hes-goofy-cuddly-and-obsessed-with-treats-open-to-suggestions)
-- [Happiest Boy!!](https://news.puppy-snuggles.com/85552407/happiest-boy)
-- [My happy boy 😊](https://news.puppy-snuggles.com/85221294/my-happy-boy)
-- [Someone asked for dog teeth?](https://news.puppy-snuggles.com/76570277/someone-asked-for-dog-teeth)
-- [Chico, my best friend &lpar;RIP&rpar;](https://news.puppy-snuggles.com/73728973/chico-my-best-friend-rip)
+- [Pittie Smiles are the Best! 🐾♥️](https://news.puppy-snuggles.com/87288080/pittie-smiles-are-the-best)
+- [Show me close ups from your dogs!](https://news.puppy-snuggles.com/79711482/show-me-close-ups-from-your-dogs)
+- [I lost my puppy to Parvovirus](https://news.puppy-snuggles.com/79131180/i-lost-my-puppy-to-parvovirus)
+- [How precious a person you must be!](https://news.puppy-snuggles.com/51618677/how-precious-a-person-you-must-be)
+- [This little girl just turned 2! How many happy birthdays can Ophelia get?☺️](https://news.puppy-snuggles.com/41359046/this-little-girl-just-turned-2-how-many-happy-birthdays-can-ophelia-get)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
