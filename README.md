@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pittie Smiles are the Best! 🐾♥️](https://news.puppy-snuggles.com/87288080/pittie-smiles-are-the-best)
-- [Show me close ups from your dogs!](https://news.puppy-snuggles.com/79711482/show-me-close-ups-from-your-dogs)
-- [I lost my puppy to Parvovirus](https://news.puppy-snuggles.com/79131180/i-lost-my-puppy-to-parvovirus)
-- [How precious a person you must be!](https://news.puppy-snuggles.com/51618677/how-precious-a-person-you-must-be)
-- [This little girl just turned 2! How many happy birthdays can Ophelia get?☺️](https://news.puppy-snuggles.com/41359046/this-little-girl-just-turned-2-how-many-happy-birthdays-can-ophelia-get)
+- [Our dear sweet boy, Smudge, crossed the rainbow bridge yesterday at 14 years. The vet thought he would have a year or so to live when he got diabetes &amp;amp; cancer. That was about 5 years ago. He had so much love left to give, and we loved him back](https://news.puppy-snuggles.com/84118654/our-dear-sweet-boy-smudge-crossed-the-rainbow-bridge-yesterday-at-14-years-the-vet-thought-he-would-have-a-year-or-so-to-live-when-he-got-diabetes-cancer-that-was-about-5-years-ago-he-had-so-much-love-left-to-give-and-we-loved-him-back)
+- [This isn’t the dog park mom 😭](https://news.puppy-snuggles.com/83091225/this-isnt-the-dog-park-mom)
+- [Does anyone have any idea why she whines and how to stop it?](https://news.puppy-snuggles.com/82480476/does-anyone-have-any-idea-why-she-whines-and-how-to-stop-it)
+- [I love my buddy](https://news.puppy-snuggles.com/82413408/i-love-my-buddy)
+- [Here&amp;#039;s to 10years with Buffy!](https://news.puppy-snuggles.com/81622036/heres-to-10years-with-buffy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
