@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sending Grace Off with Love.](https://news.puppy-snuggles.com/96332099/sending-grace-off-with-love)
-- [My pup turns 3 today! Happy Birthday to my best friend 🎂](https://news.puppy-snuggles.com/83643210/my-pup-turns-3-today-happy-birthday-to-my-best-friend)
-- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
-- [He is called Easton](https://news.puppy-snuggles.com/81966514/he-is-called-easton)
-- [Almost 6 but still acts like a puppy](https://news.puppy-snuggles.com/81865373/almost-6-but-still-acts-like-a-puppy)
+- [Lex has moved on, but promised to send updates!](https://news.puppy-snuggles.com/97486830/lex-has-moved-on-but-promised-to-send-updates)
+- [saw a cute puppy vid that brighten up my day](https://news.puppy-snuggles.com/90454480/saw-a-cute-puppy-vid-that-brighten-up-my-day)
+- [Happy 1st birthday to Doogie Howlzer, the saddest birthday boy in the world. He has a high fever and infection.](https://news.puppy-snuggles.com/90454479/happy-1st-birthday-to-doogie-howlzer-the-saddest-birthday-boy-in-the-world-he-has-a-high-fever-and-infection)
+- [Rescued this sweet girl today](https://news.puppy-snuggles.com/83743750/rescued-this-sweet-girl-today)
+- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
