@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lex has moved on, but promised to send updates!](https://news.puppy-snuggles.com/97486830/lex-has-moved-on-but-promised-to-send-updates)
-- [saw a cute puppy vid that brighten up my day](https://news.puppy-snuggles.com/90454480/saw-a-cute-puppy-vid-that-brighten-up-my-day)
-- [Happy 1st birthday to Doogie Howlzer, the saddest birthday boy in the world. He has a high fever and infection.](https://news.puppy-snuggles.com/90454479/happy-1st-birthday-to-doogie-howlzer-the-saddest-birthday-boy-in-the-world-he-has-a-high-fever-and-infection)
-- [Rescued this sweet girl today](https://news.puppy-snuggles.com/83743750/rescued-this-sweet-girl-today)
-- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
+- [They love laying together as sisters](https://news.puppy-snuggles.com/84574060/they-love-laying-together-as-sisters)
+- [Lost our sweet boy today](https://news.puppy-snuggles.com/83188608/lost-our-sweet-boy-today)
+- [I need the toilet but she’s sleeping, what do I do](https://news.puppy-snuggles.com/83126852/i-need-the-toilet-but-shes-sleeping-what-do-i-do)
+- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
+- [Birthday boy](https://news.puppy-snuggles.com/81015311/birthday-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
