@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [They love laying together as sisters](https://news.puppy-snuggles.com/84574060/they-love-laying-together-as-sisters)
-- [Lost our sweet boy today](https://news.puppy-snuggles.com/83188608/lost-our-sweet-boy-today)
-- [I need the toilet but she’s sleeping, what do I do](https://news.puppy-snuggles.com/83126852/i-need-the-toilet-but-shes-sleeping-what-do-i-do)
-- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
-- [Birthday boy](https://news.puppy-snuggles.com/81015311/birthday-boy)
+- [Wish Rosy a happy birthday 🎂🎉 she’s 3 years old 😭😭😭](https://news.puppy-snuggles.com/93783985/wish-rosy-a-happy-birthday-shes-3-years-old)
+- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
+- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
+- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
+- [Some asshole abandoned this dog on a dirt road near my house. Decided I’ve got room for another in the house.](https://news.puppy-snuggles.com/57766359/some-asshole-abandoned-this-dog-on-a-dirt-road-near-my-house-decided-ive-got-room-for-another-in-the-house)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
