@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Wish Rosy a happy birthday 🎂🎉 she’s 3 years old 😭😭😭](https://news.puppy-snuggles.com/93783985/wish-rosy-a-happy-birthday-shes-3-years-old)
 - [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [Anyone else’s dog sleep like this? 😂](https://news.puppy-snuggles.com/83851264/anyone-elses-dog-sleep-like-this)
-- [Brother and sister❤️](https://news.puppy-snuggles.com/58284169/brother-and-sister)
-- [Some asshole abandoned this dog on a dirt road near my house. Decided I’ve got room for another in the house.](https://news.puppy-snuggles.com/57766359/some-asshole-abandoned-this-dog-on-a-dirt-road-near-my-house-decided-ive-got-room-for-another-in-the-house)
+- [The sweetest most gentle man there ever was....and his crazy but also sweet little sister. Both rescues 💕](https://news.puppy-snuggles.com/90034024/the-sweetest-most-gentle-man-there-ever-wasand-his-crazy-but-also-sweet-little-sister-both-rescues)
+- [one of my favourite Christmas pranks on my family](https://news.puppy-snuggles.com/85259418/one-of-my-favourite-christmas-pranks-on-my-family)
+- [Got my first ever puppy. She’s 2 months old and just a baby. Would love name suggestions!](https://news.puppy-snuggles.com/81151361/got-my-first-ever-puppy-shes-2-months-old-and-just-a-baby-would-love-name-suggestions)
+- [Brothers reunited after 1 year](https://news.puppy-snuggles.com/80311231/brothers-reunited-after-1-year)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
