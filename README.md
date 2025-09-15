@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [The sweetest most gentle man there ever was....and his crazy but also sweet little sister. Both rescues 💕](https://news.puppy-snuggles.com/90034024/the-sweetest-most-gentle-man-there-ever-wasand-his-crazy-but-also-sweet-little-sister-both-rescues)
-- [one of my favourite Christmas pranks on my family](https://news.puppy-snuggles.com/85259418/one-of-my-favourite-christmas-pranks-on-my-family)
-- [Got my first ever puppy. She’s 2 months old and just a baby. Would love name suggestions!](https://news.puppy-snuggles.com/81151361/got-my-first-ever-puppy-shes-2-months-old-and-just-a-baby-would-love-name-suggestions)
-- [Brothers reunited after 1 year](https://news.puppy-snuggles.com/80311231/brothers-reunited-after-1-year)
+- [Came home from the hospital today, my dog is in shock apparently](https://news.puppy-snuggles.com/85340964/came-home-from-the-hospital-today-my-dog-is-in-shock-apparently)
+- [My dog&amp;#039;s beloved ratty old soccer ball isn&amp;#039;t allowed inside the house, so she carries it with her on walks](https://news.puppy-snuggles.com/81219181/my-dogs-beloved-ratty-old-soccer-ball-isnt-allowed-inside-the-house-so-she-carries-it-with-her-on-walks)
+- [Saw this little stumpy guy at the vet. I’m guessing golden corgi mix? Cutest thing ever❤️](https://news.puppy-snuggles.com/80277969/saw-this-little-stumpy-guy-at-the-vet-im-guessing-golden-corgi-mix-cutest-thing-ever)
+- [This is my all-time favorite picture I&amp;#039;ve ever taken of my dog.](https://news.puppy-snuggles.com/76270775/this-is-my-all-time-favorite-picture-ive-ever-taken-of-my-dog)
+- [Adorable Puppy Gets Kisses!!](https://news.puppy-snuggles.com/51862030/adorable-puppy-gets-kisses)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
