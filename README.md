@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Came home from the hospital today, my dog is in shock apparently](https://news.puppy-snuggles.com/85340964/came-home-from-the-hospital-today-my-dog-is-in-shock-apparently)
-- [My dog&amp;#039;s beloved ratty old soccer ball isn&amp;#039;t allowed inside the house, so she carries it with her on walks](https://news.puppy-snuggles.com/81219181/my-dogs-beloved-ratty-old-soccer-ball-isnt-allowed-inside-the-house-so-she-carries-it-with-her-on-walks)
-- [Saw this little stumpy guy at the vet. I’m guessing golden corgi mix? Cutest thing ever❤️](https://news.puppy-snuggles.com/80277969/saw-this-little-stumpy-guy-at-the-vet-im-guessing-golden-corgi-mix-cutest-thing-ever)
-- [This is my all-time favorite picture I&amp;#039;ve ever taken of my dog.](https://news.puppy-snuggles.com/76270775/this-is-my-all-time-favorite-picture-ive-ever-taken-of-my-dog)
-- [Adorable Puppy Gets Kisses!!](https://news.puppy-snuggles.com/51862030/adorable-puppy-gets-kisses)
+- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
+- [Tell me this isn’t the happiest face you’ve seen today](https://news.puppy-snuggles.com/92188207/tell-me-this-isnt-the-happiest-face-youve-seen-today)
+- [Hal, the blind, one eyed dog](https://news.puppy-snuggles.com/84351624/hal-the-blind-one-eyed-dog)
+- [So apparently, Daniel has chewed a hole in his bed….](https://news.puppy-snuggles.com/80507579/so-apparently-daniel-has-chewed-a-hole-in-his-bed)
+- [Kody’s smile!❤️](https://news.puppy-snuggles.com/75992356/kodys-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
