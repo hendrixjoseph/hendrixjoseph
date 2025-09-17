@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
-- [Tell me this isn’t the happiest face you’ve seen today](https://news.puppy-snuggles.com/92188207/tell-me-this-isnt-the-happiest-face-youve-seen-today)
-- [Hal, the blind, one eyed dog](https://news.puppy-snuggles.com/84351624/hal-the-blind-one-eyed-dog)
-- [So apparently, Daniel has chewed a hole in his bed….](https://news.puppy-snuggles.com/80507579/so-apparently-daniel-has-chewed-a-hole-in-his-bed)
-- [Kody’s smile!❤️](https://news.puppy-snuggles.com/75992356/kodys-smile)
+- [Roscoe is 4!!!](https://news.puppy-snuggles.com/88561061/roscoe-is-4)
+- [My dog always smiles when she first sees me in the morning 🥺💗](https://news.puppy-snuggles.com/88473502/my-dog-always-smiles-when-she-first-sees-me-in-the-morning)
+- [My dog Bear posing with poppies in my garden](https://news.puppy-snuggles.com/88473503/my-dog-bear-posing-with-poppies-in-my-garden)
+- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
+- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
