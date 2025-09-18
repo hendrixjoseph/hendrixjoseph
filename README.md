@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Roscoe is 4!!!](https://news.puppy-snuggles.com/88561061/roscoe-is-4)
-- [My dog always smiles when she first sees me in the morning 🥺💗](https://news.puppy-snuggles.com/88473502/my-dog-always-smiles-when-she-first-sees-me-in-the-morning)
-- [My dog Bear posing with poppies in my garden](https://news.puppy-snuggles.com/88473503/my-dog-bear-posing-with-poppies-in-my-garden)
-- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
-- [I love meeting a silly fluff!](https://news.puppy-snuggles.com/81318993/i-love-meeting-a-silly-fluff)
+- [My boy turned 5 today! ⚡️🖤](https://news.puppy-snuggles.com/80810224/my-boy-turned-5-today)
+- [Help name my dog!](https://news.puppy-snuggles.com/80007875/help-name-my-dog)
+- [Field Retriever:Lady at the park said my dog was too skinny, am I under-feeding my dog?](https://news.puppy-snuggles.com/62553392/field-retrieverlady-at-the-park-said-my-dog-was-too-skinny-am-i-under-feeding-my-dog)
+- [Our new friend Walter. Fresh off a re-home and having a ball](https://news.puppy-snuggles.com/61602692/our-new-friend-walter-fresh-off-a-re-home-and-having-a-ball)
+- [Goodbye Nata](https://news.puppy-snuggles.com/37173056/goodbye-nata)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
