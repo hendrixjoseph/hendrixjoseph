@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hello everyone! Can anyone guess the breed/mix of my girl? We have her for 5+ years and she was a stray](https://news.puppy-snuggles.com/98350921/hello-everyone-can-anyone-guess-the-breedmix-of-my-girl-we-have-her-for-5-years-and-she-was-a-stray)
-- [So long, Ace. My best friend and brother. I will keep you in my heart forever and always](https://news.puppy-snuggles.com/84541042/so-long-ace-my-best-friend-and-brother-i-will-keep-you-in-my-heart-forever-and-always)
-- [Luna as a puppy and her last day with us💔💔💔](https://news.puppy-snuggles.com/83895007/luna-as-a-puppy-and-her-last-day-with-us)
-- [Pepper turns 1 today! I couldn&amp;#039;t ask for a better girl!](https://news.puppy-snuggles.com/82985864/pepper-turns-1-today-i-couldnt-ask-for-a-better-girl)
-- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
+- [Dolly Daydream 😁](https://news.puppy-snuggles.com/96104576/dolly-daydream)
+- [Let’s see your BIG doggos!](https://news.puppy-snuggles.com/85187168/lets-see-your-big-doggos)
+- [She was trying to eat a fly 😅](https://news.puppy-snuggles.com/83643214/she-was-trying-to-eat-a-fly)
+- [This picture is printed in my bathroom.](https://news.puppy-snuggles.com/82985870/this-picture-is-printed-in-my-bathroom)
+- [Is there anything better to wake up to than this?](https://news.puppy-snuggles.com/82413414/is-there-anything-better-to-wake-up-to-than-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
