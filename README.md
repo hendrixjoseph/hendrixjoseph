@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dolly Daydream 😁](https://news.puppy-snuggles.com/96104576/dolly-daydream)
-- [Let’s see your BIG doggos!](https://news.puppy-snuggles.com/85187168/lets-see-your-big-doggos)
-- [She was trying to eat a fly 😅](https://news.puppy-snuggles.com/83643214/she-was-trying-to-eat-a-fly)
-- [This picture is printed in my bathroom.](https://news.puppy-snuggles.com/82985870/this-picture-is-printed-in-my-bathroom)
-- [Is there anything better to wake up to than this?](https://news.puppy-snuggles.com/82413414/is-there-anything-better-to-wake-up-to-than-this)
+- [My Dad&amp;#039;s Dog Jeffrey will only sing along to this song](https://news.puppy-snuggles.com/81553139/my-dads-dog-jeffrey-will-only-sing-along-to-this-song)
+- [5 years of having this golden soul in my life](https://news.puppy-snuggles.com/77354284/5-years-of-having-this-golden-soul-in-my-life)
+- [nothing beats the happiness you feel when a dog smiles at you ❤️](https://news.puppy-snuggles.com/45866902/nothing-beats-the-happiness-you-feel-when-a-dog-smiles-at-you)
+- [My dog and me wishing you all a happy Halloween!](https://news.puppy-snuggles.com/10929372/my-dog-and-me-wishing-you-all-a-happy-halloween)
+- [Resting after a hard day of playing in garden and destroying furniture.](https://news.puppy-snuggles.com/10906683/resting-after-a-hard-day-of-playing-in-garden-and-destroying-furniture)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
