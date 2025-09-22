@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Dad&amp;#039;s Dog Jeffrey will only sing along to this song](https://news.puppy-snuggles.com/81553139/my-dads-dog-jeffrey-will-only-sing-along-to-this-song)
-- [5 years of having this golden soul in my life](https://news.puppy-snuggles.com/77354284/5-years-of-having-this-golden-soul-in-my-life)
-- [nothing beats the happiness you feel when a dog smiles at you ❤️](https://news.puppy-snuggles.com/45866902/nothing-beats-the-happiness-you-feel-when-a-dog-smiles-at-you)
-- [My dog and me wishing you all a happy Halloween!](https://news.puppy-snuggles.com/10929372/my-dog-and-me-wishing-you-all-a-happy-halloween)
-- [Resting after a hard day of playing in garden and destroying furniture.](https://news.puppy-snuggles.com/10906683/resting-after-a-hard-day-of-playing-in-garden-and-destroying-furniture)
+- [My pretty girl enjoying her pool](https://news.puppy-snuggles.com/85684301/my-pretty-girl-enjoying-her-pool)
+- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
+- [He is complaining that I didn&amp;#039;t take him out to play.](https://news.puppy-snuggles.com/84432841/he-is-complaining-that-i-didnt-take-him-out-to-play)
+- [Bowser saying cheese !!!!](https://news.puppy-snuggles.com/84160426/bowser-saying-cheese)
+- [I went to visit my grandmother today and played with her dog. 🐕🤗🥰🥰](https://news.puppy-snuggles.com/83743749/i-went-to-visit-my-grandmother-today-and-played-with-her-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
