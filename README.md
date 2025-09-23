@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pretty girl enjoying her pool](https://news.puppy-snuggles.com/85684301/my-pretty-girl-enjoying-her-pool)
-- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
-- [He is complaining that I didn&amp;#039;t take him out to play.](https://news.puppy-snuggles.com/84432841/he-is-complaining-that-i-didnt-take-him-out-to-play)
-- [Bowser saying cheese !!!!](https://news.puppy-snuggles.com/84160426/bowser-saying-cheese)
-- [I went to visit my grandmother today and played with her dog. 🐕🤗🥰🥰](https://news.puppy-snuggles.com/83743749/i-went-to-visit-my-grandmother-today-and-played-with-her-dog)
+- [All dogs go to heaven right?](https://news.puppy-snuggles.com/97886212/all-dogs-go-to-heaven-right)
+- [Show me your dogs as puppies! I’ll go first 😬 And yes, I have 3 dogs lmao](https://news.puppy-snuggles.com/88818554/show-me-your-dogs-as-puppies-ill-go-first-and-yes-i-have-3-dogs-lmao)
+- [Loves the spring](https://news.puppy-snuggles.com/83971584/loves-the-spring)
+- [Name suggestions! Adopted this sweet girl today - she was dumped at a walmart.](https://news.puppy-snuggles.com/83022424/name-suggestions-adopted-this-sweet-girl-today-she-was-dumped-at-a-walmart)
+- [Just adopted two siblings, Stela and Mike](https://news.puppy-snuggles.com/82651017/just-adopted-two-siblings-stela-and-mike)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
