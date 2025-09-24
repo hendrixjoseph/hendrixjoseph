@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All dogs go to heaven right?](https://news.puppy-snuggles.com/97886212/all-dogs-go-to-heaven-right)
-- [Show me your dogs as puppies! I’ll go first 😬 And yes, I have 3 dogs lmao](https://news.puppy-snuggles.com/88818554/show-me-your-dogs-as-puppies-ill-go-first-and-yes-i-have-3-dogs-lmao)
-- [Loves the spring](https://news.puppy-snuggles.com/83971584/loves-the-spring)
-- [Name suggestions! Adopted this sweet girl today - she was dumped at a walmart.](https://news.puppy-snuggles.com/83022424/name-suggestions-adopted-this-sweet-girl-today-she-was-dumped-at-a-walmart)
-- [Just adopted two siblings, Stela and Mike](https://news.puppy-snuggles.com/82651017/just-adopted-two-siblings-stela-and-mike)
+- [My Dog Photography in Colors, Which one is your favorite?](https://news.puppy-snuggles.com/93005569/my-dog-photography-in-colors-which-one-is-your-favorite)
+- [Lost my beautiful Cousteau last year. I loved him immensely](https://news.puppy-snuggles.com/86184670/lost-my-beautiful-cousteau-last-year-i-loved-him-immensely)
+- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
