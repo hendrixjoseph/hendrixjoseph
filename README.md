@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Dog Photography in Colors, Which one is your favorite?](https://news.puppy-snuggles.com/93005569/my-dog-photography-in-colors-which-one-is-your-favorite)
-- [Lost my beautiful Cousteau last year. I loved him immensely](https://news.puppy-snuggles.com/86184670/lost-my-beautiful-cousteau-last-year-i-loved-him-immensely)
-- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
+- [What breed is Buddy?](https://news.puppy-snuggles.com/98741851/what-breed-is-buddy)
+- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
+- [Meet Hank.](https://news.puppy-snuggles.com/87815273/meet-hank)
+- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
+- [Just wanna share my boy Benny with you all!](https://news.puppy-snuggles.com/84991020/just-wanna-share-my-boy-benny-with-you-all)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
