@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed is Buddy?](https://news.puppy-snuggles.com/98741851/what-breed-is-buddy)
-- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
-- [Meet Hank.](https://news.puppy-snuggles.com/87815273/meet-hank)
-- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
-- [Just wanna share my boy Benny with you all!](https://news.puppy-snuggles.com/84991020/just-wanna-share-my-boy-benny-with-you-all)
+- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
+- [She made a new friend and was ecstatic](https://news.puppy-snuggles.com/80145868/she-made-a-new-friend-and-was-ecstatic)
+- [Does anyone else’s dog absolutely hate taking pictures? I took him to a park and tried to take cute pics of him but he was not having it 😂](https://news.puppy-snuggles.com/54656582/does-anyone-elses-dog-absolutely-hate-taking-pictures-i-took-him-to-a-park-and-tried-to-take-cute-pics-of-him-but-he-was-not-having-it)
+- [This has been my best friend for 7 years now😊](https://news.puppy-snuggles.com/31057362/this-has-been-my-best-friend-for-7-years-now)
+- [Can’t post in the sub r/dogswithjobs](https://news.puppy-snuggles.com/23323515/cant-post-in-the-sub-rdogswithjobs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
