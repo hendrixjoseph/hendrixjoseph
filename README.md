@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Meta question - how old are people in the Java community?](https://www.reddit.com/r/java/comments/1nq70os/meta_question_how_old_are_people_in_the_java/ng5hsec/)
 - [/u/joehx on Anyone follow the 0.01% rule?](https://www.reddit.com/r/financialindependence/comments/1nmckkp/anyone_follow_the_001_rule/nfcc6x2/)
 - [/u/joehx on What&#39;s an acronym many people know of but don&#39;t know what it stands for?](https://www.reddit.com/r/AskReddit/comments/1nkqz0y/whats_an_acronym_many_people_know_of_but_dont/nf2krbx/)
 - [/u/joehx on What is the number 0: positive or negative?](https://www.reddit.com/r/AskReddit/comments/1mvqgr2/what_is_the_number_0_positive_or_negative/n9s02zq/)
 - [/u/joehx on Had to mark myself as ‘other’ at the doctor.](https://www.reddit.com/r/daddit/comments/1mvngfv/had_to_mark_myself_as_other_at_the_doctor/n9rxuvr/)
-- [/u/joehx on was very confused for a minute, but per caption his name is actually third](https://www.reddit.com/r/tragedeigh/comments/1mtwa7w/was_very_confused_for_a_minute_but_per_caption/n9gff0x/)
 <!-- REDDIT:END -->
