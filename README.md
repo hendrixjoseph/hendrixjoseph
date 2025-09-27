@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dogs gigantic smile today](https://news.puppy-snuggles.com/84118653/my-dogs-gigantic-smile-today)
-- [She made a new friend and was ecstatic](https://news.puppy-snuggles.com/80145868/she-made-a-new-friend-and-was-ecstatic)
-- [Does anyone else’s dog absolutely hate taking pictures? I took him to a park and tried to take cute pics of him but he was not having it 😂](https://news.puppy-snuggles.com/54656582/does-anyone-elses-dog-absolutely-hate-taking-pictures-i-took-him-to-a-park-and-tried-to-take-cute-pics-of-him-but-he-was-not-having-it)
-- [This has been my best friend for 7 years now😊](https://news.puppy-snuggles.com/31057362/this-has-been-my-best-friend-for-7-years-now)
-- [Can’t post in the sub r/dogswithjobs](https://news.puppy-snuggles.com/23323515/cant-post-in-the-sub-rdogswithjobs)
+- [My dog went missing… I miss him every day. Sharing his last photos so he lives on he was everything to me](https://news.puppy-snuggles.com/85259410/my-dog-went-missing-i-miss-him-every-day-sharing-his-last-photos-so-he-lives-on-he-was-everything-to-me)
+- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187160/national-rescue-dog-day-lets-see-em)
+- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
+- [It&amp;#039;s this girls birthday, she&amp;#039;s 8!](https://news.puppy-snuggles.com/83675385/its-this-girls-birthday-shes-8)
+- [If you could only save one photo of your dog, which would it be and why?](https://news.puppy-snuggles.com/80913068/if-you-could-only-save-one-photo-of-your-dog-which-would-it-be-and-why)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
