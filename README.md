@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A day in the shelter](https://news.puppy-snuggles.com/93315371/a-day-in-the-shelter)
-- [Happy Birthday, Loki!!](https://news.puppy-snuggles.com/93278920/happy-birthday-loki)
-- [Just got her about 10 minutes ago. Meet Farrow!!](https://news.puppy-snuggles.com/89373803/just-got-her-about-10-minutes-ago-meet-farrow)
-- [It’s an honor for me to be part of your life. Thank you very much Rita](https://news.puppy-snuggles.com/79909551/its-an-honor-for-me-to-be-part-of-your-life-thank-you-very-much-rita)
-- [365 Days of Pepperoni &amp;amp;amp;Her Mama Day 10](https://news.puppy-snuggles.com/66450560/365-days-of-pepperoni-ampher-mama-day-10)
+- [You Monster!](https://news.puppy-snuggles.com/90004405/you-monster)
+- [Is my dog really that ugly?](https://news.puppy-snuggles.com/87907888/is-my-dog-really-that-ugly)
+- [Last few hours with my baby girl KJ](https://news.puppy-snuggles.com/85726377/last-few-hours-with-my-baby-girl-kj)
+- [What does it mean when a stray dog won’t eat from your hand?](https://news.puppy-snuggles.com/83280103/what-does-it-mean-when-a-stray-dog-wont-eat-from-your-hand)
+- [Nyla before and after she realized there was pizza](https://news.puppy-snuggles.com/82551284/nyla-before-and-after-she-realized-there-was-pizza)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
