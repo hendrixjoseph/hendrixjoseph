@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [You Monster!](https://news.puppy-snuggles.com/90004405/you-monster)
-- [Is my dog really that ugly?](https://news.puppy-snuggles.com/87907888/is-my-dog-really-that-ugly)
-- [Last few hours with my baby girl KJ](https://news.puppy-snuggles.com/85726377/last-few-hours-with-my-baby-girl-kj)
-- [What does it mean when a stray dog won’t eat from your hand?](https://news.puppy-snuggles.com/83280103/what-does-it-mean-when-a-stray-dog-wont-eat-from-your-hand)
-- [Nyla before and after she realized there was pizza](https://news.puppy-snuggles.com/82551284/nyla-before-and-after-she-realized-there-was-pizza)
+- [Lost my 12yo girl tonight 😔](https://news.puppy-snuggles.com/94256675/lost-my-12yo-girl-tonight)
+- [Need help naming this floof, what do you think suits him?](https://news.puppy-snuggles.com/94160676/need-help-naming-this-floof-what-do-you-think-suits-him)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
+- [Help me name my new rescue pup!](https://news.puppy-snuggles.com/81151364/help-me-name-my-new-rescue-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
