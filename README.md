@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lost my 12yo girl tonight 😔](https://news.puppy-snuggles.com/94256675/lost-my-12yo-girl-tonight)
-- [Need help naming this floof, what do you think suits him?](https://news.puppy-snuggles.com/94160676/need-help-naming-this-floof-what-do-you-think-suits-him)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
-- [Help me name my new rescue pup!](https://news.puppy-snuggles.com/81151364/help-me-name-my-new-rescue-pup)
+- [weight loss](https://news.puppy-snuggles.com/87551466/weight-loss)
+- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
+- [He’s so happy to give that sass](https://news.puppy-snuggles.com/86754637/hes-so-happy-to-give-that-sass)
+- [We finally found a toy Bambi loves! I can’t stop smiling when I see this rescue girly play and come out of her shell.](https://news.puppy-snuggles.com/85938244/we-finally-found-a-toy-bambi-loves-i-cant-stop-smiling-when-i-see-this-rescue-girly-play-and-come-out-of-her-shell)
+- [My rescue dog Lady](https://news.puppy-snuggles.com/84194944/my-rescue-dog-lady)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
