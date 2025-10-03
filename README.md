@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [she is my antidepressants](https://news.puppy-snuggles.com/99779234/she-is-my-antidepressants)
-- [Rayner is a people now](https://news.puppy-snuggles.com/99618453/rayner-is-a-people-now)
-- [She beat cancer!](https://news.puppy-snuggles.com/92316350/she-beat-cancer)
-- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
-- [Rescue puppy update](https://news.puppy-snuggles.com/89795757/rescue-puppy-update)
+- [She&amp;#039;s sniffing you](https://news.puppy-snuggles.com/99910619/shes-sniffing-you)
+- [one of my favourite Christmas pranks on my family](https://news.puppy-snuggles.com/85259418/one-of-my-favourite-christmas-pranks-on-my-family)
+- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
+- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
+- [Urgent! Past deadline! Lala is a lovely pup at Downey ACC in CA, urgently looking for her new best friend or a foster and rescue. She was left behind by her family after 5 years because they moved. She needs a second chance to experience the love she deserves. Could it be you?](https://news.puppy-snuggles.com/83056403/urgent-past-deadline-lala-is-a-lovely-pup-at-downey-acc-in-ca-urgently-looking-for-her-new-best-friend-or-a-foster-and-rescue-she-was-left-behind-by-her-family-after-5-years-because-they-moved-she-needs-a-second-chance-to-experience-the-love-she-deserves-could-it-be-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
