@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She&amp;#039;s sniffing you](https://news.puppy-snuggles.com/99910619/shes-sniffing-you)
-- [one of my favourite Christmas pranks on my family](https://news.puppy-snuggles.com/85259418/one-of-my-favourite-christmas-pranks-on-my-family)
-- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
-- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
-- [Urgent! Past deadline! Lala is a lovely pup at Downey ACC in CA, urgently looking for her new best friend or a foster and rescue. She was left behind by her family after 5 years because they moved. She needs a second chance to experience the love she deserves. Could it be you?](https://news.puppy-snuggles.com/83056403/urgent-past-deadline-lala-is-a-lovely-pup-at-downey-acc-in-ca-urgently-looking-for-her-new-best-friend-or-a-foster-and-rescue-she-was-left-behind-by-her-family-after-5-years-because-they-moved-she-needs-a-second-chance-to-experience-the-love-she-deserves-could-it-be-you)
+- [Up and smiling on a bright shiny day🐶😍](https://news.puppy-snuggles.com/99162922/up-and-smiling-on-a-bright-shiny-day)
+- [Let me draw your dogs!!](https://news.puppy-snuggles.com/85340967/let-me-draw-your-dogs)
+- [Taking my dog into surgery today](https://news.puppy-snuggles.com/84611319/taking-my-dog-into-surgery-today)
+- [Perry the Platypus melts my heart](https://news.puppy-snuggles.com/83609241/perry-the-platypus-melts-my-heart)
+- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
