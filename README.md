@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Up and smiling on a bright shiny day🐶😍](https://news.puppy-snuggles.com/99162922/up-and-smiling-on-a-bright-shiny-day)
-- [Let me draw your dogs!!](https://news.puppy-snuggles.com/85340967/let-me-draw-your-dogs)
-- [Taking my dog into surgery today](https://news.puppy-snuggles.com/84611319/taking-my-dog-into-surgery-today)
-- [Perry the Platypus melts my heart](https://news.puppy-snuggles.com/83609241/perry-the-platypus-melts-my-heart)
-- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
+- [Love my baby](https://news.puppy-snuggles.com/93005567/love-my-baby)
+- [I just wanted to post a photo of my dog ​​in the park.](https://news.puppy-snuggles.com/86184664/i-just-wanted-to-post-a-photo-of-my-dog-in-the-park)
+- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
+- [This lady is trying to keep my dogs that escaped](https://news.puppy-snuggles.com/81283525/this-lady-is-trying-to-keep-my-dogs-that-escaped)
+- [Is it okay for my dog to just chill in his crate with the door open out of his own will?](https://news.puppy-snuggles.com/80843057/is-it-okay-for-my-dog-to-just-chill-in-his-crate-with-the-door-open-out-of-his-own-will)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
