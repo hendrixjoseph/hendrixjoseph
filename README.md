@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love my baby](https://news.puppy-snuggles.com/93005567/love-my-baby)
-- [I just wanted to post a photo of my dog ​​in the park.](https://news.puppy-snuggles.com/86184664/i-just-wanted-to-post-a-photo-of-my-dog-in-the-park)
-- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
-- [This lady is trying to keep my dogs that escaped](https://news.puppy-snuggles.com/81283525/this-lady-is-trying-to-keep-my-dogs-that-escaped)
-- [Is it okay for my dog to just chill in his crate with the door open out of his own will?](https://news.puppy-snuggles.com/80843057/is-it-okay-for-my-dog-to-just-chill-in-his-crate-with-the-door-open-out-of-his-own-will)
+- [When I tell my dog show me your grill:](https://news.puppy-snuggles.com/100281726/when-i-tell-my-dog-show-me-your-grill)
+- [Hasn’t even been a year since we had to say goodbye; feels like a lifetime though. Just isn’t the same without you little buddy](https://news.puppy-snuggles.com/96645851/hasnt-even-been-a-year-since-we-had-to-say-goodbye-feels-like-a-lifetime-though-just-isnt-the-same-without-you-little-buddy)
+- [Samantha smiles](https://news.puppy-snuggles.com/92643667/samantha-smiles)
+- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
+- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
