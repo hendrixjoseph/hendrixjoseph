@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [When I tell my dog show me your grill:](https://news.puppy-snuggles.com/100281726/when-i-tell-my-dog-show-me-your-grill)
-- [Hasn’t even been a year since we had to say goodbye; feels like a lifetime though. Just isn’t the same without you little buddy](https://news.puppy-snuggles.com/96645851/hasnt-even-been-a-year-since-we-had-to-say-goodbye-feels-like-a-lifetime-though-just-isnt-the-same-without-you-little-buddy)
-- [Samantha smiles](https://news.puppy-snuggles.com/92643667/samantha-smiles)
-- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
-- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
+- [Let me draw your dogs!!](https://news.puppy-snuggles.com/85340967/let-me-draw-your-dogs)
+- [My boy Blue Maverick🩵](https://news.puppy-snuggles.com/85069740/my-boy-blue-maverick)
+- [I&amp;#039;d love to see everyone&amp;#039;s dog families! Here&amp;#039;s my little crew](https://news.puppy-snuggles.com/83022429/id-love-to-see-everyones-dog-families-heres-my-little-crew)
+- [Our little smoosh Tommy ❤️](https://news.puppy-snuggles.com/81622034/our-little-smoosh-tommy)
+- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
