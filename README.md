@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let me draw your dogs!!](https://news.puppy-snuggles.com/85340967/let-me-draw-your-dogs)
-- [My boy Blue Maverick🩵](https://news.puppy-snuggles.com/85069740/my-boy-blue-maverick)
-- [I&amp;#039;d love to see everyone&amp;#039;s dog families! Here&amp;#039;s my little crew](https://news.puppy-snuggles.com/83022429/id-love-to-see-everyones-dog-families-heres-my-little-crew)
-- [Our little smoosh Tommy ❤️](https://news.puppy-snuggles.com/81622034/our-little-smoosh-tommy)
-- [I just wanted to share this handsome boy, because he deserves recognition](https://news.puppy-snuggles.com/81184987/i-just-wanted-to-share-this-handsome-boy-because-he-deserves-recognition)
+- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
+- [I look pretty good for 15, don’t you think? And I still hike!](https://news.puppy-snuggles.com/84274205/i-look-pretty-good-for-15-dont-you-think-and-i-still-hike)
+- [6 years and I still miss her, I still call her name inadvertently, I still wait to hear her tippy-taps on the floor. Goldy truly was the most intelligent dog I&amp;#039;ve had.](https://news.puppy-snuggles.com/79097805/6-years-and-i-still-miss-her-i-still-call-her-name-inadvertently-i-still-wait-to-hear-her-tippy-taps-on-the-floor-goldy-truly-was-the-most-intelligent-dog-ive-had)
+- [Before and now](https://news.puppy-snuggles.com/78042412/before-and-now)
+- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
