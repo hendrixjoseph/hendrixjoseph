@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
-- [I look pretty good for 15, don’t you think? And I still hike!](https://news.puppy-snuggles.com/84274205/i-look-pretty-good-for-15-dont-you-think-and-i-still-hike)
-- [6 years and I still miss her, I still call her name inadvertently, I still wait to hear her tippy-taps on the floor. Goldy truly was the most intelligent dog I&amp;#039;ve had.](https://news.puppy-snuggles.com/79097805/6-years-and-i-still-miss-her-i-still-call-her-name-inadvertently-i-still-wait-to-hear-her-tippy-taps-on-the-floor-goldy-truly-was-the-most-intelligent-dog-ive-had)
-- [Before and now](https://news.puppy-snuggles.com/78042412/before-and-now)
-- [Help! I need boy dog names](https://news.puppy-snuggles.com/63629081/help-i-need-boy-dog-names)
+- [Help me name my new puppy](https://news.puppy-snuggles.com/92188206/help-me-name-my-new-puppy)
+- [After not being able to have a dog for 14 years, I finally got my little baby, and I literally couldn&amp;#039;t be happier](https://news.puppy-snuggles.com/89795755/after-not-being-able-to-have-a-dog-for-14-years-i-finally-got-my-little-baby-and-i-literally-couldnt-be-happier)
+- [From London to India — she crossed continents, not for comfort, but for compassion. Serving our paralysed dogs with love that defies age](https://news.puppy-snuggles.com/84611323/from-london-to-india-she-crossed-continents-not-for-comfort-but-for-compassion-serving-our-paralysed-dogs-with-love-that-defies-age)
+- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
+- [I miss him so much](https://news.puppy-snuggles.com/83443137/i-miss-him-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
