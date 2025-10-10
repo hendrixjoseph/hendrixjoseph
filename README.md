@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Help me name my new puppy](https://news.puppy-snuggles.com/92188206/help-me-name-my-new-puppy)
-- [After not being able to have a dog for 14 years, I finally got my little baby, and I literally couldn&amp;#039;t be happier](https://news.puppy-snuggles.com/89795755/after-not-being-able-to-have-a-dog-for-14-years-i-finally-got-my-little-baby-and-i-literally-couldnt-be-happier)
-- [From London to India — she crossed continents, not for comfort, but for compassion. Serving our paralysed dogs with love that defies age](https://news.puppy-snuggles.com/84611323/from-london-to-india-she-crossed-continents-not-for-comfort-but-for-compassion-serving-our-paralysed-dogs-with-love-that-defies-age)
-- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
-- [I miss him so much](https://news.puppy-snuggles.com/83443137/i-miss-him-so-much)
+- [Our boy Felix crossed the rainbow bridge today](https://news.puppy-snuggles.com/100766949/our-boy-felix-crossed-the-rainbow-bridge-today)
+- [My dog](https://news.puppy-snuggles.com/100672586/my-dog)
+- [Has anyone else unknowingly adopted a purebred pup from the shelter? Here’s mine! 🧡](https://news.puppy-snuggles.com/100010906/has-anyone-else-unknowingly-adopted-a-purebred-pup-from-the-shelter-heres-mine)
+- [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
+- [Bring your dog to work and she sleeps on the job. Can&amp;#039;t even get the staff](https://news.puppy-snuggles.com/84160427/bring-your-dog-to-work-and-she-sleeps-on-the-job-cant-even-get-the-staff)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
