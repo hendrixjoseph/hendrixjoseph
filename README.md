@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our boy Felix crossed the rainbow bridge today](https://news.puppy-snuggles.com/100766949/our-boy-felix-crossed-the-rainbow-bridge-today)
-- [My dog](https://news.puppy-snuggles.com/100672586/my-dog)
-- [Has anyone else unknowingly adopted a purebred pup from the shelter? Here’s mine! 🧡](https://news.puppy-snuggles.com/100010906/has-anyone-else-unknowingly-adopted-a-purebred-pup-from-the-shelter-heres-mine)
-- [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
-- [Bring your dog to work and she sleeps on the job. Can&amp;#039;t even get the staff](https://news.puppy-snuggles.com/84160427/bring-your-dog-to-work-and-she-sleeps-on-the-job-cant-even-get-the-staff)
+- [Kynos says good night](https://news.puppy-snuggles.com/99714301/kynos-says-good-night)
+- [Said goodbye to my baby after 17 years](https://news.puppy-snuggles.com/96715229/said-goodbye-to-my-baby-after-17-years)
+- [Koji will make you smile 😃](https://news.puppy-snuggles.com/95216323/koji-will-make-you-smile)
+- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
+- [I look pretty good for 15, don’t you think? And I still hike!](https://news.puppy-snuggles.com/84274205/i-look-pretty-good-for-15-dont-you-think-and-i-still-hike)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
