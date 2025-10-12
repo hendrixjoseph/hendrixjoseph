@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Kynos says good night](https://news.puppy-snuggles.com/99714301/kynos-says-good-night)
-- [Said goodbye to my baby after 17 years](https://news.puppy-snuggles.com/96715229/said-goodbye-to-my-baby-after-17-years)
-- [Koji will make you smile 😃](https://news.puppy-snuggles.com/95216323/koji-will-make-you-smile)
-- [If they had to choose between the love of a dog and the love of a human. What would you choose?](https://news.puppy-snuggles.com/85340971/if-they-had-to-choose-between-the-love-of-a-dog-and-the-love-of-a-human-what-would-you-choose)
-- [I look pretty good for 15, don’t you think? And I still hike!](https://news.puppy-snuggles.com/84274205/i-look-pretty-good-for-15-dont-you-think-and-i-still-hike)
+- [I never realized how much a dog could change your life until I got one.](https://news.puppy-snuggles.com/88785843/i-never-realized-how-much-a-dog-could-change-your-life-until-i-got-one)
+- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
+- [It’s my baby’s first birthday today!](https://news.puppy-snuggles.com/83934473/its-my-babys-first-birthday-today)
+- [I lost all my fur babies unexpectedly in a span of 6 months. 1.5 months between the 2 of them due to sudden cardiac arrest and GDV.](https://news.puppy-snuggles.com/78042417/i-lost-all-my-fur-babies-unexpectedly-in-a-span-of-6-months-15-months-between-the-2-of-them-due-to-sudden-cardiac-arrest-and-gdv)
+- [Benny Update!](https://news.puppy-snuggles.com/75591974/benny-update)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
