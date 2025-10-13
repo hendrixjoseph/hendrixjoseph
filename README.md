@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I never realized how much a dog could change your life until I got one.](https://news.puppy-snuggles.com/88785843/i-never-realized-how-much-a-dog-could-change-your-life-until-i-got-one)
-- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
-- [It’s my baby’s first birthday today!](https://news.puppy-snuggles.com/83934473/its-my-babys-first-birthday-today)
-- [I lost all my fur babies unexpectedly in a span of 6 months. 1.5 months between the 2 of them due to sudden cardiac arrest and GDV.](https://news.puppy-snuggles.com/78042417/i-lost-all-my-fur-babies-unexpectedly-in-a-span-of-6-months-15-months-between-the-2-of-them-due-to-sudden-cardiac-arrest-and-gdv)
-- [Benny Update!](https://news.puppy-snuggles.com/75591974/benny-update)
+- [I posted about adopting Whisp a few days ago. Today, she saved my son a good deal of pain.](https://news.puppy-snuggles.com/94191671/i-posted-about-adopting-whisp-a-few-days-ago-today-she-saved-my-son-a-good-deal-of-pain)
+- [CUTENESS OVERLOAD](https://news.puppy-snuggles.com/67138369/cuteness-overload)
+- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
+- [happy after playing](https://news.puppy-snuggles.com/46397510/happy-after-playing)
+- [18 yrs old, owners decided they didn&amp;#039;t want him. fine..welcome to our family Charlie](https://news.puppy-snuggles.com/27936281/18-yrs-old-owners-decided-they-didnt-want-him-finewelcome-to-our-family-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
