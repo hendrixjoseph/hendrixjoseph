@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I posted about adopting Whisp a few days ago. Today, she saved my son a good deal of pain.](https://news.puppy-snuggles.com/94191671/i-posted-about-adopting-whisp-a-few-days-ago-today-she-saved-my-son-a-good-deal-of-pain)
-- [CUTENESS OVERLOAD](https://news.puppy-snuggles.com/67138369/cuteness-overload)
-- [He knows he was supposed to ride in the trunk. That’s the look he gave me when he jumped on the seats.](https://news.puppy-snuggles.com/62713467/he-knows-he-was-supposed-to-ride-in-the-trunk-thats-the-look-he-gave-me-when-he-jumped-on-the-seats)
-- [happy after playing](https://news.puppy-snuggles.com/46397510/happy-after-playing)
-- [18 yrs old, owners decided they didn&amp;#039;t want him. fine..welcome to our family Charlie](https://news.puppy-snuggles.com/27936281/18-yrs-old-owners-decided-they-didnt-want-him-finewelcome-to-our-family-charlie)
+- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
+- [We didn’t think our dood would like being on the boat. We were wrong.](https://news.puppy-snuggles.com/99418143/we-didnt-think-our-dood-would-like-being-on-the-boat-we-were-wrong)
+- [Had to say goodbye to my old lady today. Rest in peace, Chubbs. I miss you already.](https://news.puppy-snuggles.com/96751840/had-to-say-goodbye-to-my-old-lady-today-rest-in-peace-chubbs-i-miss-you-already)
+- [After not being able to have a dog for 14 years, I finally got my little baby, and I literally couldn&amp;#039;t be happier](https://news.puppy-snuggles.com/89795755/after-not-being-able-to-have-a-dog-for-14-years-i-finally-got-my-little-baby-and-i-literally-couldnt-be-happier)
+- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
