@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
-- [We didn’t think our dood would like being on the boat. We were wrong.](https://news.puppy-snuggles.com/99418143/we-didnt-think-our-dood-would-like-being-on-the-boat-we-were-wrong)
-- [Had to say goodbye to my old lady today. Rest in peace, Chubbs. I miss you already.](https://news.puppy-snuggles.com/96751840/had-to-say-goodbye-to-my-old-lady-today-rest-in-peace-chubbs-i-miss-you-already)
-- [After not being able to have a dog for 14 years, I finally got my little baby, and I literally couldn&amp;#039;t be happier](https://news.puppy-snuggles.com/89795755/after-not-being-able-to-have-a-dog-for-14-years-i-finally-got-my-little-baby-and-i-literally-couldnt-be-happier)
-- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
+- [Show me your goodest boy or girl dog](https://news.puppy-snuggles.com/101273956/show-me-your-goodest-boy-or-girl-dog)
+- [What a smile 😬](https://news.puppy-snuggles.com/95954846/what-a-smile)
+- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
+- [My pretty girl enjoying her pool](https://news.puppy-snuggles.com/85684301/my-pretty-girl-enjoying-her-pool)
+- [This is your reminder to never stop advocating for your pup!](https://news.puppy-snuggles.com/84947376/this-is-your-reminder-to-never-stop-advocating-for-your-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
