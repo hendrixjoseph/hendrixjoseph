@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your goodest boy or girl dog](https://news.puppy-snuggles.com/101273956/show-me-your-goodest-boy-or-girl-dog)
-- [What a smile 😬](https://news.puppy-snuggles.com/95954846/what-a-smile)
-- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
-- [My pretty girl enjoying her pool](https://news.puppy-snuggles.com/85684301/my-pretty-girl-enjoying-her-pool)
-- [This is your reminder to never stop advocating for your pup!](https://news.puppy-snuggles.com/84947376/this-is-your-reminder-to-never-stop-advocating-for-your-pup)
+- [Happy happy derp derp](https://news.puppy-snuggles.com/101373075/happy-happy-derp-derp)
+- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
+- [My dog turned 15 so we threw her a quinceañera!](https://news.puppy-snuggles.com/82953506/my-dog-turned-15-so-we-threw-her-a-quinceanera)
+- [Goodbye to my best friend](https://news.puppy-snuggles.com/80843049/goodbye-to-my-best-friend)
+- [Just my boy](https://news.puppy-snuggles.com/78992727/just-my-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
