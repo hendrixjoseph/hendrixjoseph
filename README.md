@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy happy derp derp](https://news.puppy-snuggles.com/101373075/happy-happy-derp-derp)
-- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
-- [My dog turned 15 so we threw her a quinceañera!](https://news.puppy-snuggles.com/82953506/my-dog-turned-15-so-we-threw-her-a-quinceanera)
-- [Goodbye to my best friend](https://news.puppy-snuggles.com/80843049/goodbye-to-my-best-friend)
-- [Just my boy](https://news.puppy-snuggles.com/78992727/just-my-boy)
+- [Always a smiling boy](https://news.puppy-snuggles.com/93102688/always-a-smiling-boy)
+- [I love this goober so much!](https://news.puppy-snuggles.com/86454047/i-love-this-goober-so-much)
+- [Yup he is a judger alright](https://news.puppy-snuggles.com/84991025/yup-he-is-a-judger-alright)
+- [I went to visit my grandmother today and played with her dog. 🐕🤗🥰🥰](https://news.puppy-snuggles.com/83743749/i-went-to-visit-my-grandmother-today-and-played-with-her-dog)
+- [My daughter decided to dress up the birthday girl. Happy 12th birthday Ellie](https://news.puppy-snuggles.com/78542044/my-daughter-decided-to-dress-up-the-birthday-girl-happy-12th-birthday-ellie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
