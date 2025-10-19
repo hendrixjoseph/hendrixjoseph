@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My grandmother and her dog](https://news.puppy-snuggles.com/93917853/my-grandmother-and-her-dog)
-- [Is my dog fat? She’s 15 now, does a lot less exercise than she used to.](https://news.puppy-snuggles.com/92738984/is-my-dog-fat-shes-15-now-does-a-lot-less-exercise-than-she-used-to)
-- [Taking my dog into surgery today](https://news.puppy-snuggles.com/84611319/taking-my-dog-into-surgery-today)
-- [An older puppy](https://news.puppy-snuggles.com/84045725/an-older-puppy)
-- [My boy’s taste in music is his state of mind.](https://news.puppy-snuggles.com/83895011/my-boys-taste-in-music-is-his-state-of-mind)
+- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
+- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
+- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
+- [look at this cutie we picked up yesterday! we named her Rutabaga or &amp;quot;rudy&amp;quot; for short 🥹🥬](https://news.puppy-snuggles.com/81517210/look-at-this-cutie-we-picked-up-yesterday-we-named-her-rutabaga-or-rudy-for-short)
+- [I just drove past the coolest dog](https://news.puppy-snuggles.com/66319405/i-just-drove-past-the-coolest-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
