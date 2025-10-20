@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
-- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
-- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
-- [look at this cutie we picked up yesterday! we named her Rutabaga or &amp;quot;rudy&amp;quot; for short 🥹🥬](https://news.puppy-snuggles.com/81517210/look-at-this-cutie-we-picked-up-yesterday-we-named-her-rutabaga-or-rudy-for-short)
-- [I just drove past the coolest dog](https://news.puppy-snuggles.com/66319405/i-just-drove-past-the-coolest-dog)
+- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
+- [I lost this good boy a few years ago. And today I’m really missing him.](https://news.puppy-snuggles.com/77915972/i-lost-this-good-boy-a-few-years-ago-and-today-im-really-missing-him)
+- [Former D.C. dog daycare accused of kicking puppy to death](https://news.puppy-snuggles.com/63616860/former-dc-dog-daycare-accused-of-kicking-puppy-to-death)
+- [Just wanna show her off](https://news.puppy-snuggles.com/54186488/just-wanna-show-her-off)
+- [Before and After Adaption](https://news.puppy-snuggles.com/24459817/before-and-after-adaption)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
