@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [October 2025 Blog Statistics](https://www.joehxblog.com/october-2025-blog-statistics/)
 - [How Will I Deduct Overtime Pay On My Taxes Next Year?](https://www.joehxblog.com/how-will-i-deduct-overtime-pay-on-my-taxes-next-year/)
 - [September 2025 Book Reading List](https://www.joehxblog.com/september-2025-book-reading-list/)
 - [September 2025 Blog Statistics](https://www.joehxblog.com/september-2025-blog-statistics/)
 - [August 2025 Book Reading List](https://www.joehxblog.com/august-2025-book-reading-list/)
-- [August 2025 Blog Statistics](https://www.joehxblog.com/august-2025-blog-statistics/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
