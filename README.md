@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Today, my sweet Daisy Belle went to sleep and woke up in Heaven… 🌼🩷🐾🌈🪽🩷🌼](https://news.puppy-snuggles.com/83707713/today-my-sweet-daisy-belle-went-to-sleep-and-woke-up-in-heaven)
-- [I lost this good boy a few years ago. And today I’m really missing him.](https://news.puppy-snuggles.com/77915972/i-lost-this-good-boy-a-few-years-ago-and-today-im-really-missing-him)
-- [Former D.C. dog daycare accused of kicking puppy to death](https://news.puppy-snuggles.com/63616860/former-dc-dog-daycare-accused-of-kicking-puppy-to-death)
-- [Just wanna show her off](https://news.puppy-snuggles.com/54186488/just-wanna-show-her-off)
-- [Before and After Adaption](https://news.puppy-snuggles.com/24459817/before-and-after-adaption)
+- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
+- [My son](https://news.puppy-snuggles.com/96294505/my-son)
+- [What do we think she is?](https://news.puppy-snuggles.com/85853741/what-do-we-think-she-is)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
