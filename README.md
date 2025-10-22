@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
-- [My son](https://news.puppy-snuggles.com/96294505/my-son)
-- [What do we think she is?](https://news.puppy-snuggles.com/85853741/what-do-we-think-she-is)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
+- [Weirdest dog we’ve ever had😅](https://news.puppy-snuggles.com/96817778/weirdest-dog-weve-ever-had)
+- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
+- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
+- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
+- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
