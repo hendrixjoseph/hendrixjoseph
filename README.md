@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Weirdest dog we’ve ever had😅](https://news.puppy-snuggles.com/96817778/weirdest-dog-weve-ever-had)
-- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
-- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
-- [What should we name this dog?](https://news.puppy-snuggles.com/82480480/what-should-we-name-this-dog)
-- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
+- [Meet my new dog, Coco](https://news.puppy-snuggles.com/95992729/meet-my-new-dog-coco)
+- [2 months vs 1 year, still sleeping the same 🤣](https://news.puppy-snuggles.com/95992728/2-months-vs-1-year-still-sleeping-the-same)
+- [This week our family lost Bobik… House feels so empty now](https://news.puppy-snuggles.com/94674376/this-week-our-family-lost-bobik-house-feels-so-empty-now)
+- [My goodest boy Hamp](https://news.puppy-snuggles.com/94641328/my-goodest-boy-hamp)
+- [My pretty Zelda](https://news.puppy-snuggles.com/94354858/my-pretty-zelda)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
