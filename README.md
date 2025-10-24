@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet my new dog, Coco](https://news.puppy-snuggles.com/95992729/meet-my-new-dog-coco)
-- [2 months vs 1 year, still sleeping the same 🤣](https://news.puppy-snuggles.com/95992728/2-months-vs-1-year-still-sleeping-the-same)
-- [This week our family lost Bobik… House feels so empty now](https://news.puppy-snuggles.com/94674376/this-week-our-family-lost-bobik-house-feels-so-empty-now)
-- [My goodest boy Hamp](https://news.puppy-snuggles.com/94641328/my-goodest-boy-hamp)
-- [My pretty Zelda](https://news.puppy-snuggles.com/94354858/my-pretty-zelda)
+- [Whenever i call her, she yawns and stretches for some reason](https://news.puppy-snuggles.com/100412543/whenever-i-call-her-she-yawns-and-stretches-for-some-reason)
+- [my boy before and after a haircut!!](https://news.puppy-snuggles.com/100412541/my-boy-before-and-after-a-haircut)
+- [Happy Birthday!](https://news.puppy-snuggles.com/87581567/happy-birthday)
+- [Show me pictures of your dogs with their toys!](https://news.puppy-snuggles.com/84947378/show-me-pictures-of-your-dogs-with-their-toys)
+- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
