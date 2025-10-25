@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Whenever i call her, she yawns and stretches for some reason](https://news.puppy-snuggles.com/100412543/whenever-i-call-her-she-yawns-and-stretches-for-some-reason)
-- [my boy before and after a haircut!!](https://news.puppy-snuggles.com/100412541/my-boy-before-and-after-a-haircut)
-- [Happy Birthday!](https://news.puppy-snuggles.com/87581567/happy-birthday)
-- [Show me pictures of your dogs with their toys!](https://news.puppy-snuggles.com/84947378/show-me-pictures-of-your-dogs-with-their-toys)
-- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
+- [New album dropping soon](https://news.puppy-snuggles.com/102536684/new-album-dropping-soon)
+- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
+- [I’ve been taking photos for a local rescue. These two were a blast.](https://news.puppy-snuggles.com/83443135/ive-been-taking-photos-for-a-local-rescue-these-two-were-a-blast)
+- [My sorta dumb bulldogs](https://news.puppy-snuggles.com/78960037/my-sorta-dumb-bulldogs)
+- [Newest Member to the family](https://news.puppy-snuggles.com/78785083/newest-member-to-the-family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
