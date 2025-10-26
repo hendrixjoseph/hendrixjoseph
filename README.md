@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New album dropping soon](https://news.puppy-snuggles.com/102536684/new-album-dropping-soon)
-- [Been taking 1 photo a day of my dynamic duo for 6 months - here&amp;#039;s favourites so far](https://news.puppy-snuggles.com/84835721/been-taking-1-photo-a-day-of-my-dynamic-duo-for-6-months-heres-favourites-so-far)
-- [I’ve been taking photos for a local rescue. These two were a blast.](https://news.puppy-snuggles.com/83443135/ive-been-taking-photos-for-a-local-rescue-these-two-were-a-blast)
-- [My sorta dumb bulldogs](https://news.puppy-snuggles.com/78960037/my-sorta-dumb-bulldogs)
-- [Newest Member to the family](https://news.puppy-snuggles.com/78785083/newest-member-to-the-family)
+- [happy girl](https://news.puppy-snuggles.com/95543922/happy-girl)
+- [puppy teeth, last week vs this week!](https://news.puppy-snuggles.com/84045729/puppy-teeth-last-week-vs-this-week)
+- [Nyla before and after she realized there was pizza](https://news.puppy-snuggles.com/82551284/nyla-before-and-after-she-realized-there-was-pizza)
+- [Took our new puppy &lpar;shelter rescue&rpar; to her 1st vet visit. As you can see, Millie was not thrilled. 😂](https://news.puppy-snuggles.com/77171824/took-our-new-puppy-shelter-rescue-to-her-1st-vet-visit-as-you-can-see-millie-was-not-thrilled)
+- [It’s vet day—someone’s all smiles, and someone’s definitely not!](https://news.puppy-snuggles.com/69042276/its-vet-day-someones-all-smiles-and-someones-definitely-not)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
