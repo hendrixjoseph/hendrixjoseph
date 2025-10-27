@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
+- [Did you steal a sock out of the washing machine?](https://news.puppy-snuggles.com/97923355/did-you-steal-a-sock-out-of-the-washing-machine)
 - [happy girl](https://news.puppy-snuggles.com/95543922/happy-girl)
-- [puppy teeth, last week vs this week!](https://news.puppy-snuggles.com/84045729/puppy-teeth-last-week-vs-this-week)
-- [Nyla before and after she realized there was pizza](https://news.puppy-snuggles.com/82551284/nyla-before-and-after-she-realized-there-was-pizza)
-- [Took our new puppy &lpar;shelter rescue&rpar; to her 1st vet visit. As you can see, Millie was not thrilled. 😂](https://news.puppy-snuggles.com/77171824/took-our-new-puppy-shelter-rescue-to-her-1st-vet-visit-as-you-can-see-millie-was-not-thrilled)
-- [It’s vet day—someone’s all smiles, and someone’s definitely not!](https://news.puppy-snuggles.com/69042276/its-vet-day-someones-all-smiles-and-someones-definitely-not)
+- [Hello Harley ❤️](https://news.puppy-snuggles.com/94223756/hello-harley)
+- [Need help naming this floof, what do you think suits him?](https://news.puppy-snuggles.com/94160676/need-help-naming-this-floof-what-do-you-think-suits-him)
+- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
