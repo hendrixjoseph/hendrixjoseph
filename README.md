@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Did you steal a sock out of the washing machine?](https://news.puppy-snuggles.com/97923355/did-you-steal-a-sock-out-of-the-washing-machine)
-- [happy girl](https://news.puppy-snuggles.com/95543922/happy-girl)
-- [Hello Harley ❤️](https://news.puppy-snuggles.com/94223756/hello-harley)
-- [Need help naming this floof, what do you think suits him?](https://news.puppy-snuggles.com/94160676/need-help-naming-this-floof-what-do-you-think-suits-him)
-- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
+- [My boy Ranger.](https://news.puppy-snuggles.com/81117699/my-boy-ranger)
+- [5 years of having this golden soul in my life](https://news.puppy-snuggles.com/77354284/5-years-of-having-this-golden-soul-in-my-life)
+- [Been feeding this stray dog, here&amp;#039;s an update!](https://news.puppy-snuggles.com/75652057/been-feeding-this-stray-dog-heres-an-update)
+- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
+- [My beautiful girl is going for surgery on Monday](https://news.puppy-snuggles.com/57565250/my-beautiful-girl-is-going-for-surgery-on-monday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
