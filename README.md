@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Ranger.](https://news.puppy-snuggles.com/81117699/my-boy-ranger)
-- [5 years of having this golden soul in my life](https://news.puppy-snuggles.com/77354284/5-years-of-having-this-golden-soul-in-my-life)
-- [Been feeding this stray dog, here&amp;#039;s an update!](https://news.puppy-snuggles.com/75652057/been-feeding-this-stray-dog-heres-an-update)
-- [Kinda want to leave this sub even though im a Dog lover](https://news.puppy-snuggles.com/58752779/kinda-want-to-leave-this-sub-even-though-im-a-dog-lover)
-- [My beautiful girl is going for surgery on Monday](https://news.puppy-snuggles.com/57565250/my-beautiful-girl-is-going-for-surgery-on-monday)
+- [Perry The Dog](https://news.puppy-snuggles.com/100866125/perry-the-dog)
+- [My dog’s lazy way of asking for more pets](https://news.puppy-snuggles.com/100044003/my-dogs-lazy-way-of-asking-for-more-pets)
+- [Daycare walkies🐾](https://news.puppy-snuggles.com/99162931/daycare-walkies)
+- [She beat cancer!](https://news.puppy-snuggles.com/92316350/she-beat-cancer)
+- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
