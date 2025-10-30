@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Perry The Dog](https://news.puppy-snuggles.com/100866125/perry-the-dog)
-- [My dog’s lazy way of asking for more pets](https://news.puppy-snuggles.com/100044003/my-dogs-lazy-way-of-asking-for-more-pets)
-- [Daycare walkies🐾](https://news.puppy-snuggles.com/99162931/daycare-walkies)
-- [She beat cancer!](https://news.puppy-snuggles.com/92316350/she-beat-cancer)
-- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
+- [She is pretty?](https://news.puppy-snuggles.com/102605598/she-is-pretty)
+- [I got you, bro..🐕](https://news.puppy-snuggles.com/102605596/i-got-you-bro)
+- [New puppy having a nap this morning](https://news.puppy-snuggles.com/101827325/new-puppy-having-a-nap-this-morning)
+- [Old Pup smiles](https://news.puppy-snuggles.com/101035237/old-pup-smiles)
+- [Why he&amp;#039;s looking at me like he has seen my search history](https://news.puppy-snuggles.com/83157613/why-hes-looking-at-me-like-he-has-seen-my-search-history)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
