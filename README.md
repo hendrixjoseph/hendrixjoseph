@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She is pretty?](https://news.puppy-snuggles.com/102605598/she-is-pretty)
-- [I got you, bro..🐕](https://news.puppy-snuggles.com/102605596/i-got-you-bro)
-- [New puppy having a nap this morning](https://news.puppy-snuggles.com/101827325/new-puppy-having-a-nap-this-morning)
-- [Old Pup smiles](https://news.puppy-snuggles.com/101035237/old-pup-smiles)
-- [Why he&amp;#039;s looking at me like he has seen my search history](https://news.puppy-snuggles.com/83157613/why-hes-looking-at-me-like-he-has-seen-my-search-history)
+- [My dog’s lazy way of asking for more pets](https://news.puppy-snuggles.com/100044003/my-dogs-lazy-way-of-asking-for-more-pets)
+- [Daycare walkies🐾](https://news.puppy-snuggles.com/99162931/daycare-walkies)
+- [Do you dream about your dogs?](https://news.puppy-snuggles.com/83707715/do-you-dream-about-your-dogs)
+- [Happy 16th birthday to my Lil boy Buddy!](https://news.puppy-snuggles.com/83609233/happy-16th-birthday-to-my-lil-boy-buddy)
+- [When people ask to see a picture of my dog](https://news.puppy-snuggles.com/81658467/when-people-ask-to-see-a-picture-of-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
