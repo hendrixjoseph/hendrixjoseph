@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Video from years ago of my big baby still miss him](https://news.puppy-snuggles.com/99880442/video-from-years-ago-of-my-big-baby-still-miss-him)
-- [Here’s another before and after of my beautiful Bambi girl. She is thriving now. 🤎](https://news.puppy-snuggles.com/85938247/heres-another-before-and-after-of-my-beautiful-bambi-girl-she-is-thriving-now)
-- [Got my first ever puppy. She’s 2 months old and just a baby. Would love name suggestions!](https://news.puppy-snuggles.com/81151361/got-my-first-ever-puppy-shes-2-months-old-and-just-a-baby-would-love-name-suggestions)
-- [My dog is deathly scared of flies???](https://news.puppy-snuggles.com/77294620/my-dog-is-deathly-scared-of-flies)
-- [Sammy - 14 years with our sweet and funny bear ❤ RIP July 11, 2023. We will never forget you.](https://news.puppy-snuggles.com/60253092/sammy-14-years-with-our-sweet-and-funny-bear-rip-july-11-2023-we-will-never-forget-you)
+- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
+- [Unsure smiles](https://news.puppy-snuggles.com/86785118/unsure-smiles)
+- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
+- [Meet Ozzy, 4 months of pure cuteness.](https://news.puppy-snuggles.com/84007873/meet-ozzy-4-months-of-pure-cuteness)
+- [My girl turned five a couple day ago!](https://news.puppy-snuggles.com/80110243/my-girl-turned-five-a-couple-day-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
