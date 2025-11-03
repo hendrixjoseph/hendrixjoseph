@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [Unsure smiles](https://news.puppy-snuggles.com/86785118/unsure-smiles)
-- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
-- [Meet Ozzy, 4 months of pure cuteness.](https://news.puppy-snuggles.com/84007873/meet-ozzy-4-months-of-pure-cuteness)
-- [My girl turned five a couple day ago!](https://news.puppy-snuggles.com/80110243/my-girl-turned-five-a-couple-day-ago)
+- [Daycare walkies🐾](https://news.puppy-snuggles.com/99162931/daycare-walkies)
+- [Cute or what?](https://news.puppy-snuggles.com/98316726/cute-or-what)
+- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
+- [My favorite pictures. RIP Huck, you’ll never know just how special you were to us.](https://news.puppy-snuggles.com/82070651/my-favorite-pictures-rip-huck-youll-never-know-just-how-special-you-were-to-us)
+- [Pictures of or rescue girl Tilly!! Tagged as NSFW because conditions were bad when we started our journey](https://news.puppy-snuggles.com/75373984/pictures-of-or-rescue-girl-tilly-tagged-as-nsfw-because-conditions-were-bad-when-we-started-our-journey)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
