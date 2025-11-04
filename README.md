@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daycare walkies🐾](https://news.puppy-snuggles.com/99162931/daycare-walkies)
-- [Cute or what?](https://news.puppy-snuggles.com/98316726/cute-or-what)
-- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
-- [My favorite pictures. RIP Huck, you’ll never know just how special you were to us.](https://news.puppy-snuggles.com/82070651/my-favorite-pictures-rip-huck-youll-never-know-just-how-special-you-were-to-us)
-- [Pictures of or rescue girl Tilly!! Tagged as NSFW because conditions were bad when we started our journey](https://news.puppy-snuggles.com/75373984/pictures-of-or-rescue-girl-tilly-tagged-as-nsfw-because-conditions-were-bad-when-we-started-our-journey)
+- [my baby turned 6 months old today!](https://news.puppy-snuggles.com/100010912/my-baby-turned-6-months-old-today)
+- [Happy girl 🌸😂](https://news.puppy-snuggles.com/99026864/happy-girl)
+- [Happy 10th Birthday Gatsby](https://news.puppy-snuggles.com/86414334/happy-10th-birthday-gatsby)
+- [I want to see your dog&amp;#039;s funny moments and doodle them](https://news.puppy-snuggles.com/80776364/i-want-to-see-your-dogs-funny-moments-and-doodle-them)
+- [i will draw your dog for free](https://news.puppy-snuggles.com/65164562/i-will-draw-your-dog-for-free)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
