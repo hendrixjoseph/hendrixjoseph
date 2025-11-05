@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my baby turned 6 months old today!](https://news.puppy-snuggles.com/100010912/my-baby-turned-6-months-old-today)
-- [Happy girl 🌸😂](https://news.puppy-snuggles.com/99026864/happy-girl)
-- [Happy 10th Birthday Gatsby](https://news.puppy-snuggles.com/86414334/happy-10th-birthday-gatsby)
-- [I want to see your dog&amp;#039;s funny moments and doodle them](https://news.puppy-snuggles.com/80776364/i-want-to-see-your-dogs-funny-moments-and-doodle-them)
-- [i will draw your dog for free](https://news.puppy-snuggles.com/65164562/i-will-draw-your-dog-for-free)
+- [Dog gets wheelchair and the reaction of joy is the most beautiful thing](https://news.puppy-snuggles.com/80947387/dog-gets-wheelchair-and-the-reaction-of-joy-is-the-most-beautiful-thing)
+- [My 1st birthday 🎂🐕](https://news.puppy-snuggles.com/59009377/my-1st-birthday)
+- [My friend is a professional dog walker and she&amp;#039;s always posting these. Cuteness overload.](https://news.puppy-snuggles.com/53165085/my-friend-is-a-professional-dog-walker-and-shes-always-posting-these-cuteness-overload)
+- [Bella!](https://news.puppy-snuggles.com/50664632/bella)
+- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
