@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog gets wheelchair and the reaction of joy is the most beautiful thing](https://news.puppy-snuggles.com/80947387/dog-gets-wheelchair-and-the-reaction-of-joy-is-the-most-beautiful-thing)
-- [My 1st birthday 🎂🐕](https://news.puppy-snuggles.com/59009377/my-1st-birthday)
-- [My friend is a professional dog walker and she&amp;#039;s always posting these. Cuteness overload.](https://news.puppy-snuggles.com/53165085/my-friend-is-a-professional-dog-walker-and-shes-always-posting-these-cuteness-overload)
-- [Bella!](https://news.puppy-snuggles.com/50664632/bella)
-- [My gorgeous puppy &amp;amp;lt;3](https://news.puppy-snuggles.com/46928646/my-gorgeous-puppy-lt3)
+- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
+- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
+- [The pup I adopted who was dropped off in a Walmart parking lot.](https://news.puppy-snuggles.com/84237321/the-pup-i-adopted-who-was-dropped-off-in-a-walmart-parking-lot)
+- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
+- [New members of the family! &lpar;Espresso and June&rpar;](https://news.puppy-snuggles.com/82034080/new-members-of-the-family-espresso-and-june)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
