@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
-- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
-- [The pup I adopted who was dropped off in a Walmart parking lot.](https://news.puppy-snuggles.com/84237321/the-pup-i-adopted-who-was-dropped-off-in-a-walmart-parking-lot)
-- [Adopted him from not too long ago. Any guesses to his mix?](https://news.puppy-snuggles.com/83542420/adopted-him-from-not-too-long-ago-any-guesses-to-his-mix)
-- [New members of the family! &lpar;Espresso and June&rpar;](https://news.puppy-snuggles.com/82034080/new-members-of-the-family-espresso-and-june)
+- [The little Wolf in the Forest](https://news.puppy-snuggles.com/102859308/the-little-wolf-in-the-forest)
+- [Jumbo ❤️🧿](https://news.puppy-snuggles.com/84611324/jumbo)
+- [Can I see your dogs weird and wonderful sleeping positions please?💕🐶](https://news.puppy-snuggles.com/62030281/can-i-see-your-dogs-weird-and-wonderful-sleeping-positions-please)
+- [Foster failed this handsome boy. Any name suggestions?](https://news.puppy-snuggles.com/60253093/foster-failed-this-handsome-boy-any-name-suggestions)
+- [My Co-Pilot Takin&amp;#039; a Nap](https://news.puppy-snuggles.com/48003115/my-co-pilot-takin-a-nap)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
