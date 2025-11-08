@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The little Wolf in the Forest](https://news.puppy-snuggles.com/102859308/the-little-wolf-in-the-forest)
-- [Jumbo ❤️🧿](https://news.puppy-snuggles.com/84611324/jumbo)
-- [Can I see your dogs weird and wonderful sleeping positions please?💕🐶](https://news.puppy-snuggles.com/62030281/can-i-see-your-dogs-weird-and-wonderful-sleeping-positions-please)
-- [Foster failed this handsome boy. Any name suggestions?](https://news.puppy-snuggles.com/60253093/foster-failed-this-handsome-boy-any-name-suggestions)
-- [My Co-Pilot Takin&amp;#039; a Nap](https://news.puppy-snuggles.com/48003115/my-co-pilot-takin-a-nap)
+- [I&amp;#039;ve got a little time today and I&amp;#039;d like to draw your puppies!](https://news.puppy-snuggles.com/84160424/ive-got-a-little-time-today-and-id-like-to-draw-your-puppies)
+- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
+- [I miss my girl all the time.](https://news.puppy-snuggles.com/59009372/i-miss-my-girl-all-the-time)
+- [Please share your worst dog pic. I’ll start!](https://news.puppy-snuggles.com/54229539/please-share-your-worst-dog-pic-ill-start)
+- [Deaf and Blind Dog Recognizes Dad Coming Home](https://news.puppy-snuggles.com/49714912/deaf-and-blind-dog-recognizes-dad-coming-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
