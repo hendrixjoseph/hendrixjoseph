@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I&amp;#039;ve got a little time today and I&amp;#039;d like to draw your puppies!](https://news.puppy-snuggles.com/84160424/ive-got-a-little-time-today-and-id-like-to-draw-your-puppies)
-- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
-- [I miss my girl all the time.](https://news.puppy-snuggles.com/59009372/i-miss-my-girl-all-the-time)
-- [Please share your worst dog pic. I’ll start!](https://news.puppy-snuggles.com/54229539/please-share-your-worst-dog-pic-ill-start)
-- [Deaf and Blind Dog Recognizes Dad Coming Home](https://news.puppy-snuggles.com/49714912/deaf-and-blind-dog-recognizes-dad-coming-home)
+- [I’ll miss you thunder buddy](https://news.puppy-snuggles.com/84909763/ill-miss-you-thunder-buddy)
+- [I just came to say Hello](https://news.puppy-snuggles.com/84835715/i-just-came-to-say-hello)
+- [My dog’s first birthday &lpar;and gift&rpar;](https://news.puppy-snuggles.com/84391052/my-dogs-first-birthday-and-gift)
+- [I present to you my second puppy, Tequila. I adopted him when he was 3 months old, I leave you a photo of him when he was a baby. He has his bed, but he prefers to sleep in mine🥴😅he’s very funny, he’s my defender, he’s always alert that no one gets too close to me. It’s the smallest in the house.](https://news.puppy-snuggles.com/81900738/i-present-to-you-my-second-puppy-tequila-i-adopted-him-when-he-was-3-months-old-i-leave-you-a-photo-of-him-when-he-was-a-baby-he-has-his-bed-but-he-prefers-to-sleep-in-minehes-very-funny-hes-my-defender-hes-always-alert-that-no-one-gets-too-close-to-me-its-the-smallest-in-the-house)
+- [Please help me to find breed and disease of this puppy](https://news.puppy-snuggles.com/79487593/please-help-me-to-find-breed-and-disease-of-this-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
