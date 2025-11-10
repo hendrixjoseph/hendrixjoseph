@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ll miss you thunder buddy](https://news.puppy-snuggles.com/84909763/ill-miss-you-thunder-buddy)
-- [I just came to say Hello](https://news.puppy-snuggles.com/84835715/i-just-came-to-say-hello)
-- [My dog’s first birthday &lpar;and gift&rpar;](https://news.puppy-snuggles.com/84391052/my-dogs-first-birthday-and-gift)
-- [I present to you my second puppy, Tequila. I adopted him when he was 3 months old, I leave you a photo of him when he was a baby. He has his bed, but he prefers to sleep in mine🥴😅he’s very funny, he’s my defender, he’s always alert that no one gets too close to me. It’s the smallest in the house.](https://news.puppy-snuggles.com/81900738/i-present-to-you-my-second-puppy-tequila-i-adopted-him-when-he-was-3-months-old-i-leave-you-a-photo-of-him-when-he-was-a-baby-he-has-his-bed-but-he-prefers-to-sleep-in-minehes-very-funny-hes-my-defender-hes-always-alert-that-no-one-gets-too-close-to-me-its-the-smallest-in-the-house)
-- [Please help me to find breed and disease of this puppy](https://news.puppy-snuggles.com/79487593/please-help-me-to-find-breed-and-disease-of-this-puppy)
+- [Caught her mid-smile. I swear she&amp;#039;s posing on purpose.](https://news.puppy-snuggles.com/88624664/caught-her-mid-smile-i-swear-shes-posing-on-purpose)
+- [Help me name him!](https://news.puppy-snuggles.com/87785362/help-me-name-him)
+- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
+- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
+- [Rip Ava](https://news.puppy-snuggles.com/82516711/rip-ava)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
