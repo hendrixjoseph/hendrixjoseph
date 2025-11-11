@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Caught her mid-smile. I swear she&amp;#039;s posing on purpose.](https://news.puppy-snuggles.com/88624664/caught-her-mid-smile-i-swear-shes-posing-on-purpose)
-- [Help me name him!](https://news.puppy-snuggles.com/87785362/help-me-name-him)
-- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
-- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
-- [Rip Ava](https://news.puppy-snuggles.com/82516711/rip-ava)
+- [I post about my dog a lot so I’m gonna do it again. My boy Zeus!](https://news.puppy-snuggles.com/87938393/i-post-about-my-dog-a-lot-so-im-gonna-do-it-again-my-boy-zeus)
+- [Our sweet guy crossed the rainbow bridge.](https://news.puppy-snuggles.com/83344947/our-sweet-guy-crossed-the-rainbow-bridge)
+- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
+- [No words on how much I adore this sweet girl. Queen G!](https://news.puppy-snuggles.com/75712963/no-words-on-how-much-i-adore-this-sweet-girl-queen-g)
+- [Said goodbye to my baby on Sunday. Here&amp;#039;s the first picture I ever got of her, and her last picture.](https://news.puppy-snuggles.com/68863221/said-goodbye-to-my-baby-on-sunday-heres-the-first-picture-i-ever-got-of-her-and-her-last-picture)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
