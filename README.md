@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I post about my dog a lot so I’m gonna do it again. My boy Zeus!](https://news.puppy-snuggles.com/87938393/i-post-about-my-dog-a-lot-so-im-gonna-do-it-again-my-boy-zeus)
-- [Our sweet guy crossed the rainbow bridge.](https://news.puppy-snuggles.com/83344947/our-sweet-guy-crossed-the-rainbow-bridge)
-- [Good morning from Charlie](https://news.puppy-snuggles.com/83056404/good-morning-from-charlie)
-- [No words on how much I adore this sweet girl. Queen G!](https://news.puppy-snuggles.com/75712963/no-words-on-how-much-i-adore-this-sweet-girl-queen-g)
-- [Said goodbye to my baby on Sunday. Here&amp;#039;s the first picture I ever got of her, and her last picture.](https://news.puppy-snuggles.com/68863221/said-goodbye-to-my-baby-on-sunday-heres-the-first-picture-i-ever-got-of-her-and-her-last-picture)
+- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
+- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
+- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [My Dog Gus](https://news.puppy-snuggles.com/81865369/my-dog-gus)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
