@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
-- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [My new Austrian Shepard puppy!!!!](https://news.puppy-snuggles.com/85507694/my-new-austrian-shepard-puppy)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [My Dog Gus](https://news.puppy-snuggles.com/81865369/my-dog-gus)
+- [Let’s see your BIG doggos!](https://news.puppy-snuggles.com/85187168/lets-see-your-big-doggos)
+- [This is your reminder to never stop advocating for your pup!](https://news.puppy-snuggles.com/84947376/this-is-your-reminder-to-never-stop-advocating-for-your-pup)
+- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
+- [Found a stray dog near the beach, I would call it a sea dog.](https://news.puppy-snuggles.com/81184978/found-a-stray-dog-near-the-beach-i-would-call-it-a-sea-dog)
+- [Show the boopable noses!](https://news.puppy-snuggles.com/61016438/show-the-boopable-noses)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
