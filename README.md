@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let’s see your BIG doggos!](https://news.puppy-snuggles.com/85187168/lets-see-your-big-doggos)
-- [This is your reminder to never stop advocating for your pup!](https://news.puppy-snuggles.com/84947376/this-is-your-reminder-to-never-stop-advocating-for-your-pup)
-- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
-- [Found a stray dog near the beach, I would call it a sea dog.](https://news.puppy-snuggles.com/81184978/found-a-stray-dog-near-the-beach-i-would-call-it-a-sea-dog)
-- [Show the boopable noses!](https://news.puppy-snuggles.com/61016438/show-the-boopable-noses)
+- [Rosie has passed on at the age of 13. My very best friend &amp;lt;3](https://news.puppy-snuggles.com/104220307/rosie-has-passed-on-at-the-age-of-13-my-very-best-friend-3)
+- [What breed?](https://news.puppy-snuggles.com/100281732/what-breed)
+- [Happy 16th birthday to my Lil boy Buddy!](https://news.puppy-snuggles.com/83609233/happy-16th-birthday-to-my-lil-boy-buddy)
+- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
+- [Are you sure it is good for Instagram?](https://news.puppy-snuggles.com/46514376/are-you-sure-it-is-good-for-instagram)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
