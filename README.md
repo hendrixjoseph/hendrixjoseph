@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rosie has passed on at the age of 13. My very best friend &amp;lt;3](https://news.puppy-snuggles.com/104220307/rosie-has-passed-on-at-the-age-of-13-my-very-best-friend-3)
-- [What breed?](https://news.puppy-snuggles.com/100281732/what-breed)
-- [Happy 16th birthday to my Lil boy Buddy!](https://news.puppy-snuggles.com/83609233/happy-16th-birthday-to-my-lil-boy-buddy)
-- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
-- [Are you sure it is good for Instagram?](https://news.puppy-snuggles.com/46514376/are-you-sure-it-is-good-for-instagram)
+- [Feel like I got ripped off and dog euthanized](https://news.puppy-snuggles.com/104255185/feel-like-i-got-ripped-off-and-dog-euthanized)
+- [Post your favorite pic of your dog, this is mine.](https://news.puppy-snuggles.com/86260315/post-your-favorite-pic-of-your-dog-this-is-mine)
+- [Cheems is Jolly 24/7](https://news.puppy-snuggles.com/82516714/cheems-is-jolly-247)
+- [My childhood dog was “rehomed” and now lives with me happily](https://news.puppy-snuggles.com/81252274/my-childhood-dog-was-rehomed-and-now-lives-with-me-happily)
+- [This is Groot!](https://news.puppy-snuggles.com/76359455/this-is-groot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
