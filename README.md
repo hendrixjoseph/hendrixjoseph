@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Feel like I got ripped off and dog euthanized](https://news.puppy-snuggles.com/104255185/feel-like-i-got-ripped-off-and-dog-euthanized)
-- [Post your favorite pic of your dog, this is mine.](https://news.puppy-snuggles.com/86260315/post-your-favorite-pic-of-your-dog-this-is-mine)
-- [Cheems is Jolly 24/7](https://news.puppy-snuggles.com/82516714/cheems-is-jolly-247)
-- [My childhood dog was “rehomed” and now lives with me happily](https://news.puppy-snuggles.com/81252274/my-childhood-dog-was-rehomed-and-now-lives-with-me-happily)
-- [This is Groot!](https://news.puppy-snuggles.com/76359455/this-is-groot)
+- [My cutesy boy got a haircut](https://news.puppy-snuggles.com/83476942/my-cutesy-boy-got-a-haircut)
+- [My childhood dog passed](https://news.puppy-snuggles.com/82169680/my-childhood-dog-passed)
+- [Wish my baby happy birthday with a pic of your bday puppers!](https://news.puppy-snuggles.com/81553142/wish-my-baby-happy-birthday-with-a-pic-of-your-bday-puppers)
+- [It’s Shiloh’s first birthday!](https://news.puppy-snuggles.com/80947393/its-shilohs-first-birthday)
+- [CLANCY is settling in!](https://news.puppy-snuggles.com/78716430/clancy-is-settling-in)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
