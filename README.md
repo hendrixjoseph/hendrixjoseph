@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My cutesy boy got a haircut](https://news.puppy-snuggles.com/83476942/my-cutesy-boy-got-a-haircut)
-- [My childhood dog passed](https://news.puppy-snuggles.com/82169680/my-childhood-dog-passed)
-- [Wish my baby happy birthday with a pic of your bday puppers!](https://news.puppy-snuggles.com/81553142/wish-my-baby-happy-birthday-with-a-pic-of-your-bday-puppers)
-- [It’s Shiloh’s first birthday!](https://news.puppy-snuggles.com/80947393/its-shilohs-first-birthday)
-- [CLANCY is settling in!](https://news.puppy-snuggles.com/78716430/clancy-is-settling-in)
+- [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
+- [Legend has it that my poor dog sitter is still trying to get this husky home lol](https://news.puppy-snuggles.com/90852309/legend-has-it-that-my-poor-dog-sitter-is-still-trying-to-get-this-husky-home-lol)
+- [Billy is too droopy to smile, but he tries ❤️](https://news.puppy-snuggles.com/88979302/billy-is-too-droopy-to-smile-but-he-tries)
+- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
+- [I&amp;#039;ve got some free time today. Let me draw your puppy!](https://news.puppy-snuggles.com/79204263/ive-got-some-free-time-today-let-me-draw-your-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
