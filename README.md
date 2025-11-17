@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is a life hack you actually use daily?](https://www.reddit.com/r/AskReddit/comments/1oygnk8/what_is_a_life_hack_you_actually_use_daily/np64iy9/)
 - [/u/joehx on Your last text is what will be written on your gravestone, what does it say?](https://www.reddit.com/r/AskReddit/comments/1ojavng/your_last_text_is_what_will_be_written_on_your/nmte896/)
 - [/u/joehx on What is a word that you still get mixed up when spelling?](https://www.reddit.com/r/AskReddit/comments/1olx9cw/what_is_a_word_that_you_still_get_mixed_up_when/nml48mk/)
 - [/u/joehx on Which “wow” skill can easily be learned today?](https://www.reddit.com/r/AskReddit/comments/1nylk1s/which_wow_skill_can_easily_be_learned_today/nhxrrhk/)
 - [/u/joehx on Meta question - how old are people in the Java community?](https://www.reddit.com/r/java/comments/1nq70os/meta_question_how_old_are_people_in_the_java/ng5hsec/)
-- [/u/joehx on Anyone follow the 0.01% rule?](https://www.reddit.com/r/financialindependence/comments/1nmckkp/anyone_follow_the_001_rule/nfcc6x2/)
 <!-- REDDIT:END -->
