@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please wish our sweet boy good luck, he is not doing too well today](https://news.puppy-snuggles.com/96294509/please-wish-our-sweet-boy-good-luck-he-is-not-doing-too-well-today)
-- [Legend has it that my poor dog sitter is still trying to get this husky home lol](https://news.puppy-snuggles.com/90852309/legend-has-it-that-my-poor-dog-sitter-is-still-trying-to-get-this-husky-home-lol)
-- [Billy is too droopy to smile, but he tries ❤️](https://news.puppy-snuggles.com/88979302/billy-is-too-droopy-to-smile-but-he-tries)
-- [Happy birthday to the best dog ever! &lpar;I might be biased&rpar;](https://news.puppy-snuggles.com/82920060/happy-birthday-to-the-best-dog-ever-i-might-be-biased)
-- [I&amp;#039;ve got some free time today. Let me draw your puppy!](https://news.puppy-snuggles.com/79204263/ive-got-some-free-time-today-let-me-draw-your-puppy)
+- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
+- [My boy Blue Maverick🩵](https://news.puppy-snuggles.com/85069740/my-boy-blue-maverick)
+- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
+- [I&amp;#039;ve taught my dog to tell my husband off for no reason. All I gotta do is say &amp;quot;mean ole daddy&amp;quot; and it&amp;#039;s fight time!](https://news.puppy-snuggles.com/77201516/ive-taught-my-dog-to-tell-my-husband-off-for-no-reason-all-i-gotta-do-is-say-mean-ole-daddy-and-its-fight-time)
+- [New foster fail, trying to figure out if I want to name him Benji. What name does he looks like? Ending in y/ie](https://news.puppy-snuggles.com/75927904/new-foster-fail-trying-to-figure-out-if-i-want-to-name-him-benji-what-name-does-he-looks-like-ending-in-yie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
