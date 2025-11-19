@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
-- [My boy Blue Maverick🩵](https://news.puppy-snuggles.com/85069740/my-boy-blue-maverick)
-- [When life said ‘you can’t walk,’ I rolled out my own plan](https://news.puppy-snuggles.com/83412315/when-life-said-you-cant-walk-i-rolled-out-my-own-plan)
-- [I&amp;#039;ve taught my dog to tell my husband off for no reason. All I gotta do is say &amp;quot;mean ole daddy&amp;quot; and it&amp;#039;s fight time!](https://news.puppy-snuggles.com/77201516/ive-taught-my-dog-to-tell-my-husband-off-for-no-reason-all-i-gotta-do-is-say-mean-ole-daddy-and-its-fight-time)
-- [New foster fail, trying to figure out if I want to name him Benji. What name does he looks like? Ending in y/ie](https://news.puppy-snuggles.com/75927904/new-foster-fail-trying-to-figure-out-if-i-want-to-name-him-benji-what-name-does-he-looks-like-ending-in-yie)
+- [Please help me identify the breed of this dog?](https://news.puppy-snuggles.com/105091969/please-help-me-identify-the-breed-of-this-dog)
+- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
+- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
+- [My childhood dog passed](https://news.puppy-snuggles.com/82169680/my-childhood-dog-passed)
+- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
