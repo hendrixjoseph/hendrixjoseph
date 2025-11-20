@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please help me identify the breed of this dog?](https://news.puppy-snuggles.com/105091969/please-help-me-identify-the-breed-of-this-dog)
-- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
-- [Meet Maggie! 10 week old Beagle mix we just adopted this morning!](https://news.puppy-snuggles.com/83934464/meet-maggie-10-week-old-beagle-mix-we-just-adopted-this-morning)
-- [My childhood dog passed](https://news.puppy-snuggles.com/82169680/my-childhood-dog-passed)
-- [My Dog. Anyone Can Figure Out What Breed He Might Be?](https://news.puppy-snuggles.com/81658472/my-dog-anyone-can-figure-out-what-breed-he-might-be)
+- [We lost our sweetheart](https://news.puppy-snuggles.com/86496217/we-lost-our-sweetheart)
+- [The Ears! They always crack me up](https://news.puppy-snuggles.com/83412312/the-ears-they-always-crack-me-up)
+- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
+- [This is my baby Krrish. He crossed the rainbow bridge today. I miss him 💔](https://news.puppy-snuggles.com/82551288/this-is-my-baby-krrish-he-crossed-the-rainbow-bridge-today-i-miss-him)
+- [I rescued an old man this week!!💕](https://news.puppy-snuggles.com/80007869/i-rescued-an-old-man-this-week)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
