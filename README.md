@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We lost our sweetheart](https://news.puppy-snuggles.com/86496217/we-lost-our-sweetheart)
-- [The Ears! They always crack me up](https://news.puppy-snuggles.com/83412312/the-ears-they-always-crack-me-up)
-- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
-- [This is my baby Krrish. He crossed the rainbow bridge today. I miss him 💔](https://news.puppy-snuggles.com/82551288/this-is-my-baby-krrish-he-crossed-the-rainbow-bridge-today-i-miss-him)
-- [I rescued an old man this week!!💕](https://news.puppy-snuggles.com/80007869/i-rescued-an-old-man-this-week)
+- [My 76 year old dad with his best friend](https://news.puppy-snuggles.com/90164274/my-76-year-old-dad-with-his-best-friend)
+- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
+- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [Adopted this shaggy pup. My attempt at a haircut. 😅](https://news.puppy-snuggles.com/82886392/adopted-this-shaggy-pup-my-attempt-at-a-haircut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
