@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 76 year old dad with his best friend](https://news.puppy-snuggles.com/90164274/my-76-year-old-dad-with-his-best-friend)
-- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
-- [My wife and I are going to be travelling around most of Europe with our 5 dogs, AMA](https://news.puppy-snuggles.com/85069737/my-wife-and-i-are-going-to-be-travelling-around-most-of-europe-with-our-5-dogs-ama)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [Adopted this shaggy pup. My attempt at a haircut. 😅](https://news.puppy-snuggles.com/82886392/adopted-this-shaggy-pup-my-attempt-at-a-haircut)
+- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
+- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
+- [What do we think she is?](https://news.puppy-snuggles.com/85853741/what-do-we-think-she-is)
+- [My dog went missing… I miss him every day. Sharing his last photos so he lives on he was everything to me](https://news.puppy-snuggles.com/85259410/my-dog-went-missing-i-miss-him-every-day-sharing-his-last-photos-so-he-lives-on-he-was-everything-to-me)
+- [This goof 🤪](https://news.puppy-snuggles.com/83675389/this-goof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
