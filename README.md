@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
-- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
-- [What do we think she is?](https://news.puppy-snuggles.com/85853741/what-do-we-think-she-is)
-- [My dog went missing… I miss him every day. Sharing his last photos so he lives on he was everything to me](https://news.puppy-snuggles.com/85259410/my-dog-went-missing-i-miss-him-every-day-sharing-his-last-photos-so-he-lives-on-he-was-everything-to-me)
-- [This goof 🤪](https://news.puppy-snuggles.com/83675389/this-goof)
+- [My baby turned 1!](https://news.puppy-snuggles.com/102930485/my-baby-turned-1)
+- [Got the honour of minding this lovely dog this weekend. She’s called Charlotte and is 15Y &amp;amp; 7M old](https://news.puppy-snuggles.com/99232364/got-the-honour-of-minding-this-lovely-dog-this-weekend-shes-called-charlotte-and-is-15y-7m-old)
+- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
+- [My boy - prefart and post fart.](https://news.puppy-snuggles.com/91807494/my-boy-prefart-and-post-fart)
+- [The final addition to our furry family of rescued animals. Brought her home last night and she made herself right at home!](https://news.puppy-snuggles.com/89047440/the-final-addition-to-our-furry-family-of-rescued-animals-brought-her-home-last-night-and-she-made-herself-right-at-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
