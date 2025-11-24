@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby turned 1!](https://news.puppy-snuggles.com/102930485/my-baby-turned-1)
-- [Got the honour of minding this lovely dog this weekend. She’s called Charlotte and is 15Y &amp;amp; 7M old](https://news.puppy-snuggles.com/99232364/got-the-honour-of-minding-this-lovely-dog-this-weekend-shes-called-charlotte-and-is-15y-7m-old)
-- [our dog where our dog is not supposed to be](https://news.puppy-snuggles.com/93814774/our-dog-where-our-dog-is-not-supposed-to-be)
-- [My boy - prefart and post fart.](https://news.puppy-snuggles.com/91807494/my-boy-prefart-and-post-fart)
-- [The final addition to our furry family of rescued animals. Brought her home last night and she made herself right at home!](https://news.puppy-snuggles.com/89047440/the-final-addition-to-our-furry-family-of-rescued-animals-brought-her-home-last-night-and-she-made-herself-right-at-home)
+- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
+- [We’re fostering this mutt and can’t figure out what he is. 3 months old, 8lbs.](https://news.puppy-snuggles.com/85148168/were-fostering-this-mutt-and-cant-figure-out-what-he-is-3-months-old-8lbs)
+- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
