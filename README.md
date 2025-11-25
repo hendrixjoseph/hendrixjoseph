@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
-- [We’re fostering this mutt and can’t figure out what he is. 3 months old, 8lbs.](https://news.puppy-snuggles.com/85148168/were-fostering-this-mutt-and-cant-figure-out-what-he-is-3-months-old-8lbs)
-- [Let me doodle your dog in silly style](https://news.puppy-snuggles.com/84835719/let-me-doodle-your-dog-in-silly-style)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [I am just really amazed by this dog park](https://news.puppy-snuggles.com/83743747/i-am-just-really-amazed-by-this-dog-park)
+- [My baby](https://news.puppy-snuggles.com/92675226/my-baby)
+- [Our dog died yesterday, She’s been with us since I was baby . Run free Mitsy you will always be in our hearts](https://news.puppy-snuggles.com/85425543/our-dog-died-yesterday-shes-been-with-us-since-i-was-baby-run-free-mitsy-you-will-always-be-in-our-hearts)
+- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
+- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
+- [I want to doodle some cute puppies, so let me see yours!](https://news.puppy-snuggles.com/80879628/i-want-to-doodle-some-cute-puppies-so-let-me-see-yours)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
