@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby](https://news.puppy-snuggles.com/92675226/my-baby)
-- [Our dog died yesterday, She’s been with us since I was baby . Run free Mitsy you will always be in our hearts](https://news.puppy-snuggles.com/85425543/our-dog-died-yesterday-shes-been-with-us-since-i-was-baby-run-free-mitsy-you-will-always-be-in-our-hearts)
-- [This is Chopper. He suddenly passed away last night. I miss him so much.](https://news.puppy-snuggles.com/85109331/this-is-chopper-he-suddenly-passed-away-last-night-i-miss-him-so-much)
-- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
-- [I want to doodle some cute puppies, so let me see yours!](https://news.puppy-snuggles.com/80879628/i-want-to-doodle-some-cute-puppies-so-let-me-see-yours)
+- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
+- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
+- [Why he&amp;#039;s looking at me like he has seen my search history](https://news.puppy-snuggles.com/83157613/why-hes-looking-at-me-like-he-has-seen-my-search-history)
+- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
+- [I like to eat grass, steal socks and pee in public places](https://news.puppy-snuggles.com/81553138/i-like-to-eat-grass-steal-socks-and-pee-in-public-places)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
