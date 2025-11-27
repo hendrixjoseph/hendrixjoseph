@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
-- [&amp;#039;Thor,&amp;#039; an English Bull Terrier, 16 weeks old, tries to play with a mirror.](https://news.puppy-snuggles.com/83375220/thor-an-english-bull-terrier-16-weeks-old-tries-to-play-with-a-mirror)
-- [Why he&amp;#039;s looking at me like he has seen my search history](https://news.puppy-snuggles.com/83157613/why-hes-looking-at-me-like-he-has-seen-my-search-history)
-- [Our new baby🥹❤️ guess his name!](https://news.puppy-snuggles.com/82169681/our-new-baby-guess-his-name)
-- [I like to eat grass, steal socks and pee in public places](https://news.puppy-snuggles.com/81553138/i-like-to-eat-grass-steal-socks-and-pee-in-public-places)
+- [If the last thing you drank was now his new name, what would this furry boy be called?](https://news.puppy-snuggles.com/84761713/if-the-last-thing-you-drank-was-now-his-new-name-what-would-this-furry-boy-be-called)
+- [What Breed Is My Puppy](https://news.puppy-snuggles.com/41562471/what-breed-is-my-puppy)
+- [My cutest little puppy](https://news.puppy-snuggles.com/41506639/my-cutest-little-puppy)
+- [what should i name him](https://news.puppy-snuggles.com/40880915/what-should-i-name-him)
+- [Poor dog](https://news.puppy-snuggles.com/17257609/poor-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
