@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [If the last thing you drank was now his new name, what would this furry boy be called?](https://news.puppy-snuggles.com/84761713/if-the-last-thing-you-drank-was-now-his-new-name-what-would-this-furry-boy-be-called)
-- [What Breed Is My Puppy](https://news.puppy-snuggles.com/41562471/what-breed-is-my-puppy)
-- [My cutest little puppy](https://news.puppy-snuggles.com/41506639/my-cutest-little-puppy)
-- [what should i name him](https://news.puppy-snuggles.com/40880915/what-should-i-name-him)
-- [Poor dog](https://news.puppy-snuggles.com/17257609/poor-dog)
+- [My niece got a puppy for her 5th birthday and I&amp;#039;m smitten](https://news.puppy-snuggles.com/101792919/my-niece-got-a-puppy-for-her-5th-birthday-and-im-smitten)
+- [Explain to me how I’m not supposed to give them something](https://news.puppy-snuggles.com/100044001/explain-to-me-how-im-not-supposed-to-give-them-something)
+- [My old lady has had about enough of these little terrors 😝🥰](https://news.puppy-snuggles.com/99383383/my-old-lady-has-had-about-enough-of-these-little-terrors)
+- [A decade flies by when you’ve got a good dog by your side.](https://news.puppy-snuggles.com/95317299/a-decade-flies-by-when-youve-got-a-good-dog-by-your-side)
+- [This week our family lost Bobik… House feels so empty now](https://news.puppy-snuggles.com/94674376/this-week-our-family-lost-bobik-house-feels-so-empty-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
