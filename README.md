@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My niece got a puppy for her 5th birthday and I&amp;#039;m smitten](https://news.puppy-snuggles.com/101792919/my-niece-got-a-puppy-for-her-5th-birthday-and-im-smitten)
-- [Explain to me how I’m not supposed to give them something](https://news.puppy-snuggles.com/100044001/explain-to-me-how-im-not-supposed-to-give-them-something)
-- [My old lady has had about enough of these little terrors 😝🥰](https://news.puppy-snuggles.com/99383383/my-old-lady-has-had-about-enough-of-these-little-terrors)
-- [A decade flies by when you’ve got a good dog by your side.](https://news.puppy-snuggles.com/95317299/a-decade-flies-by-when-youve-got-a-good-dog-by-your-side)
-- [This week our family lost Bobik… House feels so empty now](https://news.puppy-snuggles.com/94674376/this-week-our-family-lost-bobik-house-feels-so-empty-now)
+- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
+- [Teddy](https://news.puppy-snuggles.com/88528250/teddy)
+- [This little fella is our first dog](https://news.puppy-snuggles.com/85340966/this-little-fella-is-our-first-dog)
+- [Kabuso the celebrity meme dog&lpar;dogecoin&rpar; passes away.](https://news.puppy-snuggles.com/57123261/kabuso-the-celebrity-meme-dogdogecoin-passes-away)
+- [Good morning](https://news.puppy-snuggles.com/52159550/good-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
