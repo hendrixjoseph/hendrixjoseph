@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
-- [Teddy](https://news.puppy-snuggles.com/88528250/teddy)
-- [This little fella is our first dog](https://news.puppy-snuggles.com/85340966/this-little-fella-is-our-first-dog)
-- [Kabuso the celebrity meme dog&lpar;dogecoin&rpar; passes away.](https://news.puppy-snuggles.com/57123261/kabuso-the-celebrity-meme-dogdogecoin-passes-away)
-- [Good morning](https://news.puppy-snuggles.com/52159550/good-morning)
+- [Hi](https://news.puppy-snuggles.com/105576034/hi)
+- [it has been two years and I still miss you 😭](https://news.puppy-snuggles.com/85259416/it-has-been-two-years-and-i-still-miss-you)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [What does it mean when a stray dog won’t eat from your hand?](https://news.puppy-snuggles.com/83280103/what-does-it-mean-when-a-stray-dog-wont-eat-from-your-hand)
+- [High on drugs after surgery](https://news.puppy-snuggles.com/81483588/high-on-drugs-after-surgery)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
