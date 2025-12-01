@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi](https://news.puppy-snuggles.com/105576034/hi)
-- [it has been two years and I still miss you 😭](https://news.puppy-snuggles.com/85259416/it-has-been-two-years-and-i-still-miss-you)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [What does it mean when a stray dog won’t eat from your hand?](https://news.puppy-snuggles.com/83280103/what-does-it-mean-when-a-stray-dog-wont-eat-from-your-hand)
-- [High on drugs after surgery](https://news.puppy-snuggles.com/81483588/high-on-drugs-after-surgery)
+- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
+- [Coco 😍✨❤️](https://news.puppy-snuggles.com/85853738/coco)
+- [Should we get a second dog?](https://news.puppy-snuggles.com/84351626/should-we-get-a-second-dog)
+- [Our first puppy on day 1 vs now](https://news.puppy-snuggles.com/82717865/our-first-puppy-on-day-1-vs-now)
+- [Mia is home](https://news.puppy-snuggles.com/81047758/mia-is-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
