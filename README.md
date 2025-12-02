@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
-- [Coco 😍✨❤️](https://news.puppy-snuggles.com/85853738/coco)
-- [Should we get a second dog?](https://news.puppy-snuggles.com/84351626/should-we-get-a-second-dog)
-- [Our first puppy on day 1 vs now](https://news.puppy-snuggles.com/82717865/our-first-puppy-on-day-1-vs-now)
-- [Mia is home](https://news.puppy-snuggles.com/81047758/mia-is-home)
+- [Sleeping with the enemy?](https://news.puppy-snuggles.com/90715616/sleeping-with-the-enemy)
+- [Every dog owner swears their pup is the best and honestly, they’re all right.](https://news.puppy-snuggles.com/89047446/every-dog-owner-swears-their-pup-is-the-best-and-honestly-theyre-all-right)
+- [My old girl Stella, gone 5 years this week. She was a good dog &lpar;OC&rpar;](https://news.puppy-snuggles.com/88224869/my-old-girl-stella-gone-5-years-this-week-she-was-a-good-dog-oc)
+- [Patiently waiting to be invited up](https://news.puppy-snuggles.com/87846841/patiently-waiting-to-be-invited-up)
+- [I miss my dog he died 3 days ago 🥲let him fly around the world ❤️](https://news.puppy-snuggles.com/86022003/i-miss-my-dog-he-died-3-days-ago-let-him-fly-around-the-world)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
