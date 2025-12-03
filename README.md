@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sleeping with the enemy?](https://news.puppy-snuggles.com/90715616/sleeping-with-the-enemy)
-- [Every dog owner swears their pup is the best and honestly, they’re all right.](https://news.puppy-snuggles.com/89047446/every-dog-owner-swears-their-pup-is-the-best-and-honestly-theyre-all-right)
-- [My old girl Stella, gone 5 years this week. She was a good dog &lpar;OC&rpar;](https://news.puppy-snuggles.com/88224869/my-old-girl-stella-gone-5-years-this-week-she-was-a-good-dog-oc)
-- [Patiently waiting to be invited up](https://news.puppy-snuggles.com/87846841/patiently-waiting-to-be-invited-up)
-- [I miss my dog he died 3 days ago 🥲let him fly around the world ❤️](https://news.puppy-snuggles.com/86022003/i-miss-my-dog-he-died-3-days-ago-let-him-fly-around-the-world)
+- [Thanksgiving cheese stick](https://news.puppy-snuggles.com/106384290/thanksgiving-cheese-stick)
+- [How am I supposed to get anything done with these two faces looking at me? 🥹🥹](https://news.puppy-snuggles.com/103136902/how-am-i-supposed-to-get-anything-done-with-these-two-faces-looking-at-me)
+- [Puppy Smiles Galore - Best Perk of Pet Sitting](https://news.puppy-snuggles.com/86300462/puppy-smiles-galore-best-perk-of-pet-sitting)
+- [I’ll miss you thunder buddy](https://news.puppy-snuggles.com/84909763/ill-miss-you-thunder-buddy)
+- [My dog and I finally have a room of our own after living on the streets for a while!](https://news.puppy-snuggles.com/82886383/my-dog-and-i-finally-have-a-room-of-our-own-after-living-on-the-streets-for-a-while)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
