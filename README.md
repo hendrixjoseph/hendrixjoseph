@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thanksgiving cheese stick](https://news.puppy-snuggles.com/106384290/thanksgiving-cheese-stick)
-- [How am I supposed to get anything done with these two faces looking at me? 🥹🥹](https://news.puppy-snuggles.com/103136902/how-am-i-supposed-to-get-anything-done-with-these-two-faces-looking-at-me)
-- [Puppy Smiles Galore - Best Perk of Pet Sitting](https://news.puppy-snuggles.com/86300462/puppy-smiles-galore-best-perk-of-pet-sitting)
-- [I’ll miss you thunder buddy](https://news.puppy-snuggles.com/84909763/ill-miss-you-thunder-buddy)
-- [My dog and I finally have a room of our own after living on the streets for a while!](https://news.puppy-snuggles.com/82886383/my-dog-and-i-finally-have-a-room-of-our-own-after-living-on-the-streets-for-a-while)
+- [Beach day for the old lady](https://news.puppy-snuggles.com/91773165/beach-day-for-the-old-lady)
+- [Only 3.5 years old, lymphoma sucks](https://news.puppy-snuggles.com/85759351/only-35-years-old-lymphoma-sucks)
+- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
+- [Eat, Sunbath, Sleep, repeat](https://news.puppy-snuggles.com/83675388/eat-sunbath-sleep-repeat)
+- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
