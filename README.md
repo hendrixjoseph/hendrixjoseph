@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Beach day for the old lady](https://news.puppy-snuggles.com/91773165/beach-day-for-the-old-lady)
-- [Only 3.5 years old, lymphoma sucks](https://news.puppy-snuggles.com/85759351/only-35-years-old-lymphoma-sucks)
-- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
-- [Eat, Sunbath, Sleep, repeat](https://news.puppy-snuggles.com/83675388/eat-sunbath-sleep-repeat)
-- [I will do a quick silly doodle of your dog pics. GO!](https://news.puppy-snuggles.com/76149230/i-will-do-a-quick-silly-doodle-of-your-dog-pics-go)
+- [Thrilled to be pestering her &lpar;less thrilled&rpar; big sister](https://news.puppy-snuggles.com/78716428/thrilled-to-be-pestering-her-less-thrilled-big-sister)
+- [Show me your dog in nature :&rpar;](https://news.puppy-snuggles.com/58228580/show-me-your-dog-in-nature)
+- [Charlie&amp;#039;s new accessory](https://news.puppy-snuggles.com/52215269/charlies-new-accessory)
+- [This is Toby. He is in end stage kidney failure and today is his last day with us. He is the sweetest dog I&amp;#039;ve ever known and I just want everyone in the world to know that he existed and he mattered.](https://news.puppy-snuggles.com/42618744/this-is-toby-he-is-in-end-stage-kidney-failure-and-today-is-his-last-day-with-us-he-is-the-sweetest-dog-ive-ever-known-and-i-just-want-everyone-in-the-world-to-know-that-he-existed-and-he-mattered)
+- [Yeah](https://news.puppy-snuggles.com/40034866/yeah)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
