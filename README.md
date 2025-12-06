@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thrilled to be pestering her &lpar;less thrilled&rpar; big sister](https://news.puppy-snuggles.com/78716428/thrilled-to-be-pestering-her-less-thrilled-big-sister)
-- [Show me your dog in nature :&rpar;](https://news.puppy-snuggles.com/58228580/show-me-your-dog-in-nature)
-- [Charlie&amp;#039;s new accessory](https://news.puppy-snuggles.com/52215269/charlies-new-accessory)
-- [This is Toby. He is in end stage kidney failure and today is his last day with us. He is the sweetest dog I&amp;#039;ve ever known and I just want everyone in the world to know that he existed and he mattered.](https://news.puppy-snuggles.com/42618744/this-is-toby-he-is-in-end-stage-kidney-failure-and-today-is-his-last-day-with-us-he-is-the-sweetest-dog-ive-ever-known-and-i-just-want-everyone-in-the-world-to-know-that-he-existed-and-he-mattered)
-- [Yeah](https://news.puppy-snuggles.com/40034866/yeah)
+- [I know I&amp;#039;m a biased dog dad but I think he&amp;#039;s cutest baby!!! 🐶😚🫶🏽](https://news.puppy-snuggles.com/88593765/i-know-im-a-biased-dog-dad-but-i-think-hes-cutest-baby)
+- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [He’s not allowed to come into my bedroom so he does this](https://news.puppy-snuggles.com/82953507/hes-not-allowed-to-come-into-my-bedroom-so-he-does-this)
+- [I wouldn’t think that I’d have anything in common with George Washington but apparently he was also in love with his American Foxhounds… here’s some photos of my girl](https://news.puppy-snuggles.com/82001788/i-wouldnt-think-that-id-have-anything-in-common-with-george-washington-but-apparently-he-was-also-in-love-with-his-american-foxhounds-heres-some-photos-of-my-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
