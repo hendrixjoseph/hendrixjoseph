@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Molly fell asleep on the sofa. When I told her it was time for bed, she woke up and smiled at me. 🥹](https://news.puppy-snuggles.com/102678916/molly-fell-asleep-on-the-sofa-when-i-told-her-it-was-time-for-bed-she-woke-up-and-smiled-at-me)
-- [Street puppy we convinced a local shop keeper to adopt in the Chinese mountains✨](https://news.puppy-snuggles.com/102536681/street-puppy-we-convinced-a-local-shop-keeper-to-adopt-in-the-chinese-mountains)
-- [Best friend forever](https://news.puppy-snuggles.com/101470167/best-friend-forever)
-- [My dog is yawning but he looks like he is screaming for his life](https://news.puppy-snuggles.com/96817779/my-dog-is-yawning-but-he-looks-like-he-is-screaming-for-his-life)
-- [Boop the snoot](https://news.puppy-snuggles.com/93486821/boop-the-snoot)
+- [Let me see those pups!](https://news.puppy-snuggles.com/106384284/let-me-see-those-pups)
+- [No words needed](https://news.puppy-snuggles.com/100902164/no-words-needed)
+- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
+- [Muri has crossed the rainbow bridge🐶](https://news.puppy-snuggles.com/83509373/muri-has-crossed-the-rainbow-bridge)
+- [Today is my best buddy’s birthday! Pip is 11 years old today!](https://news.puppy-snuggles.com/80344431/today-is-my-best-buddys-birthday-pip-is-11-years-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
