@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let me see those pups!](https://news.puppy-snuggles.com/106384284/let-me-see-those-pups)
-- [No words needed](https://news.puppy-snuggles.com/100902164/no-words-needed)
-- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
-- [Muri has crossed the rainbow bridge🐶](https://news.puppy-snuggles.com/83509373/muri-has-crossed-the-rainbow-bridge)
-- [Today is my best buddy’s birthday! Pip is 11 years old today!](https://news.puppy-snuggles.com/80344431/today-is-my-best-buddys-birthday-pip-is-11-years-old-today)
+- [This was our last pizza together. I always let her have all the meat toppings while I quietly ate the bread and cheese. I never realized how much I’d miss these small, silly moments… now, I miss her more than words can ever hold. My Willow](https://news.puppy-snuggles.com/106616467/this-was-our-last-pizza-together-i-always-let-her-have-all-the-meat-toppings-while-i-quietly-ate-the-bread-and-cheese-i-never-realized-how-much-id-miss-these-small-silly-moments-now-i-miss-her-more-than-words-can-ever-hold-my-willow)
+- [My dog died on Saturday, its not fair](https://news.puppy-snuggles.com/97486827/my-dog-died-on-saturday-its-not-fair)
+- [Caught her in the silliest looking moment mid-yawn](https://news.puppy-snuggles.com/94844145/caught-her-in-the-silliest-looking-moment-mid-yawn)
+- [This my dog Ozzy he wants to say hi to everyone](https://news.puppy-snuggles.com/87192719/this-my-dog-ozzy-he-wants-to-say-hi-to-everyone)
+- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
