@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This was our last pizza together. I always let her have all the meat toppings while I quietly ate the bread and cheese. I never realized how much I’d miss these small, silly moments… now, I miss her more than words can ever hold. My Willow](https://news.puppy-snuggles.com/106616467/this-was-our-last-pizza-together-i-always-let-her-have-all-the-meat-toppings-while-i-quietly-ate-the-bread-and-cheese-i-never-realized-how-much-id-miss-these-small-silly-moments-now-i-miss-her-more-than-words-can-ever-hold-my-willow)
-- [My dog died on Saturday, its not fair](https://news.puppy-snuggles.com/97486827/my-dog-died-on-saturday-its-not-fair)
-- [Caught her in the silliest looking moment mid-yawn](https://news.puppy-snuggles.com/94844145/caught-her-in-the-silliest-looking-moment-mid-yawn)
-- [This my dog Ozzy he wants to say hi to everyone](https://news.puppy-snuggles.com/87192719/this-my-dog-ozzy-he-wants-to-say-hi-to-everyone)
-- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
+- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
+- [This is my dog Nigel. He was named after Nigel Tufnel of Spinal Tap.](https://news.puppy-snuggles.com/89047444/this-is-my-dog-nigel-he-was-named-after-nigel-tufnel-of-spinal-tap)
+- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
+- [This is my baby Krrish. He crossed the rainbow bridge today. I miss him 💔](https://news.puppy-snuggles.com/82551288/this-is-my-baby-krrish-he-crossed-the-rainbow-bridge-today-i-miss-him)
+- [this is ginger. I had to say goodbye today.](https://news.puppy-snuggles.com/82516708/this-is-ginger-i-had-to-say-goodbye-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
