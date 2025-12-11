@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [This is my dog Nigel. He was named after Nigel Tufnel of Spinal Tap.](https://news.puppy-snuggles.com/89047444/this-is-my-dog-nigel-he-was-named-after-nigel-tufnel-of-spinal-tap)
-- [Our sweet boy Angus ❤️](https://news.puppy-snuggles.com/84274201/our-sweet-boy-angus)
-- [This is my baby Krrish. He crossed the rainbow bridge today. I miss him 💔](https://news.puppy-snuggles.com/82551288/this-is-my-baby-krrish-he-crossed-the-rainbow-bridge-today-i-miss-him)
-- [this is ginger. I had to say goodbye today.](https://news.puppy-snuggles.com/82516708/this-is-ginger-i-had-to-say-goodbye-today)
+- [It’s Tiiiiiiiiiime 🐶🎄🎉](https://news.puppy-snuggles.com/106253969/its-tiiiiiiiiiime)
+- [What is a trigger word for your dog whether it is negative or positive? Everytime simba hears the word cheese now, I have to pay the cheese tax lol.](https://news.puppy-snuggles.com/103874240/what-is-a-trigger-word-for-your-dog-whether-it-is-negative-or-positive-everytime-simba-hears-the-word-cheese-now-i-have-to-pay-the-cheese-tax-lol)
+- [What breed is this?](https://news.puppy-snuggles.com/101928167/what-breed-is-this)
+- [What kind of dog?](https://news.puppy-snuggles.com/100672589/what-kind-of-dog)
+- [Spending my birthday with two pups on the beach. What a peaceful day :&rpar;](https://news.puppy-snuggles.com/98670859/spending-my-birthday-with-two-pups-on-the-beach-what-a-peaceful-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
