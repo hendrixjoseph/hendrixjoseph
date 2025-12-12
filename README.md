@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s Tiiiiiiiiiime 🐶🎄🎉](https://news.puppy-snuggles.com/106253969/its-tiiiiiiiiiime)
-- [What is a trigger word for your dog whether it is negative or positive? Everytime simba hears the word cheese now, I have to pay the cheese tax lol.](https://news.puppy-snuggles.com/103874240/what-is-a-trigger-word-for-your-dog-whether-it-is-negative-or-positive-everytime-simba-hears-the-word-cheese-now-i-have-to-pay-the-cheese-tax-lol)
-- [What breed is this?](https://news.puppy-snuggles.com/101928167/what-breed-is-this)
-- [What kind of dog?](https://news.puppy-snuggles.com/100672589/what-kind-of-dog)
-- [Spending my birthday with two pups on the beach. What a peaceful day :&rpar;](https://news.puppy-snuggles.com/98670859/spending-my-birthday-with-two-pups-on-the-beach-what-a-peaceful-day)
+- [Meet my fluffy little buddy💕](https://news.puppy-snuggles.com/106582599/meet-my-fluffy-little-buddy)
+- [Such a pretty girl 💕](https://news.puppy-snuggles.com/105821798/such-a-pretty-girl)
+- [What kind of dog is this?](https://news.puppy-snuggles.com/104502501/what-kind-of-dog-is-this)
+- [My new friend](https://news.puppy-snuggles.com/99199686/my-new-friend)
+- [My 9 year old old puppy Bear](https://news.puppy-snuggles.com/98176557/my-9-year-old-old-puppy-bear)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
