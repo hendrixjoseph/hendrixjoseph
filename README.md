@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet my fluffy little buddy💕](https://news.puppy-snuggles.com/106582599/meet-my-fluffy-little-buddy)
-- [Such a pretty girl 💕](https://news.puppy-snuggles.com/105821798/such-a-pretty-girl)
-- [What kind of dog is this?](https://news.puppy-snuggles.com/104502501/what-kind-of-dog-is-this)
-- [My new friend](https://news.puppy-snuggles.com/99199686/my-new-friend)
-- [My 9 year old old puppy Bear](https://news.puppy-snuggles.com/98176557/my-9-year-old-old-puppy-bear)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 345](https://news.puppy-snuggles.com/107217644/365-days-of-pepperoni-her-mama-day-345)
+- [Golden Good Boy](https://news.puppy-snuggles.com/105403552/golden-good-boy)
+- [We said goodbye to Khaleesi this morning. She was around 14 years old. My old lady.](https://news.puppy-snuggles.com/90949571/we-said-goodbye-to-khaleesi-this-morning-she-was-around-14-years-old-my-old-lady)
+- [We miss him- Inheritance dogs](https://news.puppy-snuggles.com/88094986/we-miss-him-inheritance-dogs)
+- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
