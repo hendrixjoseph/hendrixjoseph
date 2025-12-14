@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 345](https://news.puppy-snuggles.com/107217644/365-days-of-pepperoni-her-mama-day-345)
-- [Golden Good Boy](https://news.puppy-snuggles.com/105403552/golden-good-boy)
-- [We said goodbye to Khaleesi this morning. She was around 14 years old. My old lady.](https://news.puppy-snuggles.com/90949571/we-said-goodbye-to-khaleesi-this-morning-she-was-around-14-years-old-my-old-lady)
-- [We miss him- Inheritance dogs](https://news.puppy-snuggles.com/88094986/we-miss-him-inheritance-dogs)
-- [My happy boy, Benny](https://news.puppy-snuggles.com/84684963/my-happy-boy-benny)
+- [Did some say it’s the weekend? Our rescue pups here at Sara Morocco are all smiles!](https://news.puppy-snuggles.com/97097354/did-some-say-its-the-weekend-our-rescue-pups-here-at-sara-morocco-are-all-smiles)
+- [Ender was attacked by another dog, taking brunt protecting his 14 year old sister. 30+ stitches, 2 Penrose drains, and a rabies booster later, he&amp;#039;s the bestest and bravest boy.](https://news.puppy-snuggles.com/89308735/ender-was-attacked-by-another-dog-taking-brunt-protecting-his-14-year-old-sister-30-stitches-2-penrose-drains-and-a-rabies-booster-later-hes-the-bestest-and-bravest-boy)
+- [Lola just turned 10, she’s a princess and would love a happy birthday 🥰](https://news.puppy-snuggles.com/85938243/lola-just-turned-10-shes-a-princess-and-would-love-a-happy-birthday)
+- [Happy Sunday from our rescues here at Sara Morocco](https://news.puppy-snuggles.com/84432836/happy-sunday-from-our-rescues-here-at-sara-morocco)
+- [Allow me to draw your cute pooches!](https://news.puppy-snuggles.com/84432835/allow-me-to-draw-your-cute-pooches)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
