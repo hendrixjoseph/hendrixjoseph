@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Did some say it’s the weekend? Our rescue pups here at Sara Morocco are all smiles!](https://news.puppy-snuggles.com/97097354/did-some-say-its-the-weekend-our-rescue-pups-here-at-sara-morocco-are-all-smiles)
-- [Ender was attacked by another dog, taking brunt protecting his 14 year old sister. 30+ stitches, 2 Penrose drains, and a rabies booster later, he&amp;#039;s the bestest and bravest boy.](https://news.puppy-snuggles.com/89308735/ender-was-attacked-by-another-dog-taking-brunt-protecting-his-14-year-old-sister-30-stitches-2-penrose-drains-and-a-rabies-booster-later-hes-the-bestest-and-bravest-boy)
-- [Lola just turned 10, she’s a princess and would love a happy birthday 🥰](https://news.puppy-snuggles.com/85938243/lola-just-turned-10-shes-a-princess-and-would-love-a-happy-birthday)
-- [Happy Sunday from our rescues here at Sara Morocco](https://news.puppy-snuggles.com/84432836/happy-sunday-from-our-rescues-here-at-sara-morocco)
-- [Allow me to draw your cute pooches!](https://news.puppy-snuggles.com/84432835/allow-me-to-draw-your-cute-pooches)
+- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
+- [My neighbor’s dog](https://news.puppy-snuggles.com/49925683/my-neighbors-dog)
+- [The only time he looks Calm and Peaceful!](https://news.puppy-snuggles.com/39604549/the-only-time-he-looks-calm-and-peaceful)
+- [Eevee having a great day at the dog park!](https://news.puppy-snuggles.com/38206459/eevee-having-a-great-day-at-the-dog-park)
+- [Which is better: with or without the name?](https://news.puppy-snuggles.com/37812736/which-is-better-with-or-without-the-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
