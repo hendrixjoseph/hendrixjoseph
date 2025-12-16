@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Time for rubs!](https://news.puppy-snuggles.com/82377223/time-for-rubs)
-- [My neighbor’s dog](https://news.puppy-snuggles.com/49925683/my-neighbors-dog)
-- [The only time he looks Calm and Peaceful!](https://news.puppy-snuggles.com/39604549/the-only-time-he-looks-calm-and-peaceful)
-- [Eevee having a great day at the dog park!](https://news.puppy-snuggles.com/38206459/eevee-having-a-great-day-at-the-dog-park)
-- [Which is better: with or without the name?](https://news.puppy-snuggles.com/37812736/which-is-better-with-or-without-the-name)
+- [Four years ago today I adopted Sheriff](https://news.puppy-snuggles.com/107967796/four-years-ago-today-i-adopted-sheriff)
+- [I got to see the hospitals service animal again a year after my major surgery!](https://news.puppy-snuggles.com/107461051/i-got-to-see-the-hospitals-service-animal-again-a-year-after-my-major-surgery)
+- [Submitting application for BOOPS](https://news.puppy-snuggles.com/102755910/submitting-application-for-boops)
+- [Charlie Chaplin says freedom never looked this good!](https://news.puppy-snuggles.com/97810906/charlie-chaplin-says-freedom-never-looked-this-good)
+- [Peppy lookin for some boops on her booptastic Friday evening.](https://news.puppy-snuggles.com/92316353/peppy-lookin-for-some-boops-on-her-booptastic-friday-evening)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
