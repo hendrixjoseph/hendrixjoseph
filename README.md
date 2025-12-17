@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Four years ago today I adopted Sheriff](https://news.puppy-snuggles.com/107967796/four-years-ago-today-i-adopted-sheriff)
-- [I got to see the hospitals service animal again a year after my major surgery!](https://news.puppy-snuggles.com/107461051/i-got-to-see-the-hospitals-service-animal-again-a-year-after-my-major-surgery)
-- [Submitting application for BOOPS](https://news.puppy-snuggles.com/102755910/submitting-application-for-boops)
-- [Charlie Chaplin says freedom never looked this good!](https://news.puppy-snuggles.com/97810906/charlie-chaplin-says-freedom-never-looked-this-good)
-- [Peppy lookin for some boops on her booptastic Friday evening.](https://news.puppy-snuggles.com/92316353/peppy-lookin-for-some-boops-on-her-booptastic-friday-evening)
+- [I can only get a good photo when she&amp;#039;s asleep 😂](https://news.puppy-snuggles.com/105821796/i-can-only-get-a-good-photo-when-shes-asleep)
+- [any guesses what breed mixed with?](https://news.puppy-snuggles.com/103803844/any-guesses-what-breed-mixed-with)
+- [Found a old picture after going through my camera roll of my 13f &lpar;at the time&rpar; Collie named Roxie after a groomers appointment.](https://news.puppy-snuggles.com/93278916/found-a-old-picture-after-going-through-my-camera-roll-of-my-13f-at-the-time-collie-named-roxie-after-a-groomers-appointment)
+- [She&amp;#039;s excited for her cake.](https://news.puppy-snuggles.com/85896617/shes-excited-for-her-cake)
+- [He just looked so happy in his pile of toys](https://news.puppy-snuggles.com/85552411/he-just-looked-so-happy-in-his-pile-of-toys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
