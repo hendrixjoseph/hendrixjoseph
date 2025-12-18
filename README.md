@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can only get a good photo when she&amp;#039;s asleep 😂](https://news.puppy-snuggles.com/105821796/i-can-only-get-a-good-photo-when-shes-asleep)
-- [any guesses what breed mixed with?](https://news.puppy-snuggles.com/103803844/any-guesses-what-breed-mixed-with)
-- [Found a old picture after going through my camera roll of my 13f &lpar;at the time&rpar; Collie named Roxie after a groomers appointment.](https://news.puppy-snuggles.com/93278916/found-a-old-picture-after-going-through-my-camera-roll-of-my-13f-at-the-time-collie-named-roxie-after-a-groomers-appointment)
-- [She&amp;#039;s excited for her cake.](https://news.puppy-snuggles.com/85896617/shes-excited-for-her-cake)
-- [He just looked so happy in his pile of toys](https://news.puppy-snuggles.com/85552411/he-just-looked-so-happy-in-his-pile-of-toys)
+- [Our babies have the most perfect teeth!😊🐾🐶](https://news.puppy-snuggles.com/107597271/our-babies-have-the-most-perfect-teeth)
+- [Ten years later… still my best friend.](https://news.puppy-snuggles.com/107015546/ten-years-later-still-my-best-friend)
+- [Belly belly belly](https://news.puppy-snuggles.com/106217686/belly-belly-belly)
+- [My puppy has started to roars, is this cute or to worry me 🤔](https://news.puppy-snuggles.com/106154670/my-puppy-has-started-to-roars-is-this-cute-or-to-worry-me)
+- [These are the dogs I dog sat for last week](https://news.puppy-snuggles.com/101403284/these-are-the-dogs-i-dog-sat-for-last-week)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
