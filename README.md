@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our babies have the most perfect teeth!😊🐾🐶](https://news.puppy-snuggles.com/107597271/our-babies-have-the-most-perfect-teeth)
-- [Ten years later… still my best friend.](https://news.puppy-snuggles.com/107015546/ten-years-later-still-my-best-friend)
-- [Belly belly belly](https://news.puppy-snuggles.com/106217686/belly-belly-belly)
-- [My puppy has started to roars, is this cute or to worry me 🤔](https://news.puppy-snuggles.com/106154670/my-puppy-has-started-to-roars-is-this-cute-or-to-worry-me)
-- [These are the dogs I dog sat for last week](https://news.puppy-snuggles.com/101403284/these-are-the-dogs-i-dog-sat-for-last-week)
+- [New coat ☺️](https://news.puppy-snuggles.com/101035240/new-coat)
+- [Hooligan crossed the bridge last night.](https://news.puppy-snuggles.com/93385295/hooligan-crossed-the-bridge-last-night)
+- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
+- [Today is his last day. Thank you for the 16 years bud.](https://news.puppy-snuggles.com/84874193/today-is-his-last-day-thank-you-for-the-16-years-bud)
+- [My beloved dog is in heaven since an hour ago.](https://news.puppy-snuggles.com/83280106/my-beloved-dog-is-in-heaven-since-an-hour-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
