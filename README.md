@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New coat ☺️](https://news.puppy-snuggles.com/101035240/new-coat)
-- [Hooligan crossed the bridge last night.](https://news.puppy-snuggles.com/93385295/hooligan-crossed-the-bridge-last-night)
-- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
-- [Today is his last day. Thank you for the 16 years bud.](https://news.puppy-snuggles.com/84874193/today-is-his-last-day-thank-you-for-the-16-years-bud)
-- [My beloved dog is in heaven since an hour ago.](https://news.puppy-snuggles.com/83280106/my-beloved-dog-is-in-heaven-since-an-hour-ago)
+- [Resting his head on his little brother](https://news.puppy-snuggles.com/108316078/resting-his-head-on-his-little-brother)
+- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
+- [Just wanna show you my dog](https://news.puppy-snuggles.com/88785837/just-wanna-show-you-my-dog)
+- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
+- [My in-law&amp;#039;s dog likes to be held like a baby 😂](https://news.puppy-snuggles.com/82953514/my-in-laws-dog-likes-to-be-held-like-a-baby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
