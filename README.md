@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Resting his head on his little brother](https://news.puppy-snuggles.com/108316078/resting-his-head-on-his-little-brother)
-- [Dog trainer warns &amp;#039;don&amp;#039;t waste time and energy&amp;#039; with common puppy mistake](https://news.puppy-snuggles.com/104286299/dog-trainer-warns-dont-waste-time-and-energy-with-common-puppy-mistake)
-- [Just wanna show you my dog](https://news.puppy-snuggles.com/88785837/just-wanna-show-you-my-dog)
-- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
-- [My in-law&amp;#039;s dog likes to be held like a baby 😂](https://news.puppy-snuggles.com/82953514/my-in-laws-dog-likes-to-be-held-like-a-baby)
+- [One year today without my best friend. I still find little Arthur hairs time to time](https://news.puppy-snuggles.com/94022220/one-year-today-without-my-best-friend-i-still-find-little-arthur-hairs-time-to-time)
+- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
+- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
+- [Just wanna share my boy Benny with you all!](https://news.puppy-snuggles.com/84991020/just-wanna-share-my-boy-benny-with-you-all)
+- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
