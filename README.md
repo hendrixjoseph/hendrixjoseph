@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [One year today without my best friend. I still find little Arthur hairs time to time](https://news.puppy-snuggles.com/94022220/one-year-today-without-my-best-friend-i-still-find-little-arthur-hairs-time-to-time)
-- [Sticking out your tongue equals happiness.](https://news.puppy-snuggles.com/92675225/sticking-out-your-tongue-equals-happiness)
-- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
-- [Just wanna share my boy Benny with you all!](https://news.puppy-snuggles.com/84991020/just-wanna-share-my-boy-benny-with-you-all)
-- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
+- [The cuteness &lpar;ignore yellow teeth&rpar;](https://news.puppy-snuggles.com/108212671/the-cuteness-ignore-yellow-teeth)
+- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
+- [My 1 year old puppy jasmine&amp;lt;3](https://news.puppy-snuggles.com/84007882/my-1-year-old-puppy-jasmine3)
+- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
+- [Almost 6 but still acts like a puppy](https://news.puppy-snuggles.com/81865373/almost-6-but-still-acts-like-a-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
