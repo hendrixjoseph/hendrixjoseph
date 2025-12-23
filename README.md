@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The cuteness &lpar;ignore yellow teeth&rpar;](https://news.puppy-snuggles.com/108212671/the-cuteness-ignore-yellow-teeth)
-- [Good bye milo.](https://news.puppy-snuggles.com/92546238/good-bye-milo)
-- [My 1 year old puppy jasmine&amp;lt;3](https://news.puppy-snuggles.com/84007882/my-1-year-old-puppy-jasmine3)
-- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
-- [Almost 6 but still acts like a puppy](https://news.puppy-snuggles.com/81865373/almost-6-but-still-acts-like-a-puppy)
+- [Our new summer friend](https://news.puppy-snuggles.com/108955002/our-new-summer-friend)
+- [My big boy](https://news.puppy-snuggles.com/108851902/my-big-boy)
+- [Goodbye to Sophie, the Sweetest Girl](https://news.puppy-snuggles.com/108851894/goodbye-to-sophie-the-sweetest-girl)
+- [Our Clem and her 5 babies!](https://news.puppy-snuggles.com/108851895/our-clem-and-her-5-babies)
+- [My wife and I have 10 dogs, ama](https://news.puppy-snuggles.com/108721320/my-wife-and-i-have-10-dogs-ama)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
