@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our new summer friend](https://news.puppy-snuggles.com/108955002/our-new-summer-friend)
-- [My big boy](https://news.puppy-snuggles.com/108851902/my-big-boy)
-- [Goodbye to Sophie, the Sweetest Girl](https://news.puppy-snuggles.com/108851894/goodbye-to-sophie-the-sweetest-girl)
-- [Our Clem and her 5 babies!](https://news.puppy-snuggles.com/108851895/our-clem-and-her-5-babies)
-- [My wife and I have 10 dogs, ama](https://news.puppy-snuggles.com/108721320/my-wife-and-i-have-10-dogs-ama)
+- [the “you really have to leave?” look from my dog &amp;gt;&amp;gt;&amp;gt;](https://news.puppy-snuggles.com/102201759/the-you-really-have-to-leave-look-from-my-dog)
+- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
+- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
+- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
+- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
