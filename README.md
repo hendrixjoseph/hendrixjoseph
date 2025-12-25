@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [the “you really have to leave?” look from my dog &amp;gt;&amp;gt;&amp;gt;](https://news.puppy-snuggles.com/102201759/the-you-really-have-to-leave-look-from-my-dog)
-- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
-- [Help me name our new puppy!! He is a boy :&rpar;](https://news.puppy-snuggles.com/84721486/help-me-name-our-new-puppy-he-is-a-boy)
-- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
-- [I blinked and my little fluff nugget turned into a full-grown cloud.](https://news.puppy-snuggles.com/84194937/i-blinked-and-my-little-fluff-nugget-turned-into-a-full-grown-cloud)
+- [Bonzo](https://news.puppy-snuggles.com/109298935/bonzo)
+- [Happy Christmas from me and Eddie](https://news.puppy-snuggles.com/109298926/happy-christmas-from-me-and-eddie)
+- [Flour reminding me that she IS the gift this Christmas](https://news.puppy-snuggles.com/109298931/flour-reminding-me-that-she-is-the-gift-this-christmas)
+- [My goodest girls](https://news.puppy-snuggles.com/109298933/my-goodest-girls)
+- [Share your dog pictures guy.. I will make funny art on holiday](https://news.puppy-snuggles.com/109298930/share-your-dog-pictures-guy-i-will-make-funny-art-on-holiday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
