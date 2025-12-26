@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on When you get home, where do you place your keys?](https://www.reddit.com/r/AskReddit/comments/1pvowhl/when_you_get_home_where_do_you_place_your_keys/nvxqm22/)
 - [/u/joehx on What is a &#39;dirty secret&#39; of your industry that implies the general public has no clue about, but everyone in your field knows?](https://www.reddit.com/r/AskReddit/comments/1pgwxjl/what_is_a_dirty_secret_of_your_industry_that/nsyy7cp/)
 - [/u/joehx on What is a life hack you actually use daily?](https://www.reddit.com/r/AskReddit/comments/1oygnk8/what_is_a_life_hack_you_actually_use_daily/np64iy9/)
 - [/u/joehx on Your last text is what will be written on your gravestone, what does it say?](https://www.reddit.com/r/AskReddit/comments/1ojavng/your_last_text_is_what_will_be_written_on_your/nmte896/)
 - [/u/joehx on What is a word that you still get mixed up when spelling?](https://www.reddit.com/r/AskReddit/comments/1olx9cw/what_is_a_word_that_you_still_get_mixed_up_when/nml48mk/)
-- [/u/joehx on Which “wow” skill can easily be learned today?](https://www.reddit.com/r/AskReddit/comments/1nylk1s/which_wow_skill_can_easily_be_learned_today/nhxrrhk/)
 <!-- REDDIT:END -->
