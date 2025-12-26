@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bonzo](https://news.puppy-snuggles.com/109298935/bonzo)
-- [Happy Christmas from me and Eddie](https://news.puppy-snuggles.com/109298926/happy-christmas-from-me-and-eddie)
-- [Flour reminding me that she IS the gift this Christmas](https://news.puppy-snuggles.com/109298931/flour-reminding-me-that-she-is-the-gift-this-christmas)
-- [My goodest girls](https://news.puppy-snuggles.com/109298933/my-goodest-girls)
-- [Share your dog pictures guy.. I will make funny art on holiday](https://news.puppy-snuggles.com/109298930/share-your-dog-pictures-guy-i-will-make-funny-art-on-holiday)
+- [My old man](https://news.puppy-snuggles.com/108652258/my-old-man)
+- [First time I woke up before my dog since October 3, 2024. Downie loves the air conditioner.](https://news.puppy-snuggles.com/88473506/first-time-i-woke-up-before-my-dog-since-october-3-2024-downie-loves-the-air-conditioner)
+- [My handsome Jude passed away today.](https://news.puppy-snuggles.com/85298185/my-handsome-jude-passed-away-today)
+- [Morning walk and ball fetching time!](https://news.puppy-snuggles.com/85298192/morning-walk-and-ball-fetching-time)
+- [She’s never happier](https://news.puppy-snuggles.com/85069738/shes-never-happier)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
