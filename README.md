@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My old man](https://news.puppy-snuggles.com/108652258/my-old-man)
-- [First time I woke up before my dog since October 3, 2024. Downie loves the air conditioner.](https://news.puppy-snuggles.com/88473506/first-time-i-woke-up-before-my-dog-since-october-3-2024-downie-loves-the-air-conditioner)
-- [My handsome Jude passed away today.](https://news.puppy-snuggles.com/85298185/my-handsome-jude-passed-away-today)
-- [Morning walk and ball fetching time!](https://news.puppy-snuggles.com/85298192/morning-walk-and-ball-fetching-time)
-- [She’s never happier](https://news.puppy-snuggles.com/85069738/shes-never-happier)
+- [Caption this &amp;amp; share funny pictures of your dog](https://news.puppy-snuggles.com/98670861/caption-this-share-funny-pictures-of-your-dog)
+- [I lost my best friend](https://news.puppy-snuggles.com/85259409/i-lost-my-best-friend)
+- [My little dog Hades went to heaven](https://news.puppy-snuggles.com/84541041/my-little-dog-hades-went-to-heaven)
+- [Can I see your dog? I want to draw a sketch of it!](https://news.puppy-snuggles.com/83280100/can-i-see-your-dog-i-want-to-draw-a-sketch-of-it)
+- [Meet Narya the Aussie 🐶 She turned 2 months old today!](https://news.puppy-snuggles.com/82034078/meet-narya-the-aussie-she-turned-2-months-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
