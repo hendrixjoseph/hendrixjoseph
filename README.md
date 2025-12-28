@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Caption this &amp;amp; share funny pictures of your dog](https://news.puppy-snuggles.com/98670861/caption-this-share-funny-pictures-of-your-dog)
-- [I lost my best friend](https://news.puppy-snuggles.com/85259409/i-lost-my-best-friend)
-- [My little dog Hades went to heaven](https://news.puppy-snuggles.com/84541041/my-little-dog-hades-went-to-heaven)
-- [Can I see your dog? I want to draw a sketch of it!](https://news.puppy-snuggles.com/83280100/can-i-see-your-dog-i-want-to-draw-a-sketch-of-it)
-- [Meet Narya the Aussie 🐶 She turned 2 months old today!](https://news.puppy-snuggles.com/82034078/meet-narya-the-aussie-she-turned-2-months-old-today)
+- [RIP Charlie, the Best Boy](https://news.puppy-snuggles.com/109205862/rip-charlie-the-best-boy)
+- [Finished up this sweet pup today. I am always so grateful when someone trusts me to capture their pet in wool - needle felted dog replica 🐾](https://news.puppy-snuggles.com/107866345/finished-up-this-sweet-pup-today-i-am-always-so-grateful-when-someone-trusts-me-to-capture-their-pet-in-wool-needle-felted-dog-replica)
+- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
+- [My 1 year old puppy jasmine&amp;lt;3](https://news.puppy-snuggles.com/84007882/my-1-year-old-puppy-jasmine3)
+- [This goof 🤪](https://news.puppy-snuggles.com/83675389/this-goof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
