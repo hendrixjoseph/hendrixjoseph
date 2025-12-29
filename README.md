@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Charlie, the Best Boy](https://news.puppy-snuggles.com/109205862/rip-charlie-the-best-boy)
-- [Finished up this sweet pup today. I am always so grateful when someone trusts me to capture their pet in wool - needle felted dog replica 🐾](https://news.puppy-snuggles.com/107866345/finished-up-this-sweet-pup-today-i-am-always-so-grateful-when-someone-trusts-me-to-capture-their-pet-in-wool-needle-felted-dog-replica)
-- [Spa day](https://news.puppy-snuggles.com/84611326/spa-day)
-- [My 1 year old puppy jasmine&amp;lt;3](https://news.puppy-snuggles.com/84007882/my-1-year-old-puppy-jasmine3)
-- [This goof 🤪](https://news.puppy-snuggles.com/83675389/this-goof)
+- [Someone mentioned dogs who will always look like puppies. That&amp;#039;s 100% my Beatrix Kiddo. She will be 16 this fall but will always look like a puppy to me.](https://news.puppy-snuggles.com/88656426/someone-mentioned-dogs-who-will-always-look-like-puppies-thats-100-my-beatrix-kiddo-she-will-be-16-this-fall-but-will-always-look-like-a-puppy-to-me)
+- [My dog died today he was 11 years old](https://news.puppy-snuggles.com/85109337/my-dog-died-today-he-was-11-years-old)
+- [Just adopted a black golden doodle!](https://news.puppy-snuggles.com/84835718/just-adopted-a-black-golden-doodle)
+- [My neighbors dogs have been trying to befriend my dog for quite sometime . Finally they made the move on him](https://news.puppy-snuggles.com/84351620/my-neighbors-dogs-have-been-trying-to-befriend-my-dog-for-quite-sometime-finally-they-made-the-move-on-him)
+- [Is my shelter dog gotten obese? She was thin when we got her but also has a ton of extra skin from being a breeder dog, however I’m worried that she’s gotten too chunky? What do I do if she has, she has a lot of trauma around food?](https://news.puppy-snuggles.com/83707719/is-my-shelter-dog-gotten-obese-she-was-thin-when-we-got-her-but-also-has-a-ton-of-extra-skin-from-being-a-breeder-dog-however-im-worried-that-shes-gotten-too-chunky-what-do-i-do-if-she-has-she-has-a-lot-of-trauma-around-food)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
