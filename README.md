@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My beagle who passed away yesterday.](https://news.puppy-snuggles.com/106616464/my-beagle-who-passed-away-yesterday)
-- [She’s cute, she’s small, and she’s silently judging your life choices](https://news.puppy-snuggles.com/87815282/shes-cute-shes-small-and-shes-silently-judging-your-life-choices)
-- [If the last thing you drank was now his new name, what would this furry boy be called?](https://news.puppy-snuggles.com/84761713/if-the-last-thing-you-drank-was-now-his-new-name-what-would-this-furry-boy-be-called)
-- [Help me name this guy](https://news.puppy-snuggles.com/84508639/help-me-name-this-guy)
-- [She always look like she’s about to tell me something important whenever she asks for pets](https://news.puppy-snuggles.com/84237323/she-always-look-like-shes-about-to-tell-me-something-important-whenever-she-asks-for-pets)
+- [Scooby dooby dally!](https://news.puppy-snuggles.com/108212676/scooby-dooby-dally)
+- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
+- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
+- [Lost my soul dog today. Love you Syd](https://news.puppy-snuggles.com/84648999/lost-my-soul-dog-today-love-you-syd)
+- [This good boy just passed his Canine Good Citizen and finished his therapy dog classes! Hecking proud parent!](https://news.puppy-snuggles.com/84237317/this-good-boy-just-passed-his-canine-good-citizen-and-finished-his-therapy-dog-classes-hecking-proud-parent)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
