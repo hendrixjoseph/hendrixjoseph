@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Scooby dooby dally!](https://news.puppy-snuggles.com/108212676/scooby-dooby-dally)
-- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
-- [No moment is lonely when you have a dog by your side.](https://news.puppy-snuggles.com/85340970/no-moment-is-lonely-when-you-have-a-dog-by-your-side)
-- [Lost my soul dog today. Love you Syd](https://news.puppy-snuggles.com/84648999/lost-my-soul-dog-today-love-you-syd)
-- [This good boy just passed his Canine Good Citizen and finished his therapy dog classes! Hecking proud parent!](https://news.puppy-snuggles.com/84237317/this-good-boy-just-passed-his-canine-good-citizen-and-finished-his-therapy-dog-classes-hecking-proud-parent)
+- [It’s not the breed I am underneath, but the treats I sit for, that define me.](https://news.puppy-snuggles.com/109553191/its-not-the-breed-i-am-underneath-but-the-treats-i-sit-for-that-define-me)
+- [I want a Tibetan mastiff so fucking bad](https://news.puppy-snuggles.com/109553192/i-want-a-tibetan-mastiff-so-fucking-bad)
+- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
+- [Dexie went for ice cream today 😋](https://news.puppy-snuggles.com/108851903/dexie-went-for-ice-cream-today)
+- [My fat girl, Rachel 💚](https://news.puppy-snuggles.com/108786488/my-fat-girl-rachel)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
