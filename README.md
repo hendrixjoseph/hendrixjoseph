@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s not the breed I am underneath, but the treats I sit for, that define me.](https://news.puppy-snuggles.com/109553191/its-not-the-breed-i-am-underneath-but-the-treats-i-sit-for-that-define-me)
-- [I want a Tibetan mastiff so fucking bad](https://news.puppy-snuggles.com/109553192/i-want-a-tibetan-mastiff-so-fucking-bad)
-- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
-- [Dexie went for ice cream today 😋](https://news.puppy-snuggles.com/108851903/dexie-went-for-ice-cream-today)
-- [My fat girl, Rachel 💚](https://news.puppy-snuggles.com/108786488/my-fat-girl-rachel)
+- [Is my dog a good girl?](https://news.puppy-snuggles.com/110123768/is-my-dog-a-good-girl)
+- [Daisy!](https://news.puppy-snuggles.com/110088657/daisy)
+- [The face of regret after getting into her food bin and eating 10 meals at once.....](https://news.puppy-snuggles.com/110026350/the-face-of-regret-after-getting-into-her-food-bin-and-eating-10-meals-at-once)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 355](https://news.puppy-snuggles.com/108450272/365-days-of-pepperoni-her-mama-day-355)
+- [Happy birthday to you, Klaus. Y love you ❤️](https://news.puppy-snuggles.com/102571450/happy-birthday-to-you-klaus-y-love-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
