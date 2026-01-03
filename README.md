@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is my dog a good girl?](https://news.puppy-snuggles.com/110123768/is-my-dog-a-good-girl)
-- [Daisy!](https://news.puppy-snuggles.com/110088657/daisy)
-- [The face of regret after getting into her food bin and eating 10 meals at once.....](https://news.puppy-snuggles.com/110026350/the-face-of-regret-after-getting-into-her-food-bin-and-eating-10-meals-at-once)
+- [It’s been a rough month but my old girl is no longer in pain 🖤](https://news.puppy-snuggles.com/109018946/its-been-a-rough-month-but-my-old-girl-is-no-longer-in-pain)
 - [365 Days of Pepperoni &amp;amp; Her Mama Day 355](https://news.puppy-snuggles.com/108450272/365-days-of-pepperoni-her-mama-day-355)
 - [Happy birthday to you, Klaus. Y love you ❤️](https://news.puppy-snuggles.com/102571450/happy-birthday-to-you-klaus-y-love-you)
+- [8am is too early to throw the ball Tess!](https://news.puppy-snuggles.com/88192853/8am-is-too-early-to-throw-the-ball-tess)
+- [Did someone say it’s the weekend?? It’s wagging tails and love all round here at Sara Morocco](https://news.puppy-snuggles.com/85425544/did-someone-say-its-the-weekend-its-wagging-tails-and-love-all-round-here-at-sara-morocco)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
