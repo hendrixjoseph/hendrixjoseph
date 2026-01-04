@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s been a rough month but my old girl is no longer in pain 🖤](https://news.puppy-snuggles.com/109018946/its-been-a-rough-month-but-my-old-girl-is-no-longer-in-pain)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 355](https://news.puppy-snuggles.com/108450272/365-days-of-pepperoni-her-mama-day-355)
-- [Happy birthday to you, Klaus. Y love you ❤️](https://news.puppy-snuggles.com/102571450/happy-birthday-to-you-klaus-y-love-you)
-- [8am is too early to throw the ball Tess!](https://news.puppy-snuggles.com/88192853/8am-is-too-early-to-throw-the-ball-tess)
-- [Did someone say it’s the weekend?? It’s wagging tails and love all round here at Sara Morocco](https://news.puppy-snuggles.com/85425544/did-someone-say-its-the-weekend-its-wagging-tails-and-love-all-round-here-at-sara-morocco)
+- [Would you boop his snoot?](https://news.puppy-snuggles.com/110220719/would-you-boop-his-snoot)
+- [The object formerly known as... ball](https://news.puppy-snuggles.com/110220721/the-object-formerly-known-as-ball)
+- [Today is my baby Bella’s 4th birthday! Too much fun](https://news.puppy-snuggles.com/110187981/today-is-my-baby-bellas-4th-birthday-too-much-fun)
+- [Just saved this beautiful girl](https://news.puppy-snuggles.com/107999453/just-saved-this-beautiful-girl)
+- [Miss Rosie was a banana split yesterday! Isn&amp;#039;t she just so stinkin cute?!](https://news.puppy-snuggles.com/103382835/miss-rosie-was-a-banana-split-yesterday-isnt-she-just-so-stinkin-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
