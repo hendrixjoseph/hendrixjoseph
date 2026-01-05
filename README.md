@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Would you boop his snoot?](https://news.puppy-snuggles.com/110220719/would-you-boop-his-snoot)
-- [The object formerly known as... ball](https://news.puppy-snuggles.com/110220721/the-object-formerly-known-as-ball)
-- [Today is my baby Bella’s 4th birthday! Too much fun](https://news.puppy-snuggles.com/110187981/today-is-my-baby-bellas-4th-birthday-too-much-fun)
-- [Just saved this beautiful girl](https://news.puppy-snuggles.com/107999453/just-saved-this-beautiful-girl)
-- [Miss Rosie was a banana split yesterday! Isn&amp;#039;t she just so stinkin cute?!](https://news.puppy-snuggles.com/103382835/miss-rosie-was-a-banana-split-yesterday-isnt-she-just-so-stinkin-cute)
+- [Getting a 2nd dog was the best decision I’ve ever made](https://news.puppy-snuggles.com/104637710/getting-a-2nd-dog-was-the-best-decision-ive-ever-made)
+- [oh how shes grown!](https://news.puppy-snuggles.com/89436516/oh-how-shes-grown)
+- [A smile or a grin?](https://news.puppy-snuggles.com/89180998/a-smile-or-a-grin)
+- [My beautiful boy, Finn](https://news.puppy-snuggles.com/85684304/my-beautiful-boy-finn)
+- [Lost my bsf recently](https://news.puppy-snuggles.com/84541047/lost-my-bsf-recently)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
