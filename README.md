@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Getting a 2nd dog was the best decision I’ve ever made](https://news.puppy-snuggles.com/104637710/getting-a-2nd-dog-was-the-best-decision-ive-ever-made)
-- [oh how shes grown!](https://news.puppy-snuggles.com/89436516/oh-how-shes-grown)
-- [A smile or a grin?](https://news.puppy-snuggles.com/89180998/a-smile-or-a-grin)
-- [My beautiful boy, Finn](https://news.puppy-snuggles.com/85684304/my-beautiful-boy-finn)
-- [Lost my bsf recently](https://news.puppy-snuggles.com/84541047/lost-my-bsf-recently)
+- [Show me your goodest girls and boys](https://news.puppy-snuggles.com/108140477/show-me-your-goodest-girls-and-boys)
+- [Luna](https://news.puppy-snuggles.com/105789827/luna)
+- [Hi](https://news.puppy-snuggles.com/105576034/hi)
+- [My baby turned 1!](https://news.puppy-snuggles.com/102930485/my-baby-turned-1)
+- [my best friend of 15 years crossed over the Rainbow Bridge](https://news.puppy-snuggles.com/93451802/my-best-friend-of-15-years-crossed-over-the-rainbow-bridge)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
