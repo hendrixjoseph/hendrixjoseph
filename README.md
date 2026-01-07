@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your goodest girls and boys](https://news.puppy-snuggles.com/108140477/show-me-your-goodest-girls-and-boys)
-- [Luna](https://news.puppy-snuggles.com/105789827/luna)
-- [Hi](https://news.puppy-snuggles.com/105576034/hi)
+- [After 10 years on a vineyard without AC, our rescue Pumi/Puli mix discovered what a fan feels like.](https://news.puppy-snuggles.com/110157076/after-10-years-on-a-vineyard-without-ac-our-rescue-pumipuli-mix-discovered-what-a-fan-feels-like)
 - [My baby turned 1!](https://news.puppy-snuggles.com/102930485/my-baby-turned-1)
-- [my best friend of 15 years crossed over the Rainbow Bridge](https://news.puppy-snuggles.com/93451802/my-best-friend-of-15-years-crossed-over-the-rainbow-bridge)
+- [That’s Zeus after a nap 💤 , he lives in Colombia 🇨🇴](https://news.puppy-snuggles.com/102859307/thats-zeus-after-a-nap-he-lives-in-colombia)
+- [Having a debate about what breed my girl is. I’m thinking possible dogo argentino mixed w/ pitbull](https://news.puppy-snuggles.com/101760252/having-a-debate-about-what-breed-my-girl-is-im-thinking-possible-dogo-argentino-mixed-w-pitbull)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 289](https://news.puppy-snuggles.com/101035245/365-days-of-pepperoni-her-mama-day-289)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
