@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [After 10 years on a vineyard without AC, our rescue Pumi/Puli mix discovered what a fan feels like.](https://news.puppy-snuggles.com/110157076/after-10-years-on-a-vineyard-without-ac-our-rescue-pumipuli-mix-discovered-what-a-fan-feels-like)
-- [My baby turned 1!](https://news.puppy-snuggles.com/102930485/my-baby-turned-1)
-- [That’s Zeus after a nap 💤 , he lives in Colombia 🇨🇴](https://news.puppy-snuggles.com/102859307/thats-zeus-after-a-nap-he-lives-in-colombia)
-- [Having a debate about what breed my girl is. I’m thinking possible dogo argentino mixed w/ pitbull](https://news.puppy-snuggles.com/101760252/having-a-debate-about-what-breed-my-girl-is-im-thinking-possible-dogo-argentino-mixed-w-pitbull)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 289](https://news.puppy-snuggles.com/101035245/365-days-of-pepperoni-her-mama-day-289)
+- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
+- [Mooch’s new headshots!](https://news.puppy-snuggles.com/84007876/moochs-new-headshots)
+- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
+- [during vs after I stopped with belly rubs](https://news.puppy-snuggles.com/77509279/during-vs-after-i-stopped-with-belly-rubs)
+- [Had to part ways with my childhood best friend today. The last 18 odd years with her have been absolutely amazing. She was the best hiking buddy out there, even when I had to carry her since she was a bit lazy sometimes. I’ll forever love this dog, she has truly been the best.](https://news.puppy-snuggles.com/75898980/had-to-part-ways-with-my-childhood-best-friend-today-the-last-18-odd-years-with-her-have-been-absolutely-amazing-she-was-the-best-hiking-buddy-out-there-even-when-i-had-to-carry-her-since-she-was-a-bit-lazy-sometimes-ill-forever-love-this-dog-she-has-truly-been-the-best)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
