@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Need a name for this girl](https://news.puppy-snuggles.com/85187165/need-a-name-for-this-girl)
-- [Mooch’s new headshots!](https://news.puppy-snuggles.com/84007876/moochs-new-headshots)
-- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
-- [during vs after I stopped with belly rubs](https://news.puppy-snuggles.com/77509279/during-vs-after-i-stopped-with-belly-rubs)
-- [Had to part ways with my childhood best friend today. The last 18 odd years with her have been absolutely amazing. She was the best hiking buddy out there, even when I had to carry her since she was a bit lazy sometimes. I’ll forever love this dog, she has truly been the best.](https://news.puppy-snuggles.com/75898980/had-to-part-ways-with-my-childhood-best-friend-today-the-last-18-odd-years-with-her-have-been-absolutely-amazing-she-was-the-best-hiking-buddy-out-there-even-when-i-had-to-carry-her-since-she-was-a-bit-lazy-sometimes-ill-forever-love-this-dog-she-has-truly-been-the-best)
+- [Just adopted my first dog, meet Sol!](https://news.puppy-snuggles.com/102301353/just-adopted-my-first-dog-meet-sol)
+- [Ruby](https://news.puppy-snuggles.com/101897465/ruby)
+- [show me a funny pic of your dog](https://news.puppy-snuggles.com/98631846/show-me-a-funny-pic-of-your-dog)
+- [I took my dog to the beach last night, and the most heartwarming thing happened!](https://news.puppy-snuggles.com/95889177/i-took-my-dog-to-the-beach-last-night-and-the-most-heartwarming-thing-happened)
+- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
