@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just adopted my first dog, meet Sol!](https://news.puppy-snuggles.com/102301353/just-adopted-my-first-dog-meet-sol)
-- [Ruby](https://news.puppy-snuggles.com/101897465/ruby)
-- [show me a funny pic of your dog](https://news.puppy-snuggles.com/98631846/show-me-a-funny-pic-of-your-dog)
-- [I took my dog to the beach last night, and the most heartwarming thing happened!](https://news.puppy-snuggles.com/95889177/i-took-my-dog-to-the-beach-last-night-and-the-most-heartwarming-thing-happened)
-- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
+- [Ready for bed!](https://news.puppy-snuggles.com/110588734/ready-for-bed)
+- [Rescued dog](https://news.puppy-snuggles.com/103839202/rescued-dog)
+- [Gus living his best life 🥰](https://news.puppy-snuggles.com/86221394/gus-living-his-best-life)
+- [Mavis is not a morning person.](https://news.puppy-snuggles.com/85187164/mavis-is-not-a-morning-person)
+- [here he is happy post vet visit no more alien eggs in his hears for this boy](https://news.puppy-snuggles.com/84160432/here-he-is-happy-post-vet-visit-no-more-alien-eggs-in-his-hears-for-this-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
