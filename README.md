@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Fitzgerald had been with us for one year yesterday, and he has come a long way.](https://news.puppy-snuggles.com/110843564/fitzgerald-had-been-with-us-for-one-year-yesterday-and-he-has-come-a-long-way)
-- [Someone mentioned dogs who will always look like puppies. That&amp;#039;s 100% my Beatrix Kiddo. She will be 16 this fall but will always look like a puppy to me.](https://news.puppy-snuggles.com/88656426/someone-mentioned-dogs-who-will-always-look-like-puppies-thats-100-my-beatrix-kiddo-she-will-be-16-this-fall-but-will-always-look-like-a-puppy-to-me)
-- [Let me doodle your pet with pet&amp;#039;s name](https://news.puppy-snuggles.com/85221301/let-me-doodle-your-pet-with-pets-name)
-- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187160/national-rescue-dog-day-lets-see-em)
-- [Say hi to Sheldon!](https://news.puppy-snuggles.com/84274204/say-hi-to-sheldon)
+- [Suddenly lost our 7 year old girl this week. Rest in peace Winnie. PSA: Xylitol is TOXIC to dogs. Please remove from your homes if you have dogs](https://news.puppy-snuggles.com/108752096/suddenly-lost-our-7-year-old-girl-this-week-rest-in-peace-winnie-psa-xylitol-is-toxic-to-dogs-please-remove-from-your-homes-if-you-have-dogs)
+- [He was hugging the staff at Jollyes petstore on his 4th birthday.](https://news.puppy-snuggles.com/108752095/he-was-hugging-the-staff-at-jollyes-petstore-on-his-4th-birthday)
+- [His name is Baby.](https://news.puppy-snuggles.com/108752097/his-name-is-baby)
+- [Our sweet guy crossed the rainbow bridge.](https://news.puppy-snuggles.com/83344947/our-sweet-guy-crossed-the-rainbow-bridge)
+- [My wife and Nena, the dog she didn’t want](https://news.puppy-snuggles.com/83126848/my-wife-and-nena-the-dog-she-didnt-want)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
