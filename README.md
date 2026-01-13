@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Suddenly lost our 7 year old girl this week. Rest in peace Winnie. PSA: Xylitol is TOXIC to dogs. Please remove from your homes if you have dogs](https://news.puppy-snuggles.com/108752096/suddenly-lost-our-7-year-old-girl-this-week-rest-in-peace-winnie-psa-xylitol-is-toxic-to-dogs-please-remove-from-your-homes-if-you-have-dogs)
-- [He was hugging the staff at Jollyes petstore on his 4th birthday.](https://news.puppy-snuggles.com/108752095/he-was-hugging-the-staff-at-jollyes-petstore-on-his-4th-birthday)
-- [His name is Baby.](https://news.puppy-snuggles.com/108752097/his-name-is-baby)
-- [Our sweet guy crossed the rainbow bridge.](https://news.puppy-snuggles.com/83344947/our-sweet-guy-crossed-the-rainbow-bridge)
-- [My wife and Nena, the dog she didn’t want](https://news.puppy-snuggles.com/83126848/my-wife-and-nena-the-dog-she-didnt-want)
+- [Lost my 13 yo boy Leo yesterday 🐕🧡](https://news.puppy-snuggles.com/111323124/lost-my-13-yo-boy-leo-yesterday)
+- [My happy Benito](https://news.puppy-snuggles.com/108450268/my-happy-benito)
+- [A old photo from chritsmas 😊 his name is Bruno](https://news.puppy-snuggles.com/83375227/a-old-photo-from-chritsmas-his-name-is-bruno)
+- [My baby turned 12 yrs old!](https://news.puppy-snuggles.com/82985867/my-baby-turned-12-yrs-old)
+- [Please help me to find breed and disease of this puppy](https://news.puppy-snuggles.com/79487593/please-help-me-to-find-breed-and-disease-of-this-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
