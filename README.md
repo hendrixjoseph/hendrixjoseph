@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lost my 13 yo boy Leo yesterday 🐕🧡](https://news.puppy-snuggles.com/111323124/lost-my-13-yo-boy-leo-yesterday)
-- [My happy Benito](https://news.puppy-snuggles.com/108450268/my-happy-benito)
-- [A old photo from chritsmas 😊 his name is Bruno](https://news.puppy-snuggles.com/83375227/a-old-photo-from-chritsmas-his-name-is-bruno)
-- [My baby turned 12 yrs old!](https://news.puppy-snuggles.com/82985867/my-baby-turned-12-yrs-old)
-- [Please help me to find breed and disease of this puppy](https://news.puppy-snuggles.com/79487593/please-help-me-to-find-breed-and-disease-of-this-puppy)
+- [Pic I took during my morning walk with my Swiss Shepard 🐾](https://news.puppy-snuggles.com/105160485/pic-i-took-during-my-morning-walk-with-my-swiss-shepard)
+- [My dog Kirby just crossed the rainbow bridge at 18 years old. He lived a good and adventurous life and now can smell EVERYTHING from doggy heaven ❤️ I&amp;#039;ll miss you buddy!](https://news.puppy-snuggles.com/103348953/my-dog-kirby-just-crossed-the-rainbow-bridge-at-18-years-old-he-lived-a-good-and-adventurous-life-and-now-can-smell-everything-from-doggy-heaven-ill-miss-you-buddy)
+- [Happy birthday to you, Klaus. Y love you ❤️](https://news.puppy-snuggles.com/102571450/happy-birthday-to-you-klaus-y-love-you)
+- [All dogs go to heaven right?](https://news.puppy-snuggles.com/97886212/all-dogs-go-to-heaven-right)
+- [Can anyone tell me why my boy’s gums are so orange?](https://news.puppy-snuggles.com/84797453/can-anyone-tell-me-why-my-boys-gums-are-so-orange)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
