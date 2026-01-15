@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pic I took during my morning walk with my Swiss Shepard 🐾](https://news.puppy-snuggles.com/105160485/pic-i-took-during-my-morning-walk-with-my-swiss-shepard)
-- [My dog Kirby just crossed the rainbow bridge at 18 years old. He lived a good and adventurous life and now can smell EVERYTHING from doggy heaven ❤️ I&amp;#039;ll miss you buddy!](https://news.puppy-snuggles.com/103348953/my-dog-kirby-just-crossed-the-rainbow-bridge-at-18-years-old-he-lived-a-good-and-adventurous-life-and-now-can-smell-everything-from-doggy-heaven-ill-miss-you-buddy)
-- [Happy birthday to you, Klaus. Y love you ❤️](https://news.puppy-snuggles.com/102571450/happy-birthday-to-you-klaus-y-love-you)
-- [All dogs go to heaven right?](https://news.puppy-snuggles.com/97886212/all-dogs-go-to-heaven-right)
-- [Can anyone tell me why my boy’s gums are so orange?](https://news.puppy-snuggles.com/84797453/can-anyone-tell-me-why-my-boys-gums-are-so-orange)
+- [POV: you&amp;#039;re my favorite human and I need kisses right now 🐶 💖](https://news.puppy-snuggles.com/111654189/pov-youre-my-favorite-human-and-i-need-kisses-right-now)
+- [Lost my 13 yo boy Leo yesterday 🐕🧡](https://news.puppy-snuggles.com/111323124/lost-my-13-yo-boy-leo-yesterday)
+- [The look …](https://news.puppy-snuggles.com/104674753/the-look)
+- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
+- [Hi, Reddit! My name is Sam. I came from Hungary to Germany and now I get to explore the world.](https://news.puppy-snuggles.com/82551291/hi-reddit-my-name-is-sam-i-came-from-hungary-to-germany-and-now-i-get-to-explore-the-world)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
