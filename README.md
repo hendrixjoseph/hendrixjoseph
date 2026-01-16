@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [POV: you&amp;#039;re my favorite human and I need kisses right now 🐶 💖](https://news.puppy-snuggles.com/111654189/pov-youre-my-favorite-human-and-i-need-kisses-right-now)
-- [Lost my 13 yo boy Leo yesterday 🐕🧡](https://news.puppy-snuggles.com/111323124/lost-my-13-yo-boy-leo-yesterday)
-- [The look …](https://news.puppy-snuggles.com/104674753/the-look)
-- [My dog has raised bumps on her back](https://news.puppy-snuggles.com/85109338/my-dog-has-raised-bumps-on-her-back)
-- [Hi, Reddit! My name is Sam. I came from Hungary to Germany and now I get to explore the world.](https://news.puppy-snuggles.com/82551291/hi-reddit-my-name-is-sam-i-came-from-hungary-to-germany-and-now-i-get-to-explore-the-world)
+- [Look at Sir Meatball!](https://news.puppy-snuggles.com/111129753/look-at-sir-meatball)
+- [Free doodles for your dog](https://news.puppy-snuggles.com/110619534/free-doodles-for-your-dog)
+- [My buddy Dobby crossed the rainbow bridge this morning](https://news.puppy-snuggles.com/99418146/my-buddy-dobby-crossed-the-rainbow-bridge-this-morning)
+- [Nina&amp;#039;s response to me reminding her that she is not a lap dog](https://news.puppy-snuggles.com/84508646/ninas-response-to-me-reminding-her-that-she-is-not-a-lap-dog)
+- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
