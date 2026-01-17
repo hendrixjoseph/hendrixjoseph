@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at Sir Meatball!](https://news.puppy-snuggles.com/111129753/look-at-sir-meatball)
-- [Free doodles for your dog](https://news.puppy-snuggles.com/110619534/free-doodles-for-your-dog)
-- [My buddy Dobby crossed the rainbow bridge this morning](https://news.puppy-snuggles.com/99418146/my-buddy-dobby-crossed-the-rainbow-bridge-this-morning)
-- [Nina&amp;#039;s response to me reminding her that she is not a lap dog](https://news.puppy-snuggles.com/84508646/ninas-response-to-me-reminding-her-that-she-is-not-a-lap-dog)
-- [my baby just turned 8 :’&rpar;](https://news.puppy-snuggles.com/83577210/my-baby-just-turned-8)
+- [Do you sing to your dog?](https://news.puppy-snuggles.com/111101351/do-you-sing-to-your-dog)
+- [Her Snoot](https://news.puppy-snuggles.com/103768860/her-snoot)
+- [Say hi!](https://news.puppy-snuggles.com/103768853/say-hi)
+- [Rescued miss Jellybean today. Any idea what she might be?](https://news.puppy-snuggles.com/83577204/rescued-miss-jellybean-today-any-idea-what-she-might-be)
+- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
