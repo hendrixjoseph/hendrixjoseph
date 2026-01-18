@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Do you sing to your dog?](https://news.puppy-snuggles.com/111101351/do-you-sing-to-your-dog)
-- [Her Snoot](https://news.puppy-snuggles.com/103768860/her-snoot)
-- [Say hi!](https://news.puppy-snuggles.com/103768853/say-hi)
-- [Rescued miss Jellybean today. Any idea what she might be?](https://news.puppy-snuggles.com/83577204/rescued-miss-jellybean-today-any-idea-what-she-might-be)
-- [This is Rosie](https://news.puppy-snuggles.com/83126855/this-is-rosie)
+- [My sweet baby boy passed away 3 days ago.](https://news.puppy-snuggles.com/107048036/my-sweet-baby-boy-passed-away-3-days-ago)
+- [What breed is he?](https://news.puppy-snuggles.com/104397410/what-breed-is-he)
+- [What do you think he’s mixed with.](https://news.puppy-snuggles.com/102468239/what-do-you-think-hes-mixed-with)
+- [Does anyone have any idea why she whines and how to stop it?](https://news.puppy-snuggles.com/82480476/does-anyone-have-any-idea-why-she-whines-and-how-to-stop-it)
+- [The look I get when leaving for work](https://news.puppy-snuggles.com/81117703/the-look-i-get-when-leaving-for-work)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
