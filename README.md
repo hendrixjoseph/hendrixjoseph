@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet baby boy passed away 3 days ago.](https://news.puppy-snuggles.com/107048036/my-sweet-baby-boy-passed-away-3-days-ago)
-- [What breed is he?](https://news.puppy-snuggles.com/104397410/what-breed-is-he)
-- [What do you think he’s mixed with.](https://news.puppy-snuggles.com/102468239/what-do-you-think-hes-mixed-with)
-- [Does anyone have any idea why she whines and how to stop it?](https://news.puppy-snuggles.com/82480476/does-anyone-have-any-idea-why-she-whines-and-how-to-stop-it)
-- [The look I get when leaving for work](https://news.puppy-snuggles.com/81117703/the-look-i-get-when-leaving-for-work)
+- [I met a wheelchair dude this afternoon. I feel honoured!](https://news.puppy-snuggles.com/111567187/i-met-a-wheelchair-dude-this-afternoon-i-feel-honoured)
+- [Day at the beach🏖](https://news.puppy-snuggles.com/111567188/day-at-the-beach)
+- [That’s not a growl, that’s enthusiasm](https://news.puppy-snuggles.com/111445132/thats-not-a-growl-thats-enthusiasm)
+- [Got some work done](https://news.puppy-snuggles.com/111445135/got-some-work-done)
+- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
