@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I met a wheelchair dude this afternoon. I feel honoured!](https://news.puppy-snuggles.com/111567187/i-met-a-wheelchair-dude-this-afternoon-i-feel-honoured)
-- [Day at the beach🏖](https://news.puppy-snuggles.com/111567188/day-at-the-beach)
-- [That’s not a growl, that’s enthusiasm](https://news.puppy-snuggles.com/111445132/thats-not-a-growl-thats-enthusiasm)
-- [Got some work done](https://news.puppy-snuggles.com/111445135/got-some-work-done)
-- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
+- [My 10 year old best mate ❤️](https://news.puppy-snuggles.com/111860581/my-10-year-old-best-mate)
+- [365 Days of Pepperoni &amp;amp; Her Toys. Day 8](https://news.puppy-snuggles.com/111036736/365-days-of-pepperoni-her-toys-day-8)
+- [Can you guess my name ?](https://news.puppy-snuggles.com/110877055/can-you-guess-my-name)
+- [I am preemptively sad about losing her at times](https://news.puppy-snuggles.com/110780862/i-am-preemptively-sad-about-losing-her-at-times)
+- [This is our little bear dog, Morty](https://news.puppy-snuggles.com/108786489/this-is-our-little-bear-dog-morty)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
