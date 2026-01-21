@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 10 year old best mate ❤️](https://news.puppy-snuggles.com/111860581/my-10-year-old-best-mate)
-- [365 Days of Pepperoni &amp;amp; Her Toys. Day 8](https://news.puppy-snuggles.com/111036736/365-days-of-pepperoni-her-toys-day-8)
-- [Can you guess my name ?](https://news.puppy-snuggles.com/110877055/can-you-guess-my-name)
-- [I am preemptively sad about losing her at times](https://news.puppy-snuggles.com/110780862/i-am-preemptively-sad-about-losing-her-at-times)
-- [This is our little bear dog, Morty](https://news.puppy-snuggles.com/108786489/this-is-our-little-bear-dog-morty)
+- [my best friend of 15 years crossed over the Rainbow Bridge](https://news.puppy-snuggles.com/93451802/my-best-friend-of-15-years-crossed-over-the-rainbow-bridge)
+- [Gus living his best life 🥰](https://news.puppy-snuggles.com/86221394/gus-living-his-best-life)
+- [My cousin&amp;#039;s cute little doggie](https://news.puppy-snuggles.com/85187167/my-cousins-cute-little-doggie)
+- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
+- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
