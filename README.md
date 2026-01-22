@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my best friend of 15 years crossed over the Rainbow Bridge](https://news.puppy-snuggles.com/93451802/my-best-friend-of-15-years-crossed-over-the-rainbow-bridge)
-- [Gus living his best life 🥰](https://news.puppy-snuggles.com/86221394/gus-living-his-best-life)
-- [My cousin&amp;#039;s cute little doggie](https://news.puppy-snuggles.com/85187167/my-cousins-cute-little-doggie)
-- [Post a pic of your sleepy dog&lpar;s&rpar;](https://news.puppy-snuggles.com/84611321/post-a-pic-of-your-sleepy-dogs)
-- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
+- [Trix wants some chicken &lpar;she got some&rpar;](https://news.puppy-snuggles.com/98848773/trix-wants-some-chicken-she-got-some)
+- [A smile or a grin?](https://news.puppy-snuggles.com/89180998/a-smile-or-a-grin)
+- [Today is his last day. Thank you for the 16 years bud.](https://news.puppy-snuggles.com/84874193/today-is-his-last-day-thank-you-for-the-16-years-bud)
+- [He has no idea how much he has saved me this past year.](https://news.puppy-snuggles.com/83743754/he-has-no-idea-how-much-he-has-saved-me-this-past-year)
+- [Puppy movement in mom’s belly](https://news.puppy-snuggles.com/83280108/puppy-movement-in-moms-belly)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
