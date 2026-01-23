@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Trix wants some chicken &lpar;she got some&rpar;](https://news.puppy-snuggles.com/98848773/trix-wants-some-chicken-she-got-some)
-- [A smile or a grin?](https://news.puppy-snuggles.com/89180998/a-smile-or-a-grin)
-- [Today is his last day. Thank you for the 16 years bud.](https://news.puppy-snuggles.com/84874193/today-is-his-last-day-thank-you-for-the-16-years-bud)
-- [He has no idea how much he has saved me this past year.](https://news.puppy-snuggles.com/83743754/he-has-no-idea-how-much-he-has-saved-me-this-past-year)
-- [Puppy movement in mom’s belly](https://news.puppy-snuggles.com/83280108/puppy-movement-in-moms-belly)
+- [Isn&amp;#039;t she lovely 🎶](https://news.puppy-snuggles.com/111684145/isnt-she-lovely)
+- [My baby boy](https://news.puppy-snuggles.com/108954997/my-baby-boy)
+- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
+- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
+- [It was my babies birthdays today!! 💗](https://news.puppy-snuggles.com/83675386/it-was-my-babies-birthdays-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
