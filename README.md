@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Isn&amp;#039;t she lovely 🎶](https://news.puppy-snuggles.com/111684145/isnt-she-lovely)
-- [My baby boy](https://news.puppy-snuggles.com/108954997/my-baby-boy)
-- [Cinnamon, our family dog, is officially 14💜🥹](https://news.puppy-snuggles.com/89695653/cinnamon-our-family-dog-is-officially-14)
-- [my doggo](https://news.puppy-snuggles.com/83707718/my-doggo)
-- [It was my babies birthdays today!! 💗](https://news.puppy-snuggles.com/83675386/it-was-my-babies-birthdays-today)
+- [Rick, Morty, &amp;amp; Jerry posing like gentlemen](https://news.puppy-snuggles.com/108383146/rick-morty-jerry-posing-like-gentlemen)
+- [Happy dog, happy heart.](https://news.puppy-snuggles.com/95889173/happy-dog-happy-heart)
+- [Goose! Just busted him out of the shelter. Welcome home](https://news.puppy-snuggles.com/83934468/goose-just-busted-him-out-of-the-shelter-welcome-home)
+- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
+- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
