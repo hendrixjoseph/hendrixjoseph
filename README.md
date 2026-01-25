@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rick, Morty, &amp;amp; Jerry posing like gentlemen](https://news.puppy-snuggles.com/108383146/rick-morty-jerry-posing-like-gentlemen)
-- [Happy dog, happy heart.](https://news.puppy-snuggles.com/95889173/happy-dog-happy-heart)
-- [Goose! Just busted him out of the shelter. Welcome home](https://news.puppy-snuggles.com/83934468/goose-just-busted-him-out-of-the-shelter-welcome-home)
-- [Loved this doggo](https://news.puppy-snuggles.com/82236861/loved-this-doggo)
-- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
+- [These are my two little babies](https://news.puppy-snuggles.com/111654191/these-are-my-two-little-babies)
+- [Miss Rosie was a banana split yesterday! Isn&amp;#039;t she just so stinkin cute?!](https://news.puppy-snuggles.com/103382835/miss-rosie-was-a-banana-split-yesterday-isnt-she-just-so-stinkin-cute)
+- [This is 14! Happy birthday to my girl!](https://news.puppy-snuggles.com/91935986/this-is-14-happy-birthday-to-my-girl)
+- [I miss my dog he died 3 days ago 🥲let him fly around the world ❤️](https://news.puppy-snuggles.com/86022003/i-miss-my-dog-he-died-3-days-ago-let-him-fly-around-the-world)
+- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
