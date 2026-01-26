@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [These are my two little babies](https://news.puppy-snuggles.com/111654191/these-are-my-two-little-babies)
-- [Miss Rosie was a banana split yesterday! Isn&amp;#039;t she just so stinkin cute?!](https://news.puppy-snuggles.com/103382835/miss-rosie-was-a-banana-split-yesterday-isnt-she-just-so-stinkin-cute)
-- [This is 14! Happy birthday to my girl!](https://news.puppy-snuggles.com/91935986/this-is-14-happy-birthday-to-my-girl)
-- [I miss my dog he died 3 days ago 🥲let him fly around the world ❤️](https://news.puppy-snuggles.com/86022003/i-miss-my-dog-he-died-3-days-ago-let-him-fly-around-the-world)
-- [Here’s Lucy](https://news.puppy-snuggles.com/85221299/heres-lucy)
+- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
+- [Happy dog, happy heart.](https://news.puppy-snuggles.com/95889173/happy-dog-happy-heart)
+- [Happy little baby Coco 🤎✨](https://news.puppy-snuggles.com/92031923/happy-little-baby-coco)
+- [Trout went to the groomer for the first time and they sent us this photo](https://news.puppy-snuggles.com/88386649/trout-went-to-the-groomer-for-the-first-time-and-they-sent-us-this-photo)
+- [He turned 11 today but he still has that goofy Muppet smile](https://news.puppy-snuggles.com/86022002/he-turned-11-today-but-he-still-has-that-goofy-muppet-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
