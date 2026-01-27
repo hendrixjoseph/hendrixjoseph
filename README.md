@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Four weeks fostering!](https://news.puppy-snuggles.com/101403278/four-weeks-fostering)
-- [Happy dog, happy heart.](https://news.puppy-snuggles.com/95889173/happy-dog-happy-heart)
-- [Happy little baby Coco 🤎✨](https://news.puppy-snuggles.com/92031923/happy-little-baby-coco)
-- [Trout went to the groomer for the first time and they sent us this photo](https://news.puppy-snuggles.com/88386649/trout-went-to-the-groomer-for-the-first-time-and-they-sent-us-this-photo)
-- [He turned 11 today but he still has that goofy Muppet smile](https://news.puppy-snuggles.com/86022002/he-turned-11-today-but-he-still-has-that-goofy-muppet-smile)
+- [She gave us 14.5 years and 1 day 💔](https://news.puppy-snuggles.com/110619525/she-gave-us-145-years-and-1-day)
+- [The best picture I ever took of my late dog Walter.](https://news.puppy-snuggles.com/109425871/the-best-picture-i-ever-took-of-my-late-dog-walter)
+- [Charlie boy: always sleeps like this](https://news.puppy-snuggles.com/98523543/charlie-boy-always-sleeps-like-this)
+- [Missing you hard right now baby girl](https://news.puppy-snuggles.com/88528243/missing-you-hard-right-now-baby-girl)
+- [My dog ​​is 10 months old and is huge.](https://news.puppy-snuggles.com/81730063/my-dog-is-10-months-old-and-is-huge)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
