@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She gave us 14.5 years and 1 day 💔](https://news.puppy-snuggles.com/110619525/she-gave-us-145-years-and-1-day)
-- [The best picture I ever took of my late dog Walter.](https://news.puppy-snuggles.com/109425871/the-best-picture-i-ever-took-of-my-late-dog-walter)
-- [Charlie boy: always sleeps like this](https://news.puppy-snuggles.com/98523543/charlie-boy-always-sleeps-like-this)
-- [Missing you hard right now baby girl](https://news.puppy-snuggles.com/88528243/missing-you-hard-right-now-baby-girl)
-- [My dog ​​is 10 months old and is huge.](https://news.puppy-snuggles.com/81730063/my-dog-is-10-months-old-and-is-huge)
+- [Just gotta shout out - my Bear is 7 today!](https://news.puppy-snuggles.com/108752104/just-gotta-shout-out-my-bear-is-7-today)
+- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187159/national-rescue-dog-day-lets-see-em)
+- [R.I.P Blaine ♥️](https://news.puppy-snuggles.com/84471319/rip-blaine)
+- [Luna as a puppy and her last day with us💔💔💔](https://news.puppy-snuggles.com/83895007/luna-as-a-puppy-and-her-last-day-with-us)
+- [Puppy movement in mom’s belly](https://news.puppy-snuggles.com/83280108/puppy-movement-in-moms-belly)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
