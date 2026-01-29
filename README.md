@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just gotta shout out - my Bear is 7 today!](https://news.puppy-snuggles.com/108752104/just-gotta-shout-out-my-bear-is-7-today)
-- [National Rescue Dog Day! Let’s see ‘em. 🤍](https://news.puppy-snuggles.com/85187159/national-rescue-dog-day-lets-see-em)
-- [R.I.P Blaine ♥️](https://news.puppy-snuggles.com/84471319/rip-blaine)
-- [Luna as a puppy and her last day with us💔💔💔](https://news.puppy-snuggles.com/83895007/luna-as-a-puppy-and-her-last-day-with-us)
-- [Puppy movement in mom’s belly](https://news.puppy-snuggles.com/83280108/puppy-movement-in-moms-belly)
+- [Memorial for Bella](https://news.puppy-snuggles.com/111967473/memorial-for-bella)
+- [Meet Flour, our rescue pup](https://news.puppy-snuggles.com/107967794/meet-flour-our-rescue-pup)
+- [My little man passed today. This is how I’ll always remember him.](https://news.puppy-snuggles.com/98316725/my-little-man-passed-today-this-is-how-ill-always-remember-him)
+- [Meet Ozzy, 4 months of pure cuteness.](https://news.puppy-snuggles.com/84007873/meet-ozzy-4-months-of-pure-cuteness)
+- [Such a happy girl](https://news.puppy-snuggles.com/84007871/such-a-happy-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
