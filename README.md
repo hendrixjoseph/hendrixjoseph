@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [We lasted 48 hours after sweet Chloe&amp;#039;s passing.](https://news.puppy-snuggles.com/112187730/we-lasted-48-hours-after-sweet-chloes-passing)
-- [Where My Jack Russell sleeps every night, right in the middle of my bed](https://news.puppy-snuggles.com/105227041/where-my-jack-russell-sleeps-every-night-right-in-the-middle-of-my-bed)
-- [Happy Birthday!](https://news.puppy-snuggles.com/87581567/happy-birthday)
-- [Always the happiest to see me when I come back from a trip 🥹](https://news.puppy-snuggles.com/87457807/always-the-happiest-to-see-me-when-i-come-back-from-a-trip)
-- [this is bowie. bowie is short so he stands on tables.](https://news.puppy-snuggles.com/85591679/this-is-bowie-bowie-is-short-so-he-stands-on-tables)
+- [Our girl, Lemon 💛](https://news.puppy-snuggles.com/111567185/our-girl-lemon)
+- [Levi is happy to be included](https://news.puppy-snuggles.com/109393934/levi-is-happy-to-be-included)
+- [🤗 I&amp;#039;m still not sure of the breed but I love when he smiles](https://news.puppy-snuggles.com/104741010/im-still-not-sure-of-the-breed-but-i-love-when-he-smiles)
+- [My dad and my dog, Bucky.](https://news.puppy-snuggles.com/103242644/my-dad-and-my-dog-bucky)
+- [My rescue dog Lady](https://news.puppy-snuggles.com/84194944/my-rescue-dog-lady)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
