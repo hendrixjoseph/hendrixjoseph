@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our girl, Lemon 💛](https://news.puppy-snuggles.com/111567185/our-girl-lemon)
-- [Levi is happy to be included](https://news.puppy-snuggles.com/109393934/levi-is-happy-to-be-included)
-- [🤗 I&amp;#039;m still not sure of the breed but I love when he smiles](https://news.puppy-snuggles.com/104741010/im-still-not-sure-of-the-breed-but-i-love-when-he-smiles)
-- [My dad and my dog, Bucky.](https://news.puppy-snuggles.com/103242644/my-dad-and-my-dog-bucky)
-- [My rescue dog Lady](https://news.puppy-snuggles.com/84194944/my-rescue-dog-lady)
+- [I miss her so much!](https://news.puppy-snuggles.com/113051111/i-miss-her-so-much)
+- [My grandma always leaves us with kiss stains and now the dog was victim too](https://news.puppy-snuggles.com/107564774/my-grandma-always-leaves-us-with-kiss-stains-and-now-the-dog-was-victim-too)
+- [Adopted this big old softy today](https://news.puppy-snuggles.com/103595504/adopted-this-big-old-softy-today)
+- [Show me a funny pic of your dog](https://news.puppy-snuggles.com/103558324/show-me-a-funny-pic-of-your-dog)
+- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
