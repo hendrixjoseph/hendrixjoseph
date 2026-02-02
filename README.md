@@ -69,10 +69,10 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
 - [I miss her so much!](https://news.puppy-snuggles.com/113051111/i-miss-her-so-much)
+- [Introducing Chica](https://news.puppy-snuggles.com/111505532/introducing-chica)
+- [Run Free, Lucky! I love you so much 💔](https://news.puppy-snuggles.com/108887124/run-free-lucky-i-love-you-so-much)
 - [My grandma always leaves us with kiss stains and now the dog was victim too](https://news.puppy-snuggles.com/107564774/my-grandma-always-leaves-us-with-kiss-stains-and-now-the-dog-was-victim-too)
 - [Adopted this big old softy today](https://news.puppy-snuggles.com/103595504/adopted-this-big-old-softy-today)
-- [Show me a funny pic of your dog](https://news.puppy-snuggles.com/103558324/show-me-a-funny-pic-of-your-dog)
-- [Said goodbye to Jake yesterday; here’s some pics of our last couple of days together. When he left, he took a piece of my soul with him.](https://news.puppy-snuggles.com/101139243/said-goodbye-to-jake-yesterday-heres-some-pics-of-our-last-couple-of-days-together-when-he-left-he-took-a-piece-of-my-soul-with-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
