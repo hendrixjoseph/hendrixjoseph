@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I miss her so much!](https://news.puppy-snuggles.com/113051111/i-miss-her-so-much)
-- [Introducing Chica](https://news.puppy-snuggles.com/111505532/introducing-chica)
-- [Run Free, Lucky! I love you so much 💔](https://news.puppy-snuggles.com/108887124/run-free-lucky-i-love-you-so-much)
-- [My grandma always leaves us with kiss stains and now the dog was victim too](https://news.puppy-snuggles.com/107564774/my-grandma-always-leaves-us-with-kiss-stains-and-now-the-dog-was-victim-too)
-- [Adopted this big old softy today](https://news.puppy-snuggles.com/103595504/adopted-this-big-old-softy-today)
+- [People who accidentally acquired a dog rather than get one from a breeder, tell me your story!](https://news.puppy-snuggles.com/111478444/people-who-accidentally-acquired-a-dog-rather-than-get-one-from-a-breeder-tell-me-your-story)
+- [It’s been a rough month but my old girl is no longer in pain 🖤](https://news.puppy-snuggles.com/109018946/its-been-a-rough-month-but-my-old-girl-is-no-longer-in-pain)
+- [Back to School Portrait Time](https://news.puppy-snuggles.com/94514747/back-to-school-portrait-time)
+- [here he is happy post vet visit no more alien eggs in his hears for this boy](https://news.puppy-snuggles.com/84160432/here-he-is-happy-post-vet-visit-no-more-alien-eggs-in-his-hears-for-this-boy)
+- [My newest dog drawing : &rpar; can you guess the breed?](https://news.puppy-snuggles.com/83851262/my-newest-dog-drawing-can-you-guess-the-breed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
