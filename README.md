@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [People who accidentally acquired a dog rather than get one from a breeder, tell me your story!](https://news.puppy-snuggles.com/111478444/people-who-accidentally-acquired-a-dog-rather-than-get-one-from-a-breeder-tell-me-your-story)
-- [It’s been a rough month but my old girl is no longer in pain 🖤](https://news.puppy-snuggles.com/109018946/its-been-a-rough-month-but-my-old-girl-is-no-longer-in-pain)
-- [Back to School Portrait Time](https://news.puppy-snuggles.com/94514747/back-to-school-portrait-time)
-- [here he is happy post vet visit no more alien eggs in his hears for this boy](https://news.puppy-snuggles.com/84160432/here-he-is-happy-post-vet-visit-no-more-alien-eggs-in-his-hears-for-this-boy)
-- [My newest dog drawing : &rpar; can you guess the breed?](https://news.puppy-snuggles.com/83851262/my-newest-dog-drawing-can-you-guess-the-breed)
+- [Look at the speed](https://news.puppy-snuggles.com/113051108/look-at-the-speed)
+- [I just adopted this little one](https://news.puppy-snuggles.com/112571447/i-just-adopted-this-little-one)
+- [My pup charlie playing in the snow](https://news.puppy-snuggles.com/112571448/my-pup-charlie-playing-in-the-snow)
+- [Does my little rescue resemble a chihuahua?](https://news.puppy-snuggles.com/112571449/does-my-little-rescue-resemble-a-chihuahua)
+- [New Family member](https://news.puppy-snuggles.com/110843559/new-family-member)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
