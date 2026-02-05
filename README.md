@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at the speed](https://news.puppy-snuggles.com/113051108/look-at-the-speed)
-- [I just adopted this little one](https://news.puppy-snuggles.com/112571447/i-just-adopted-this-little-one)
-- [My pup charlie playing in the snow](https://news.puppy-snuggles.com/112571448/my-pup-charlie-playing-in-the-snow)
-- [Does my little rescue resemble a chihuahua?](https://news.puppy-snuggles.com/112571449/does-my-little-rescue-resemble-a-chihuahua)
-- [New Family member](https://news.puppy-snuggles.com/110843559/new-family-member)
+- [Happy little boy playing with water bottles](https://news.puppy-snuggles.com/108954995/happy-little-boy-playing-with-water-bottles)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 302](https://news.puppy-snuggles.com/102571448/365-days-of-pepperoni-her-mama-day-302)
+- [The most adorable belly in the world](https://news.puppy-snuggles.com/92546247/the-most-adorable-belly-in-the-world)
+- [We found out today Gus doesn’t have cancer!](https://news.puppy-snuggles.com/91307989/we-found-out-today-gus-doesnt-have-cancer)
+- [I lost my best friend](https://news.puppy-snuggles.com/85259409/i-lost-my-best-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
