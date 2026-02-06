@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy little boy playing with water bottles](https://news.puppy-snuggles.com/108954995/happy-little-boy-playing-with-water-bottles)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 302](https://news.puppy-snuggles.com/102571448/365-days-of-pepperoni-her-mama-day-302)
-- [The most adorable belly in the world](https://news.puppy-snuggles.com/92546247/the-most-adorable-belly-in-the-world)
-- [We found out today Gus doesn’t have cancer!](https://news.puppy-snuggles.com/91307989/we-found-out-today-gus-doesnt-have-cancer)
-- [I lost my best friend](https://news.puppy-snuggles.com/85259409/i-lost-my-best-friend)
+- [i hated dogs until i got this girl + BABY PHOTO OF HER](https://news.puppy-snuggles.com/112148215/i-hated-dogs-until-i-got-this-girl-baby-photo-of-her)
+- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
+- [Genie 🧞‍♂️ and his self portrait 🐕‍🦺](https://news.puppy-snuggles.com/110554259/genie-and-his-self-portrait)
+- [New doggo I have commanded not to get on the furniture.He has staged a one dog picket line.](https://news.puppy-snuggles.com/110057971/new-doggo-i-have-commanded-not-to-get-on-the-furniturehe-has-staged-a-one-dog-picket-line)
+- [First day to now.](https://news.puppy-snuggles.com/109741592/first-day-to-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
