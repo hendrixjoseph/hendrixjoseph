@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i hated dogs until i got this girl + BABY PHOTO OF HER](https://news.puppy-snuggles.com/112148215/i-hated-dogs-until-i-got-this-girl-baby-photo-of-her)
-- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
-- [Genie 🧞‍♂️ and his self portrait 🐕‍🦺](https://news.puppy-snuggles.com/110554259/genie-and-his-self-portrait)
-- [New doggo I have commanded not to get on the furniture.He has staged a one dog picket line.](https://news.puppy-snuggles.com/110057971/new-doggo-i-have-commanded-not-to-get-on-the-furniturehe-has-staged-a-one-dog-picket-line)
-- [First day to now.](https://news.puppy-snuggles.com/109741592/first-day-to-now)
+- [My neighbor loves his dog](https://news.puppy-snuggles.com/110123773/my-neighbor-loves-his-dog)
+- [Loves the spring](https://news.puppy-snuggles.com/83971584/loves-the-spring)
+- [Do I have to wake up?](https://news.puppy-snuggles.com/82750857/do-i-have-to-wake-up)
+- [Name for the new boy please 💙](https://news.puppy-snuggles.com/82201284/name-for-the-new-boy-please)
+- [My mom went to a baby shower and came home with a puppy. Her names Goldie](https://news.puppy-snuggles.com/81184981/my-mom-went-to-a-baby-shower-and-came-home-with-a-puppy-her-names-goldie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
