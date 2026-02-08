@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My neighbor loves his dog](https://news.puppy-snuggles.com/110123773/my-neighbor-loves-his-dog)
-- [Loves the spring](https://news.puppy-snuggles.com/83971584/loves-the-spring)
-- [Do I have to wake up?](https://news.puppy-snuggles.com/82750857/do-i-have-to-wake-up)
-- [Name for the new boy please 💙](https://news.puppy-snuggles.com/82201284/name-for-the-new-boy-please)
-- [My mom went to a baby shower and came home with a puppy. Her names Goldie](https://news.puppy-snuggles.com/81184981/my-mom-went-to-a-baby-shower-and-came-home-with-a-puppy-her-names-goldie)
+- [Chocolate Shake is still alive this morning. That may change in 24 hours! He will be euthanized tomorrow at Downey ACC in CA. Can you foster or adopt him? &lpar;Out of state ok, Experinced handler&rpar; Message me, text &lpar;858&rpar; 789-3903 or email Isabeldesiree8@gmail.com asap if you can help and pls share](https://news.puppy-snuggles.com/113593373/chocolate-shake-is-still-alive-this-morning-that-may-change-in-24-hours-he-will-be-euthanized-tomorrow-at-downey-acc-in-ca-can-you-foster-or-adopt-him-out-of-state-ok-experinced-handler-message-me-text-858-789-3903-or-email-isabeldesiree8-at-gmailcom-asap-if-you-can-help-and-pls-share)
+- [When the Trazodone kicks in lol](https://news.puppy-snuggles.com/111129750/when-the-trazodone-kicks-in-lol)
+- [a quote that really moved me + a pic of me and my doggos](https://news.puppy-snuggles.com/87356626/a-quote-that-really-moved-me-a-pic-of-me-and-my-doggos)
+- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
+- [Grin](https://news.puppy-snuggles.com/83895010/grin)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
