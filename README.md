@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My wife and I traveled around most of mainland Europe with our 5 dogs, ama](https://news.puppy-snuggles.com/108102655/my-wife-and-i-traveled-around-most-of-mainland-europe-with-our-5-dogs-ama)
-- [The story in his eyes](https://news.puppy-snuggles.com/85148165/the-story-in-his-eyes)
-- [Service dog senses its owner is about to faint and responds.](https://news.puppy-snuggles.com/84007869/service-dog-senses-its-owner-is-about-to-faint-and-responds)
+- [The owner of the pitbulls can’t even use the bathroom in peace. The photograph is turning into a painting.](https://news.puppy-snuggles.com/96683583/the-owner-of-the-pitbulls-cant-even-use-the-bathroom-in-peace-the-photograph-is-turning-into-a-painting)
+- [My Toto crossed the bridge today.](https://news.puppy-snuggles.com/93037781/my-toto-crossed-the-bridge-today)
 - [Bob says hi](https://news.puppy-snuggles.com/80605661/bob-says-hi)
-- [Tank- my old man rescue… update!](https://news.puppy-snuggles.com/80575451/tank-my-old-man-rescue-update)
+- [I&amp;#039;ve got some time today. Let me doodle your puppy!](https://news.puppy-snuggles.com/80007865/ive-got-some-time-today-let-me-doodle-your-puppy)
+- [Lawsuit filed against county, dog warden, condo association in brutal fatal mauling case](https://news.puppy-snuggles.com/77967945/lawsuit-filed-against-county-dog-warden-condo-association-in-brutal-fatal-mauling-case)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
