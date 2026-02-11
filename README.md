@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The owner of the pitbulls can’t even use the bathroom in peace. The photograph is turning into a painting.](https://news.puppy-snuggles.com/96683583/the-owner-of-the-pitbulls-cant-even-use-the-bathroom-in-peace-the-photograph-is-turning-into-a-painting)
-- [My Toto crossed the bridge today.](https://news.puppy-snuggles.com/93037781/my-toto-crossed-the-bridge-today)
-- [Bob says hi](https://news.puppy-snuggles.com/80605661/bob-says-hi)
-- [I&amp;#039;ve got some time today. Let me doodle your puppy!](https://news.puppy-snuggles.com/80007865/ive-got-some-time-today-let-me-doodle-your-puppy)
-- [Lawsuit filed against county, dog warden, condo association in brutal fatal mauling case](https://news.puppy-snuggles.com/77967945/lawsuit-filed-against-county-dog-warden-condo-association-in-brutal-fatal-mauling-case)
+- [Let me Tell you about Ranger](https://news.puppy-snuggles.com/110813997/let-me-tell-you-about-ranger)
+- [Queen Pepperoni on her Throne 👑](https://news.puppy-snuggles.com/109929838/queen-pepperoni-on-her-throne)
+- [My boys birthday today](https://news.puppy-snuggles.com/84835713/my-boys-birthday-today)
+- [This is my little pup Muri. He is 7 years old, almost 8. We just found out he has lung cancer. I still have a few days with him, maybe weeks, hopefully more. My one and only friend❤️](https://news.puppy-snuggles.com/83157607/this-is-my-little-pup-muri-he-is-7-years-old-almost-8-we-just-found-out-he-has-lung-cancer-i-still-have-a-few-days-with-him-maybe-weeks-hopefully-more-my-one-and-only-friend)
+- [My little dude, George](https://news.puppy-snuggles.com/81730060/my-little-dude-george)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
