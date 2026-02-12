@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let me Tell you about Ranger](https://news.puppy-snuggles.com/110813997/let-me-tell-you-about-ranger)
-- [Queen Pepperoni on her Throne 👑](https://news.puppy-snuggles.com/109929838/queen-pepperoni-on-her-throne)
-- [My boys birthday today](https://news.puppy-snuggles.com/84835713/my-boys-birthday-today)
-- [This is my little pup Muri. He is 7 years old, almost 8. We just found out he has lung cancer. I still have a few days with him, maybe weeks, hopefully more. My one and only friend❤️](https://news.puppy-snuggles.com/83157607/this-is-my-little-pup-muri-he-is-7-years-old-almost-8-we-just-found-out-he-has-lung-cancer-i-still-have-a-few-days-with-him-maybe-weeks-hopefully-more-my-one-and-only-friend)
-- [My little dude, George](https://news.puppy-snuggles.com/81730060/my-little-dude-george)
+- [Saying goodbye to Cooper today and the guilt is killing me](https://news.puppy-snuggles.com/113207194/saying-goodbye-to-cooper-today-and-the-guilt-is-killing-me)
+- [She’s gone and life won’t be the same.](https://news.puppy-snuggles.com/113207196/shes-gone-and-life-wont-be-the-same)
+- [Happiness every where:&rpar;](https://news.puppy-snuggles.com/109963503/happiness-every-where)
+- [Happy Chihuamas!](https://news.puppy-snuggles.com/107999461/happy-chihuamas)
+- [show me a funny pic of your dog](https://news.puppy-snuggles.com/98631846/show-me-a-funny-pic-of-your-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
