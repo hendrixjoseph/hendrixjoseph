@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [ill miss you forever my lover boy](https://news.puppy-snuggles.com/113166882/ill-miss-you-forever-my-lover-boy)
-- [365 Days of Pepperoni &amp;amp; Her Toys. Day 11](https://news.puppy-snuggles.com/111351250/365-days-of-pepperoni-her-toys-day-11)
-- [Adopted this cutie!](https://news.puppy-snuggles.com/110321538/adopted-this-cutie)
-- [I’ve been making my dog fresh food for about 2 years now, best decision ever](https://news.puppy-snuggles.com/108450274/ive-been-making-my-dog-fresh-food-for-about-2-years-now-best-decision-ever)
-- [He destroys me when hi sleeps like this with his paws covering his face! My angel Rocco](https://news.puppy-snuggles.com/95646627/he-destroys-me-when-hi-sleeps-like-this-with-his-paws-covering-his-face-my-angel-rocco)
+- [Uncanny...](https://news.puppy-snuggles.com/106517395/uncanny)
+- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
+- [How cute is my girl Aika when she comes back from the groomer!🥰 You guys can guess which race my dog is? 😜](https://news.puppy-snuggles.com/75804554/how-cute-is-my-girl-aika-when-she-comes-back-from-the-groomer-you-guys-can-guess-which-race-my-dog-is)
+- [He thinks he’s cute 🙄](https://news.puppy-snuggles.com/50577378/he-thinks-hes-cute)
+- [This farmer is sad, and first, dogs try to cheer him. When they can&amp;#039;t, they call cows &amp;amp;amp; donkeys](https://news.puppy-snuggles.com/47850708/this-farmer-is-sad-and-first-dogs-try-to-cheer-him-when-they-cant-they-call-cows-amp-donkeys)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
