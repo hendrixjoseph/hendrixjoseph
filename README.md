@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Uncanny...](https://news.puppy-snuggles.com/106517395/uncanny)
-- [Show your pack! ❤️](https://news.puppy-snuggles.com/82001791/show-your-pack)
-- [How cute is my girl Aika when she comes back from the groomer!🥰 You guys can guess which race my dog is? 😜](https://news.puppy-snuggles.com/75804554/how-cute-is-my-girl-aika-when-she-comes-back-from-the-groomer-you-guys-can-guess-which-race-my-dog-is)
-- [He thinks he’s cute 🙄](https://news.puppy-snuggles.com/50577378/he-thinks-hes-cute)
-- [This farmer is sad, and first, dogs try to cheer him. When they can&amp;#039;t, they call cows &amp;amp;amp; donkeys](https://news.puppy-snuggles.com/47850708/this-farmer-is-sad-and-first-dogs-try-to-cheer-him-when-they-cant-they-call-cows-amp-donkeys)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 360](https://news.puppy-snuggles.com/109114007/365-days-of-pepperoni-her-mama-day-360)
+- [Rescued dog](https://news.puppy-snuggles.com/103839202/rescued-dog)
+- [Has anyone else unknowingly adopted a purebred pup from the shelter? Here’s mine! 🧡](https://news.puppy-snuggles.com/100010906/has-anyone-else-unknowingly-adopted-a-purebred-pup-from-the-shelter-heres-mine)
+- [My 12 year old pug, Bear,from puppy to old man.](https://news.puppy-snuggles.com/86184663/my-12-year-old-pug-bearfrom-puppy-to-old-man)
+- [Rescue dog. Had her a week.](https://news.puppy-snuggles.com/84947380/rescue-dog-had-her-a-week)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
