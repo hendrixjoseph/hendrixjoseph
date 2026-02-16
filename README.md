@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 360](https://news.puppy-snuggles.com/109114007/365-days-of-pepperoni-her-mama-day-360)
-- [Rescued dog](https://news.puppy-snuggles.com/103839202/rescued-dog)
-- [Has anyone else unknowingly adopted a purebred pup from the shelter? Here’s mine! 🧡](https://news.puppy-snuggles.com/100010906/has-anyone-else-unknowingly-adopted-a-purebred-pup-from-the-shelter-heres-mine)
-- [My 12 year old pug, Bear,from puppy to old man.](https://news.puppy-snuggles.com/86184663/my-12-year-old-pug-bearfrom-puppy-to-old-man)
-- [Rescue dog. Had her a week.](https://news.puppy-snuggles.com/84947380/rescue-dog-had-her-a-week)
+- [Our newest addition. We are now a FOUR dog family](https://news.puppy-snuggles.com/113866283/our-newest-addition-we-are-now-a-four-dog-family)
+- [365 Days of Pepperoni &amp;amp; Her Toys. Day 1](https://news.puppy-snuggles.com/110256898/365-days-of-pepperoni-her-toys-day-1)
+- [Breeders suck. Adopt a dog.](https://news.puppy-snuggles.com/107082252/breeders-suck-adopt-a-dog)
+- [Otis and his funny &lpar;&amp;amp; cute&rpar; faces](https://news.puppy-snuggles.com/106517387/otis-and-his-funny-cute-faces)
+- [I will never understand how no one wanted this beautiful boy, look at that face!](https://news.puppy-snuggles.com/86184671/i-will-never-understand-how-no-one-wanted-this-beautiful-boy-look-at-that-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
