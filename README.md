@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My happy Benito](https://news.puppy-snuggles.com/108450268/my-happy-benito)
-- [Please boop my snoot](https://news.puppy-snuggles.com/102571447/please-boop-my-snoot)
-- [She beat cancer!](https://news.puppy-snuggles.com/92316350/she-beat-cancer)
-- [Just got him recently and haven’t picked a name yet. He’s goofy, cuddly, and obsessed with treats. Open to suggestions!](https://news.puppy-snuggles.com/92061403/just-got-him-recently-and-havent-picked-a-name-yet-hes-goofy-cuddly-and-obsessed-with-treats-open-to-suggestions)
-- [Rescue puppy update](https://news.puppy-snuggles.com/89795757/rescue-puppy-update)
+- [August 2019, was 6 months old❤️🩶❤️](https://news.puppy-snuggles.com/112339843/august-2019-was-6-months-old)
+- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
+- [Daisy!](https://news.puppy-snuggles.com/110088657/daisy)
+- [New doggo I have commanded not to get on the furniture.He has staged a one dog picket line.](https://news.puppy-snuggles.com/110057971/new-doggo-i-have-commanded-not-to-get-on-the-furniturehe-has-staged-a-one-dog-picket-line)
+- [My dog, two years old, died last night.](https://news.puppy-snuggles.com/109612655/my-dog-two-years-old-died-last-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
