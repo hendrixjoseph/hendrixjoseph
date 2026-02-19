@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [August 2019, was 6 months old❤️🩶❤️](https://news.puppy-snuggles.com/112339843/august-2019-was-6-months-old)
-- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
-- [Daisy!](https://news.puppy-snuggles.com/110088657/daisy)
-- [New doggo I have commanded not to get on the furniture.He has staged a one dog picket line.](https://news.puppy-snuggles.com/110057971/new-doggo-i-have-commanded-not-to-get-on-the-furniturehe-has-staged-a-one-dog-picket-line)
-- [My dog, two years old, died last night.](https://news.puppy-snuggles.com/109612655/my-dog-two-years-old-died-last-night)
+- [This is Balto. He decided to move in with us a week ago](https://news.puppy-snuggles.com/111860577/this-is-balto-he-decided-to-move-in-with-us-a-week-ago)
+- [This was Woody.](https://news.puppy-snuggles.com/111860578/this-was-woody)
+- [Cutest smile](https://news.puppy-snuggles.com/110026356/cutest-smile)
+- [I don’t know who else to turn to. I am a disaster. I am not okay.](https://news.puppy-snuggles.com/108652259/i-dont-know-who-else-to-turn-to-i-am-a-disaster-i-am-not-okay)
+- [365 Days of Pepperoni &amp;amp; Her Mama Day 354](https://news.puppy-snuggles.com/108350163/365-days-of-pepperoni-her-mama-day-354)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
