@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Balto. He decided to move in with us a week ago](https://news.puppy-snuggles.com/111860577/this-is-balto-he-decided-to-move-in-with-us-a-week-ago)
-- [This was Woody.](https://news.puppy-snuggles.com/111860578/this-was-woody)
-- [Cutest smile](https://news.puppy-snuggles.com/110026356/cutest-smile)
-- [I don’t know who else to turn to. I am a disaster. I am not okay.](https://news.puppy-snuggles.com/108652259/i-dont-know-who-else-to-turn-to-i-am-a-disaster-i-am-not-okay)
-- [365 Days of Pepperoni &amp;amp; Her Mama Day 354](https://news.puppy-snuggles.com/108350163/365-days-of-pepperoni-her-mama-day-354)
+- [I don’t think I can love anyone more than my dog…she is so pretty](https://news.puppy-snuggles.com/111684152/i-dont-think-i-can-love-anyone-more-than-my-dogshe-is-so-pretty)
+- [Covered in mud but happy](https://news.puppy-snuggles.com/109582713/covered-in-mud-but-happy)
+- [RIP Charlie, the Best Boy](https://news.puppy-snuggles.com/109205862/rip-charlie-the-best-boy)
+- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
+- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
