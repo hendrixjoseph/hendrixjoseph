@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I don’t think I can love anyone more than my dog…she is so pretty](https://news.puppy-snuggles.com/111684152/i-dont-think-i-can-love-anyone-more-than-my-dogshe-is-so-pretty)
-- [Covered in mud but happy](https://news.puppy-snuggles.com/109582713/covered-in-mud-but-happy)
-- [RIP Charlie, the Best Boy](https://news.puppy-snuggles.com/109205862/rip-charlie-the-best-boy)
-- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
-- [Brought Ollie home a week ago. I’m biased, but he really is the goodest boy.](https://news.puppy-snuggles.com/98631841/brought-ollie-home-a-week-ago-im-biased-but-he-really-is-the-goodest-boy)
+- [my baby💙](https://news.puppy-snuggles.com/110685277/my-baby)
+- [I told him to smile or he won’t get a treat.](https://news.puppy-snuggles.com/108280203/i-told-him-to-smile-or-he-wont-get-a-treat)
+- [It’s been 11 years since my boy passed away. Still miss him everyday](https://news.puppy-snuggles.com/97997978/its-been-11-years-since-my-boy-passed-away-still-miss-him-everyday)
+- [“Where we going? Yay! An adventure!”](https://news.puppy-snuggles.com/77294616/where-we-going-yay-an-adventure)
+- [He’s so handsome!](https://news.puppy-snuggles.com/75212769/hes-so-handsome)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
