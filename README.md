@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my baby💙](https://news.puppy-snuggles.com/110685277/my-baby)
-- [I told him to smile or he won’t get a treat.](https://news.puppy-snuggles.com/108280203/i-told-him-to-smile-or-he-wont-get-a-treat)
-- [It’s been 11 years since my boy passed away. Still miss him everyday](https://news.puppy-snuggles.com/97997978/its-been-11-years-since-my-boy-passed-away-still-miss-him-everyday)
-- [“Where we going? Yay! An adventure!”](https://news.puppy-snuggles.com/77294616/where-we-going-yay-an-adventure)
-- [He’s so handsome!](https://news.puppy-snuggles.com/75212769/hes-so-handsome)
+- [Our Girl just turned 18 today!!](https://news.puppy-snuggles.com/109803170/our-girl-just-turned-18-today)
+- [RIP Lucille &amp;quot;Lucy&amp;quot; Ball, 01/20/13-12/19/25, you were the best](https://news.puppy-snuggles.com/108821154/rip-lucille-lucy-ball-012013-121925-you-were-the-best)
+- [Meet my fluffy little buddy💕](https://news.puppy-snuggles.com/106582599/meet-my-fluffy-little-buddy)
+- [In line for this girl today.](https://news.puppy-snuggles.com/106418062/in-line-for-this-girl-today)
+- [How It Started/How It’s Going](https://news.puppy-snuggles.com/105123540/how-it-startedhow-its-going)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
