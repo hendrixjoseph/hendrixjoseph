@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our Girl just turned 18 today!!](https://news.puppy-snuggles.com/109803170/our-girl-just-turned-18-today)
-- [RIP Lucille &amp;quot;Lucy&amp;quot; Ball, 01/20/13-12/19/25, you were the best](https://news.puppy-snuggles.com/108821154/rip-lucille-lucy-ball-012013-121925-you-were-the-best)
-- [Meet my fluffy little buddy💕](https://news.puppy-snuggles.com/106582599/meet-my-fluffy-little-buddy)
-- [In line for this girl today.](https://news.puppy-snuggles.com/106418062/in-line-for-this-girl-today)
-- [How It Started/How It’s Going](https://news.puppy-snuggles.com/105123540/how-it-startedhow-its-going)
+- [Happy Birthday, pup!🥹](https://news.puppy-snuggles.com/108350153/happy-birthday-pup)
+- [What do you think he’s mixed with.](https://news.puppy-snuggles.com/102468239/what-do-you-think-hes-mixed-with)
+- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
+- [My dog is the best dog and I’ll fight ya on that 🥰🥰🥰](https://news.puppy-snuggles.com/83443141/my-dog-is-the-best-dog-and-ill-fight-ya-on-that)
+- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
