@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Birthday, pup!🥹](https://news.puppy-snuggles.com/108350153/happy-birthday-pup)
-- [What do you think he’s mixed with.](https://news.puppy-snuggles.com/102468239/what-do-you-think-hes-mixed-with)
-- [11 years old today. 💕](https://news.puppy-snuggles.com/84194935/11-years-old-today)
-- [My dog is the best dog and I’ll fight ya on that 🥰🥰🥰](https://news.puppy-snuggles.com/83443141/my-dog-is-the-best-dog-and-ill-fight-ya-on-that)
-- [Dog trainer&amp;#039;s neglect case moves to county court](https://news.puppy-snuggles.com/83079241/dog-trainers-neglect-case-moves-to-county-court)
+- [This is Opie.](https://news.puppy-snuggles.com/114637424/this-is-opie)
+- [RIP MJ](https://news.puppy-snuggles.com/114515967/rip-mj)
+- [From 2 months to 5 months! What a difference.](https://news.puppy-snuggles.com/114247297/from-2-months-to-5-months-what-a-difference)
+- [My best boy going strong after almost losing him a few weeks back](https://news.puppy-snuggles.com/113051113/my-best-boy-going-strong-after-almost-losing-him-a-few-weeks-back)
+- [This is what I wake up to every single morning... How am I supposed to be productive after this?](https://news.puppy-snuggles.com/112187732/this-is-what-i-wake-up-to-every-single-morning-how-am-i-supposed-to-be-productive-after-this)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
