@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Opie.](https://news.puppy-snuggles.com/114637424/this-is-opie)
-- [RIP MJ](https://news.puppy-snuggles.com/114515967/rip-mj)
-- [From 2 months to 5 months! What a difference.](https://news.puppy-snuggles.com/114247297/from-2-months-to-5-months-what-a-difference)
-- [My best boy going strong after almost losing him a few weeks back](https://news.puppy-snuggles.com/113051113/my-best-boy-going-strong-after-almost-losing-him-a-few-weeks-back)
-- [This is what I wake up to every single morning... How am I supposed to be productive after this?](https://news.puppy-snuggles.com/112187732/this-is-what-i-wake-up-to-every-single-morning-how-am-i-supposed-to-be-productive-after-this)
+- [“Hi there, do you have a second to TALK ABOUT OUR LORD AND SAVIOR —“](https://news.puppy-snuggles.com/114577034/hi-there-do-you-have-a-second-to-talk-about-our-lord-and-savior)
+- [Comfort “premium business ultra” class](https://news.puppy-snuggles.com/110780863/comfort-premium-business-ultra-class)
+- [My Endearment](https://news.puppy-snuggles.com/109773651/my-endearment)
+- [Sara Morocco wishing you all a wonderful holiday period wherever you may be! With much love from all our rescues](https://news.puppy-snuggles.com/109176024/sara-morocco-wishing-you-all-a-wonderful-holiday-period-wherever-you-may-be-with-much-love-from-all-our-rescues)
+- [I got to see the hospitals service animal again a year after my major surgery!](https://news.puppy-snuggles.com/107461051/i-got-to-see-the-hospitals-service-animal-again-a-year-after-my-major-surgery)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
