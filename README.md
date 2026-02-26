@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [“Hi there, do you have a second to TALK ABOUT OUR LORD AND SAVIOR —“](https://news.puppy-snuggles.com/114577034/hi-there-do-you-have-a-second-to-talk-about-our-lord-and-savior)
-- [Comfort “premium business ultra” class](https://news.puppy-snuggles.com/110780863/comfort-premium-business-ultra-class)
-- [My Endearment](https://news.puppy-snuggles.com/109773651/my-endearment)
-- [Sara Morocco wishing you all a wonderful holiday period wherever you may be! With much love from all our rescues](https://news.puppy-snuggles.com/109176024/sara-morocco-wishing-you-all-a-wonderful-holiday-period-wherever-you-may-be-with-much-love-from-all-our-rescues)
-- [I got to see the hospitals service animal again a year after my major surgery!](https://news.puppy-snuggles.com/107461051/i-got-to-see-the-hospitals-service-animal-again-a-year-after-my-major-surgery)
+- [Chuck is 4 today!](https://news.puppy-snuggles.com/114852217/chuck-is-4-today)
+- [She’s being very brave about having to go out in the rain](https://news.puppy-snuggles.com/114056636/shes-being-very-brave-about-having-to-go-out-in-the-rain)
+- [the face of a sandwich thief](https://news.puppy-snuggles.com/114013879/the-face-of-a-sandwich-thief)
+- [Snow smiles](https://news.puppy-snuggles.com/114013887/snow-smiles)
+- [Sharing my dog with the world. She is simply incredible](https://news.puppy-snuggles.com/113827921/sharing-my-dog-with-the-world-she-is-simply-incredible)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
