@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Chuck is 4 today!](https://news.puppy-snuggles.com/114852217/chuck-is-4-today)
-- [She’s being very brave about having to go out in the rain](https://news.puppy-snuggles.com/114056636/shes-being-very-brave-about-having-to-go-out-in-the-rain)
-- [the face of a sandwich thief](https://news.puppy-snuggles.com/114013879/the-face-of-a-sandwich-thief)
-- [Snow smiles](https://news.puppy-snuggles.com/114013887/snow-smiles)
-- [Sharing my dog with the world. She is simply incredible](https://news.puppy-snuggles.com/113827921/sharing-my-dog-with-the-world-she-is-simply-incredible)
+- [It&amp;#039;s Harley&amp;#039;s 5th birthday today!](https://news.puppy-snuggles.com/115029367/its-harleys-5th-birthday-today)
+- [My boy is 8 today](https://news.puppy-snuggles.com/112906688/my-boy-is-8-today)
+- [My sister’s dog](https://news.puppy-snuggles.com/112571444/my-sisters-dog)
+- [My very good boy bit a vet tech on the cheek today…](https://news.puppy-snuggles.com/112380287/my-very-good-boy-bit-a-vet-tech-on-the-cheek-today)
+- [Who got this dirty and is still grinning like it’s a spa day? 😂🐶](https://news.puppy-snuggles.com/110521043/who-got-this-dirty-and-is-still-grinning-like-its-a-spa-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
