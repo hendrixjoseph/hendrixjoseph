@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Traveling Yo-Yo Salesmen in schools](https://www.reddit.com/r/Millennials/comments/1q9c753/traveling_yoyo_salesmen_in_schools/nyulqdh/)
-- [/u/joehx on What is an English word you have never been able to pronounce?](https://www.reddit.com/r/AskReddit/comments/1pwxvtn/what_is_an_english_word_you_have_never_been_able/nw8413m/)
-- [/u/joehx on When you get home, where do you place your keys?](https://www.reddit.com/r/AskReddit/comments/1pvowhl/when_you_get_home_where_do_you_place_your_keys/nvxqm22/)
-- [/u/joehx on What is a &#39;dirty secret&#39; of your industry that implies the general public has no clue about, but everyone in your field knows?](https://www.reddit.com/r/AskReddit/comments/1pgwxjl/what_is_a_dirty_secret_of_your_industry_that/nsyy7cp/)
-- [/u/joehx on What is a life hack you actually use daily?](https://www.reddit.com/r/AskReddit/comments/1oygnk8/what_is_a_life_hack_you_actually_use_daily/np64iy9/)
+- [/u/joehx on Which YMCA branch in the area is the best?](https://www.reddit.com/r/dayton/comments/1r9gbs8/which_ymca_branch_in_the_area_is_the_best/o6cct0l/)
+- [/u/joehx on What&#39;s a word that your kids mispronounce, or used to mispronounce, that made it into your family vocabulary? For us it is &quot;boo-blerries&quot; for blueberries. Been in rotation for 16 years now.](https://www.reddit.com/r/daddit/comments/1r7horz/whats_a_word_that_your_kids_mispronounce_or_used/o5yhowm/)
+- [/u/joehx on Is there ANY animal that humans never eat?](https://www.reddit.com/r/ask/comments/1r75oix/is_there_any_animal_that_humans_never_eat/o5xr0m7/)
+- [/u/joehx on Men, what’s the worst misconception abt women’s bodies did you believe?](https://www.reddit.com/r/AskMen/comments/1r7eyig/men_whats_the_worst_misconception_abt_womens/o5x0t8t/)
+- [test link &lpar;facebook&rpar;](https://www.reddit.com/r/u_joehx/comments/1r29j1q/test_link_facebook/)
 <!-- REDDIT:END -->
