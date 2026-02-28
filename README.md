@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It&amp;#039;s Harley&amp;#039;s 5th birthday today!](https://news.puppy-snuggles.com/115029367/its-harleys-5th-birthday-today)
-- [My boy is 8 today](https://news.puppy-snuggles.com/112906688/my-boy-is-8-today)
-- [My sister’s dog](https://news.puppy-snuggles.com/112571444/my-sisters-dog)
-- [My very good boy bit a vet tech on the cheek today…](https://news.puppy-snuggles.com/112380287/my-very-good-boy-bit-a-vet-tech-on-the-cheek-today)
-- [Who got this dirty and is still grinning like it’s a spa day? 😂🐶](https://news.puppy-snuggles.com/110521043/who-got-this-dirty-and-is-still-grinning-like-its-a-spa-day)
+- [I do doodles for your dogs for free](https://news.puppy-snuggles.com/115148017/i-do-doodles-for-your-dogs-for-free)
+- [Throw my Ball for me! My yellow lab smiling during play time!](https://news.puppy-snuggles.com/113324107/throw-my-ball-for-me-my-yellow-lab-smiling-during-play-time)
+- [Will miss my terrier](https://news.puppy-snuggles.com/108350157/will-miss-my-terrier)
+- [The most dapper sploot](https://news.puppy-snuggles.com/86337987/the-most-dapper-sploot)
+- [Can’t believe this dude turns 8 today. Feels like I just blinked and he went from zoomies to naps.](https://news.puppy-snuggles.com/85069734/cant-believe-this-dude-turns-8-today-feels-like-i-just-blinked-and-he-went-from-zoomies-to-naps)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
