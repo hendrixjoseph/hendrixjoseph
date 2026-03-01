@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I do doodles for your dogs for free](https://news.puppy-snuggles.com/115148017/i-do-doodles-for-your-dogs-for-free)
-- [Throw my Ball for me! My yellow lab smiling during play time!](https://news.puppy-snuggles.com/113324107/throw-my-ball-for-me-my-yellow-lab-smiling-during-play-time)
-- [Will miss my terrier](https://news.puppy-snuggles.com/108350157/will-miss-my-terrier)
-- [The most dapper sploot](https://news.puppy-snuggles.com/86337987/the-most-dapper-sploot)
-- [Can’t believe this dude turns 8 today. Feels like I just blinked and he went from zoomies to naps.](https://news.puppy-snuggles.com/85069734/cant-believe-this-dude-turns-8-today-feels-like-i-just-blinked-and-he-went-from-zoomies-to-naps)
+- [Old Sugarface girl healing nicely 12 days post op.&lpar;had to remove some cysts&rpar; Blizzard = Snow Cone. She wants to play so badly, but we can’t let her!](https://news.puppy-snuggles.com/114999767/old-sugarface-girl-healing-nicely-12-days-post-ophad-to-remove-some-cysts-blizzard-snow-cone-she-wants-to-play-so-badly-but-we-cant-let-her)
+- [There is something truly special about dogs that give big hugs.](https://news.puppy-snuggles.com/114637417/there-is-something-truly-special-about-dogs-that-give-big-hugs)
+- [It&amp;#039;s her 5th birthday](https://news.puppy-snuggles.com/114095900/its-her-5th-birthday)
+- [Logan-Sleep tight mate](https://news.puppy-snuggles.com/113673415/logan-sleep-tight-mate)
+- [First day without her. It&amp;#039;s far more difficult than anyone could describe or anticipate.](https://news.puppy-snuggles.com/113593370/first-day-without-her-its-far-more-difficult-than-anyone-could-describe-or-anticipate)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
