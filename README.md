@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Old Sugarface girl healing nicely 12 days post op.&lpar;had to remove some cysts&rpar; Blizzard = Snow Cone. She wants to play so badly, but we can’t let her!](https://news.puppy-snuggles.com/114999767/old-sugarface-girl-healing-nicely-12-days-post-ophad-to-remove-some-cysts-blizzard-snow-cone-she-wants-to-play-so-badly-but-we-cant-let-her)
+- [I feel like my dog judges me when I eat a donut.](https://news.puppy-snuggles.com/115088824/i-feel-like-my-dog-judges-me-when-i-eat-a-donut)
 - [There is something truly special about dogs that give big hugs.](https://news.puppy-snuggles.com/114637417/there-is-something-truly-special-about-dogs-that-give-big-hugs)
-- [It&amp;#039;s her 5th birthday](https://news.puppy-snuggles.com/114095900/its-her-5th-birthday)
-- [Logan-Sleep tight mate](https://news.puppy-snuggles.com/113673415/logan-sleep-tight-mate)
-- [First day without her. It&amp;#039;s far more difficult than anyone could describe or anticipate.](https://news.puppy-snuggles.com/113593370/first-day-without-her-its-far-more-difficult-than-anyone-could-describe-or-anticipate)
+- [This sums up the weather in the UK the last few weeks.](https://news.puppy-snuggles.com/114336567/this-sums-up-the-weather-in-the-uk-the-last-few-weeks)
+- [Pics of my dog on vs off leash](https://news.puppy-snuggles.com/113902811/pics-of-my-dog-on-vs-off-leash)
+- [Her last day](https://news.puppy-snuggles.com/113789097/her-last-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
