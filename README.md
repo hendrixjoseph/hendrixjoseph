@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I feel like my dog judges me when I eat a donut.](https://news.puppy-snuggles.com/115088824/i-feel-like-my-dog-judges-me-when-i-eat-a-donut)
-- [There is something truly special about dogs that give big hugs.](https://news.puppy-snuggles.com/114637417/there-is-something-truly-special-about-dogs-that-give-big-hugs)
-- [This sums up the weather in the UK the last few weeks.](https://news.puppy-snuggles.com/114336567/this-sums-up-the-weather-in-the-uk-the-last-few-weeks)
-- [Pics of my dog on vs off leash](https://news.puppy-snuggles.com/113902811/pics-of-my-dog-on-vs-off-leash)
-- [Her last day](https://news.puppy-snuggles.com/113789097/her-last-day)
+- [Baby Toasty](https://news.puppy-snuggles.com/115481920/baby-toasty)
+- [I have no clue how I captured this absolutely adorable picture 🥺](https://news.puppy-snuggles.com/115327133/i-have-no-clue-how-i-captured-this-absolutely-adorable-picture)
+- [Nel turned 3 this month, here are some of my favorite pictures](https://news.puppy-snuggles.com/115178136/nel-turned-3-this-month-here-are-some-of-my-favorite-pictures)
+- [I think my dog judges me](https://news.puppy-snuggles.com/115029369/i-think-my-dog-judges-me)
+- [His groomer got him to do his famous head tilt. 🥰](https://news.puppy-snuggles.com/114728117/his-groomer-got-him-to-do-his-famous-head-tilt)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
