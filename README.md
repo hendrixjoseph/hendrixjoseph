@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Baby Toasty](https://news.puppy-snuggles.com/115481920/baby-toasty)
-- [I have no clue how I captured this absolutely adorable picture 🥺](https://news.puppy-snuggles.com/115327133/i-have-no-clue-how-i-captured-this-absolutely-adorable-picture)
-- [Nel turned 3 this month, here are some of my favorite pictures](https://news.puppy-snuggles.com/115178136/nel-turned-3-this-month-here-are-some-of-my-favorite-pictures)
-- [I think my dog judges me](https://news.puppy-snuggles.com/115029369/i-think-my-dog-judges-me)
-- [His groomer got him to do his famous head tilt. 🥰](https://news.puppy-snuggles.com/114728117/his-groomer-got-him-to-do-his-famous-head-tilt)
+- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
+- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
+- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
+- [He’s magnificent.](https://news.puppy-snuggles.com/81832395/hes-magnificent)
+- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
