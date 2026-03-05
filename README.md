@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
-- [Please Don&amp;#039;t Post the Execution Date of Your Dogs](https://news.puppy-snuggles.com/87225144/please-dont-post-the-execution-date-of-your-dogs)
-- [Loving this pet portrait!](https://news.puppy-snuggles.com/84391049/loving-this-pet-portrait)
-- [He’s magnificent.](https://news.puppy-snuggles.com/81832395/hes-magnificent)
-- [Quick Story/PSA: My rescued pup](https://news.puppy-snuggles.com/77915970/quick-storypsa-my-rescued-pup)
+- [Foster fail after only 12 hours 🤣](https://news.puppy-snuggles.com/115452786/foster-fail-after-only-12-hours)
+- [What a charming little boy](https://news.puppy-snuggles.com/112759296/what-a-charming-little-boy)
+- [Orelha…](https://news.puppy-snuggles.com/112721322/orelha)
+- [my boy remmington, ill miss you](https://news.puppy-snuggles.com/112721318/my-boy-remmington-ill-miss-you)
+- [Our girl, Lemon 💛](https://news.puppy-snuggles.com/111567185/our-girl-lemon)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
