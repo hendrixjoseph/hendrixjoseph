@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Foster fail after only 12 hours 🤣](https://news.puppy-snuggles.com/115452786/foster-fail-after-only-12-hours)
-- [What a charming little boy](https://news.puppy-snuggles.com/112759296/what-a-charming-little-boy)
-- [Orelha…](https://news.puppy-snuggles.com/112721322/orelha)
-- [my boy remmington, ill miss you](https://news.puppy-snuggles.com/112721318/my-boy-remmington-ill-miss-you)
-- [Our girl, Lemon 💛](https://news.puppy-snuggles.com/111567185/our-girl-lemon)
+- [Sweet Dreams Pepperoni ❤️](https://news.puppy-snuggles.com/115772031/sweet-dreams-pepperoni)
+- [Moxie had stressful day](https://news.puppy-snuggles.com/114820683/moxie-had-stressful-day)
+- [I have a 14 year old!](https://news.puppy-snuggles.com/114457649/i-have-a-14-year-old)
+- [Sending for awareness/reference &lpar;seizure&rpar;](https://news.puppy-snuggles.com/114369375/sending-for-awarenessreference-seizure)
+- [My sister’s chihuahua](https://news.puppy-snuggles.com/114175186/my-sisters-chihuahua)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
