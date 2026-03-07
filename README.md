@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sweet Dreams Pepperoni ❤️](https://news.puppy-snuggles.com/115772031/sweet-dreams-pepperoni)
-- [Moxie had stressful day](https://news.puppy-snuggles.com/114820683/moxie-had-stressful-day)
-- [I have a 14 year old!](https://news.puppy-snuggles.com/114457649/i-have-a-14-year-old)
-- [Sending for awareness/reference &lpar;seizure&rpar;](https://news.puppy-snuggles.com/114369375/sending-for-awarenessreference-seizure)
-- [My sister’s chihuahua](https://news.puppy-snuggles.com/114175186/my-sisters-chihuahua)
+- [This is Cookie’s &amp;quot;please give me a snack&amp;quot; face 🍖](https://news.puppy-snuggles.com/115581570/this-is-cookies-please-give-me-a-snack-face)
+- [One of the many FedEx furbabies I encounter on my routes.](https://news.puppy-snuggles.com/115551506/one-of-the-many-fedex-furbabies-i-encounter-on-my-routes)
+- [My little guy won a professional photoshoot for being a scruffy pup. Not sure what he loved more the attention from the cameras or the treats for posing](https://news.puppy-snuggles.com/83542418/my-little-guy-won-a-professional-photoshoot-for-being-a-scruffy-pup-not-sure-what-he-loved-more-the-attention-from-the-cameras-or-the-treats-for-posing)
+- [nothing means more to me than giving shape to the love that never left](https://news.puppy-snuggles.com/82750858/nothing-means-more-to-me-than-giving-shape-to-the-love-that-never-left)
+- [he looks so proud](https://news.puppy-snuggles.com/79650173/he-looks-so-proud)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
