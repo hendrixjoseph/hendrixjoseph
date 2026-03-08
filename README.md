@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Cookie’s &amp;quot;please give me a snack&amp;quot; face 🍖](https://news.puppy-snuggles.com/115581570/this-is-cookies-please-give-me-a-snack-face)
-- [One of the many FedEx furbabies I encounter on my routes.](https://news.puppy-snuggles.com/115551506/one-of-the-many-fedex-furbabies-i-encounter-on-my-routes)
-- [My little guy won a professional photoshoot for being a scruffy pup. Not sure what he loved more the attention from the cameras or the treats for posing](https://news.puppy-snuggles.com/83542418/my-little-guy-won-a-professional-photoshoot-for-being-a-scruffy-pup-not-sure-what-he-loved-more-the-attention-from-the-cameras-or-the-treats-for-posing)
-- [nothing means more to me than giving shape to the love that never left](https://news.puppy-snuggles.com/82750858/nothing-means-more-to-me-than-giving-shape-to-the-love-that-never-left)
-- [he looks so proud](https://news.puppy-snuggles.com/79650173/he-looks-so-proud)
+- [got my first dog](https://news.puppy-snuggles.com/116120302/got-my-first-dog)
+- [My boy got his wings today ♥️](https://news.puppy-snuggles.com/116120294/my-boy-got-his-wings-today)
+- [My sweet 14 year old angel &amp;lt;3](https://news.puppy-snuggles.com/116120299/my-sweet-14-year-old-angel-3)
+- [10 months later](https://news.puppy-snuggles.com/116120298/10-months-later)
+- [I love when I catch him using the pillow like a human](https://news.puppy-snuggles.com/116120303/i-love-when-i-catch-him-using-the-pillow-like-a-human)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
