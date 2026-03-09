@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [got my first dog](https://news.puppy-snuggles.com/116120302/got-my-first-dog)
-- [My boy got his wings today ♥️](https://news.puppy-snuggles.com/116120294/my-boy-got-his-wings-today)
-- [My sweet 14 year old angel &amp;lt;3](https://news.puppy-snuggles.com/116120299/my-sweet-14-year-old-angel-3)
-- [10 months later](https://news.puppy-snuggles.com/116120298/10-months-later)
-- [I love when I catch him using the pillow like a human](https://news.puppy-snuggles.com/116120303/i-love-when-i-catch-him-using-the-pillow-like-a-human)
+- [Santa paws is tolerating Christmas.](https://news.puppy-snuggles.com/108786496/santa-paws-is-tolerating-christmas)
+- [Name him please](https://news.puppy-snuggles.com/105576039/name-him-please)
+- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
+- [Is this aggression or normal?](https://news.puppy-snuggles.com/83344944/is-this-aggression-or-normal)
+- [A old photo from chritsmas 😊 his name is Bruno](https://news.puppy-snuggles.com/83375227/a-old-photo-from-chritsmas-his-name-is-bruno)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
