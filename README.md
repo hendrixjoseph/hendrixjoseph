@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Santa paws is tolerating Christmas.](https://news.puppy-snuggles.com/108786496/santa-paws-is-tolerating-christmas)
-- [Name him please](https://news.puppy-snuggles.com/105576039/name-him-please)
-- [We got ourselves one of them long dogs.](https://news.puppy-snuggles.com/84274207/we-got-ourselves-one-of-them-long-dogs)
-- [Is this aggression or normal?](https://news.puppy-snuggles.com/83344944/is-this-aggression-or-normal)
-- [A old photo from chritsmas 😊 his name is Bruno](https://news.puppy-snuggles.com/83375227/a-old-photo-from-chritsmas-his-name-is-bruno)
+- [Toofers: Bull terrier mix edition!](https://news.puppy-snuggles.com/115866193/toofers-bull-terrier-mix-edition)
+- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
+- [Richard named so because he’s a d**k. Rescued at age 8, now nearly 12. Came with no name and it took about 3 days before we decided on Richard.](https://news.puppy-snuggles.com/82344310/richard-named-so-because-hes-a-dk-rescued-at-age-8-now-nearly-12-came-with-no-name-and-it-took-about-3-days-before-we-decided-on-richard)
+- [She was so mad I was taking pictures](https://news.puppy-snuggles.com/81117708/she-was-so-mad-i-was-taking-pictures)
+- [Hi mum, hope you’re taking a nice peepee like I just did 😀](https://news.puppy-snuggles.com/79874868/hi-mum-hope-youre-taking-a-nice-peepee-like-i-just-did)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
