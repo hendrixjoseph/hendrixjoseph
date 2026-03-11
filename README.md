@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Toofers: Bull terrier mix edition!](https://news.puppy-snuggles.com/115866193/toofers-bull-terrier-mix-edition)
-- [I can’t get over her](https://news.puppy-snuggles.com/91078416/i-cant-get-over-her)
-- [Richard named so because he’s a d**k. Rescued at age 8, now nearly 12. Came with no name and it took about 3 days before we decided on Richard.](https://news.puppy-snuggles.com/82344310/richard-named-so-because-hes-a-dk-rescued-at-age-8-now-nearly-12-came-with-no-name-and-it-took-about-3-days-before-we-decided-on-richard)
-- [She was so mad I was taking pictures](https://news.puppy-snuggles.com/81117708/she-was-so-mad-i-was-taking-pictures)
-- [Hi mum, hope you’re taking a nice peepee like I just did 😀](https://news.puppy-snuggles.com/79874868/hi-mum-hope-youre-taking-a-nice-peepee-like-i-just-did)
+- [Rainbow nose](https://news.puppy-snuggles.com/115481915/rainbow-nose)
+- [Why does my Mini Aussie stomp so much?](https://news.puppy-snuggles.com/114789512/why-does-my-mini-aussie-stomp-so-much)
+- [Your barista is ready for your order ☕️](https://news.puppy-snuggles.com/112299381/your-barista-is-ready-for-your-order)
+- [My best friend Buster.](https://news.puppy-snuggles.com/111928251/my-best-friend-buster)
+- [Painted this sweet lab named Lady Belle](https://news.puppy-snuggles.com/111860584/painted-this-sweet-lab-named-lady-belle)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
