@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rainbow nose](https://news.puppy-snuggles.com/115481915/rainbow-nose)
-- [Why does my Mini Aussie stomp so much?](https://news.puppy-snuggles.com/114789512/why-does-my-mini-aussie-stomp-so-much)
-- [Your barista is ready for your order ☕️](https://news.puppy-snuggles.com/112299381/your-barista-is-ready-for-your-order)
-- [My best friend Buster.](https://news.puppy-snuggles.com/111928251/my-best-friend-buster)
-- [Painted this sweet lab named Lady Belle](https://news.puppy-snuggles.com/111860584/painted-this-sweet-lab-named-lady-belle)
+- [Blind dog can&amp;#039;t walk in the sun anymore / scared of light. any solutions?](https://news.puppy-snuggles.com/116086893/blind-dog-cant-walk-in-the-sun-anymore-scared-of-light-any-solutions)
+- [I think she knows that I have food poisoning](https://news.puppy-snuggles.com/115992401/i-think-she-knows-that-i-have-food-poisoning)
+- [Bye Yoshi, After 12 Great Years](https://news.puppy-snuggles.com/115992397/bye-yoshi-after-12-great-years)
+- [My old Staffordshire Bull Terrier. ❤️](https://news.puppy-snuggles.com/115481922/my-old-staffordshire-bull-terrier)
+- [Feeling a bit icky this morning, and had to delay going to work. Thought I&amp;#039;d share my view.](https://news.puppy-snuggles.com/114971257/feeling-a-bit-icky-this-morning-and-had-to-delay-going-to-work-thought-id-share-my-view)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
