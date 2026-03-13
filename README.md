@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Blind dog can&amp;#039;t walk in the sun anymore / scared of light. any solutions?](https://news.puppy-snuggles.com/116086893/blind-dog-cant-walk-in-the-sun-anymore-scared-of-light-any-solutions)
-- [I think she knows that I have food poisoning](https://news.puppy-snuggles.com/115992401/i-think-she-knows-that-i-have-food-poisoning)
-- [Bye Yoshi, After 12 Great Years](https://news.puppy-snuggles.com/115992397/bye-yoshi-after-12-great-years)
-- [My old Staffordshire Bull Terrier. ❤️](https://news.puppy-snuggles.com/115481922/my-old-staffordshire-bull-terrier)
-- [Feeling a bit icky this morning, and had to delay going to work. Thought I&amp;#039;d share my view.](https://news.puppy-snuggles.com/114971257/feeling-a-bit-icky-this-morning-and-had-to-delay-going-to-work-thought-id-share-my-view)
+- [My dog&amp;#039;s close up snout](https://news.puppy-snuggles.com/116574298/my-dogs-close-up-snout)
+- [She feels famous](https://news.puppy-snuggles.com/113127336/she-feels-famous)
+- [I Got This!](https://news.puppy-snuggles.com/106253974/i-got-this)
+- [My favorite earless animal.😍](https://news.puppy-snuggles.com/97522320/my-favorite-earless-animal)
+- [My beloved Runar](https://news.puppy-snuggles.com/96853880/my-beloved-runar)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
