@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet sailor](https://news.puppy-snuggles.com/116247141/meet-sailor)
-- [My Buddy came home today after crossing the Rainbow Bridge last Thursday](https://news.puppy-snuggles.com/90647690/my-buddy-came-home-today-after-crossing-the-rainbow-bridge-last-thursday)
-- [Birch loves the tall grass. Let&amp;#039;s see your pups favorite outdoor spots!](https://news.puppy-snuggles.com/85552410/birch-loves-the-tall-grass-lets-see-your-pups-favorite-outdoor-spots)
-- [Just adopted this three legged wonder, what breed do you guys think he is?](https://news.puppy-snuggles.com/57689034/just-adopted-this-three-legged-wonder-what-breed-do-you-guys-think-he-is)
-- [Unveiling the Delightful Realm of Milk-Bone Soft and Chewy Dog Treats](https://news.puppy-snuggles.com/40508109/unveiling-the-delightful-realm-of-milk-bone-soft-and-chewy-dog-treats)
+- [Can Churchill get some Happy Birthday Wishes? He&amp;#039;s 2!](https://news.puppy-snuggles.com/116784584/can-churchill-get-some-happy-birthday-wishes-hes-2)
+- [My dog Mozart before and after he broke his leg.](https://news.puppy-snuggles.com/116515524/my-dog-mozart-before-and-after-he-broke-his-leg)
+- [one year ago today](https://news.puppy-snuggles.com/113979868/one-year-ago-today)
+- [I asked her if she wanted to go to the park](https://news.puppy-snuggles.com/105821795/i-asked-her-if-she-wanted-to-go-to-the-park)
+- [What’s your dogs favorite treat?](https://news.puppy-snuggles.com/95684496/whats-your-dogs-favorite-treat)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
