@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Can someone help me with the OT deduction?](https://www.reddit.com/r/personalfinance/comments/1rttf51/can_someone_help_me_with_the_ot_deduction/oagj1a5/)
 - [/u/joehx on What&#39;s a restaurant red flag that tells you the food isn&#39;t going to be good?](https://www.reddit.com/r/AskReddit/comments/1rjw0px/whats_a_restaurant_red_flag_that_tells_you_the/o8hkjo1/)
 - [/u/joehx on Which YMCA branch in the area is the best?](https://www.reddit.com/r/dayton/comments/1r9gbs8/which_ymca_branch_in_the_area_is_the_best/o6cct0l/)
 - [/u/joehx on What&#39;s a word that your kids mispronounce, or used to mispronounce, that made it into your family vocabulary? For us it is &quot;boo-blerries&quot; for blueberries. Been in rotation for 16 years now.](https://www.reddit.com/r/daddit/comments/1r7horz/whats_a_word_that_your_kids_mispronounce_or_used/o5yhowm/)
 - [/u/joehx on Is there ANY animal that humans never eat?](https://www.reddit.com/r/ask/comments/1r75oix/is_there_any_animal_that_humans_never_eat/o5xr0m7/)
-- [/u/joehx on Men, what’s the worst misconception abt women’s bodies did you believe?](https://www.reddit.com/r/AskMen/comments/1r7eyig/men_whats_the_worst_misconception_abt_womens/o5x0t8t/)
 <!-- REDDIT:END -->
