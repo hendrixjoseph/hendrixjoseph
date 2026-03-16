@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Can Churchill get some Happy Birthday Wishes? He&amp;#039;s 2!](https://news.puppy-snuggles.com/116784584/can-churchill-get-some-happy-birthday-wishes-hes-2)
-- [My dog Mozart before and after he broke his leg.](https://news.puppy-snuggles.com/116515524/my-dog-mozart-before-and-after-he-broke-his-leg)
-- [one year ago today](https://news.puppy-snuggles.com/113979868/one-year-ago-today)
-- [I asked her if she wanted to go to the park](https://news.puppy-snuggles.com/105821795/i-asked-her-if-she-wanted-to-go-to-the-park)
-- [What’s your dogs favorite treat?](https://news.puppy-snuggles.com/95684496/whats-your-dogs-favorite-treat)
+- [My dog&amp;#039;s close up snout](https://news.puppy-snuggles.com/116574298/my-dogs-close-up-snout)
+- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
+- [She turned into a dinosaur whilst getting a bath today. Rawr!](https://news.puppy-snuggles.com/95577966/she-turned-into-a-dinosaur-whilst-getting-a-bath-today-rawr)
+- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
+- [Most frequently asked questions to fur parents 😂](https://news.puppy-snuggles.com/88449479/most-frequently-asked-questions-to-fur-parents)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
