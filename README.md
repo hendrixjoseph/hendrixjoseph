@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog&amp;#039;s close up snout](https://news.puppy-snuggles.com/116574298/my-dogs-close-up-snout)
-- [My boy. Got him from a shelter when he was 3 months old. He just turned 2 a month ago.](https://news.puppy-snuggles.com/111003615/my-boy-got-him-from-a-shelter-when-he-was-3-months-old-he-just-turned-2-a-month-ago)
-- [She turned into a dinosaur whilst getting a bath today. Rawr!](https://news.puppy-snuggles.com/95577966/she-turned-into-a-dinosaur-whilst-getting-a-bath-today-rawr)
-- [Lost my boy Bishop after 16 years](https://news.puppy-snuggles.com/90422145/lost-my-boy-bishop-after-16-years)
-- [Most frequently asked questions to fur parents 😂](https://news.puppy-snuggles.com/88449479/most-frequently-asked-questions-to-fur-parents)
+- [UPDATE: She’s okay!](https://news.puppy-snuggles.com/116604330/update-shes-okay)
+- [My 4 legged granddaughter! Meet Everest.](https://news.puppy-snuggles.com/108034620/my-4-legged-granddaughter-meet-everest)
+- [Does anyone know what breed she is?](https://news.puppy-snuggles.com/105861237/does-anyone-know-what-breed-she-is)
+- [Hugged my boy for the last time](https://news.puppy-snuggles.com/101664825/hugged-my-boy-for-the-last-time)
+- [she is my antidepressants](https://news.puppy-snuggles.com/99779234/she-is-my-antidepressants)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
