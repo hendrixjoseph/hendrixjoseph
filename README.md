@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [UPDATE: She’s okay!](https://news.puppy-snuggles.com/116604330/update-shes-okay)
-- [My 4 legged granddaughter! Meet Everest.](https://news.puppy-snuggles.com/108034620/my-4-legged-granddaughter-meet-everest)
-- [Does anyone know what breed she is?](https://news.puppy-snuggles.com/105861237/does-anyone-know-what-breed-she-is)
-- [Hugged my boy for the last time](https://news.puppy-snuggles.com/101664825/hugged-my-boy-for-the-last-time)
-- [she is my antidepressants](https://news.puppy-snuggles.com/99779234/she-is-my-antidepressants)
+- [My baby is 10. She&amp;#039;s literally so intelligent as a lab/blue heeler mix I enjoy her company so much.](https://news.puppy-snuggles.com/116054181/my-baby-is-10-shes-literally-so-intelligent-as-a-labblue-heeler-mix-i-enjoy-her-company-so-much)
+- [My sweet boy Leo passed away at 8](https://news.puppy-snuggles.com/115581571/my-sweet-boy-leo-passed-away-at-8)
+- [Petunia is the smartest puppy in the world and she is an excellent chewer and if you disagree you are a hater](https://news.puppy-snuggles.com/114852218/petunia-is-the-smartest-puppy-in-the-world-and-she-is-an-excellent-chewer-and-if-you-disagree-you-are-a-hater)
+- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
+- [Teddy on his birthday](https://news.puppy-snuggles.com/110187975/teddy-on-his-birthday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
