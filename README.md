@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby is 10. She&amp;#039;s literally so intelligent as a lab/blue heeler mix I enjoy her company so much.](https://news.puppy-snuggles.com/116054181/my-baby-is-10-shes-literally-so-intelligent-as-a-labblue-heeler-mix-i-enjoy-her-company-so-much)
-- [My sweet boy Leo passed away at 8](https://news.puppy-snuggles.com/115581571/my-sweet-boy-leo-passed-away-at-8)
-- [Petunia is the smartest puppy in the world and she is an excellent chewer and if you disagree you are a hater](https://news.puppy-snuggles.com/114852218/petunia-is-the-smartest-puppy-in-the-world-and-she-is-an-excellent-chewer-and-if-you-disagree-you-are-a-hater)
-- [Day 1 VS &lpar;almost&rpar; half a year with us! Getting real comfortable there 😂😂😍😍](https://news.puppy-snuggles.com/112076852/day-1-vs-almost-half-a-year-with-us-getting-real-comfortable-there)
-- [Teddy on his birthday](https://news.puppy-snuggles.com/110187975/teddy-on-his-birthday)
+- [What breed is this dog?](https://news.puppy-snuggles.com/117210787/what-breed-is-this-dog)
+- [13th Birthday 🎉🎊🥳💖](https://news.puppy-snuggles.com/117210777/13th-birthday)
+- [Miel &lpar;Honey&rpar;, the queen of the block.](https://news.puppy-snuggles.com/117210784/miel-honey-the-queen-of-the-block)
+- [This is Luna](https://news.puppy-snuggles.com/117210783/this-is-luna)
+- [Pup cup day 🐾](https://news.puppy-snuggles.com/117210782/pup-cup-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
