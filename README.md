@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What breed is this dog?](https://news.puppy-snuggles.com/117210787/what-breed-is-this-dog)
-- [13th Birthday 🎉🎊🥳💖](https://news.puppy-snuggles.com/117210777/13th-birthday)
-- [Miel &lpar;Honey&rpar;, the queen of the block.](https://news.puppy-snuggles.com/117210784/miel-honey-the-queen-of-the-block)
-- [This is Luna](https://news.puppy-snuggles.com/117210783/this-is-luna)
-- [Pup cup day 🐾](https://news.puppy-snuggles.com/117210782/pup-cup-day)
+- [My baby boy squirrel](https://news.puppy-snuggles.com/117029680/my-baby-boy-squirrel)
+- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
+- [Meet Barry &lpar;again&rpar;! When he was a young&lpar;er&rpar; goofball.](https://news.puppy-snuggles.com/89373813/meet-barry-again-when-he-was-a-younger-goofball)
+- [My little buddy - lost him last night at 15](https://news.puppy-snuggles.com/86147198/my-little-buddy-lost-him-last-night-at-15)
+- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
