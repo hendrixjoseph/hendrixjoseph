@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My baby boy squirrel](https://news.puppy-snuggles.com/117029680/my-baby-boy-squirrel)
-- [Shelter said he was a GSD but I am not too sure. What kind of puppy do I have? He’s 12 weeks old](https://news.puppy-snuggles.com/91175753/shelter-said-he-was-a-gsd-but-i-am-not-too-sure-what-kind-of-puppy-do-i-have-hes-12-weeks-old)
-- [Meet Barry &lpar;again&rpar;! When he was a young&lpar;er&rpar; goofball.](https://news.puppy-snuggles.com/89373813/meet-barry-again-when-he-was-a-younger-goofball)
-- [My little buddy - lost him last night at 15](https://news.puppy-snuggles.com/86147198/my-little-buddy-lost-him-last-night-at-15)
-- [My boy Toby turned two today. I adopted him in June of 2024 and the guy is an angel in a dog suit.](https://news.puppy-snuggles.com/84909758/my-boy-toby-turned-two-today-i-adopted-him-in-june-of-2024-and-the-guy-is-an-angel-in-a-dog-suit)
+- [I hope u like my style](https://news.puppy-snuggles.com/117059828/i-hope-u-like-my-style)
+- [My boy Locky at his favourite place](https://news.puppy-snuggles.com/116908279/my-boy-locky-at-his-favourite-place)
+- [The difference a month of love makes](https://news.puppy-snuggles.com/115357998/the-difference-a-month-of-love-makes)
+- [My boy!](https://news.puppy-snuggles.com/115148019/my-boy)
+- [Birthday Boy Smile 🐾🥳🎂🎈](https://news.puppy-snuggles.com/114758750/birthday-boy-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
