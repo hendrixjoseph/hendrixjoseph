@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I hope u like my style](https://news.puppy-snuggles.com/117059828/i-hope-u-like-my-style)
-- [My boy Locky at his favourite place](https://news.puppy-snuggles.com/116908279/my-boy-locky-at-his-favourite-place)
-- [The difference a month of love makes](https://news.puppy-snuggles.com/115357998/the-difference-a-month-of-love-makes)
-- [My boy!](https://news.puppy-snuggles.com/115148019/my-boy)
-- [Birthday Boy Smile 🐾🥳🎂🎈](https://news.puppy-snuggles.com/114758750/birthday-boy-smile)
+- [His name is Bear, he’s an 8 year old Goldendoodle and my best friend](https://news.puppy-snuggles.com/117511943/his-name-is-bear-hes-an-8-year-old-goldendoodle-and-my-best-friend)
+- [Not sure I did the right thing… I love you, girlie](https://news.puppy-snuggles.com/117511941/not-sure-i-did-the-right-thing-i-love-you-girlie)
+- [Love you forever, Beau❤️ 2013-2026](https://news.puppy-snuggles.com/117511938/love-you-forever-beau-2013-2026)
+- [He says he wasn’t digging. I’m not convinced.](https://news.puppy-snuggles.com/117511944/he-says-he-wasnt-digging-im-not-convinced)
+- [Sent my girl off](https://news.puppy-snuggles.com/117511945/sent-my-girl-off)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
