@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My handsomest son](https://news.puppy-snuggles.com/116817301/my-handsomest-son)
-- [Comfy boy](https://news.puppy-snuggles.com/116086895/comfy-boy)
-- [My dog Passed away on September 15th 2025](https://news.puppy-snuggles.com/108686778/my-dog-passed-away-on-september-15th-2025)
-- [My pretty gurl passed away in my arms last Wednesday 😞 she was such a sweet and loving companion. I miss her so much 🥺 Rest in peace Sophie](https://news.puppy-snuggles.com/85109340/my-pretty-gurl-passed-away-in-my-arms-last-wednesday-she-was-such-a-sweet-and-loving-companion-i-miss-her-so-much-rest-in-peace-sophie)
-- [Adopted a new puppy!🐶](https://news.puppy-snuggles.com/84874197/adopted-a-new-puppy)
+- [what my dog ate in the span of a year and survived but my pocket didn&amp;#039;t](https://news.puppy-snuggles.com/117268160/what-my-dog-ate-in-the-span-of-a-year-and-survived-but-my-pocket-didnt)
+- [My baby gurl](https://news.puppy-snuggles.com/116515522/my-baby-gurl)
+- [What is my dog? Mom is a white malamute, but no one knows the dad. May he be a Wolf? Any ideas?](https://news.puppy-snuggles.com/115237780/what-is-my-dog-mom-is-a-white-malamute-but-no-one-knows-the-dad-may-he-be-a-wolf-any-ideas)
+- [My dog ​​is very playful 🙃](https://news.puppy-snuggles.com/112496448/my-dog-is-very-playful)
+- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
