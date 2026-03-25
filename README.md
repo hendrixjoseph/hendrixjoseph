@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [what my dog ate in the span of a year and survived but my pocket didn&amp;#039;t](https://news.puppy-snuggles.com/117268160/what-my-dog-ate-in-the-span-of-a-year-and-survived-but-my-pocket-didnt)
-- [My baby gurl](https://news.puppy-snuggles.com/116515522/my-baby-gurl)
-- [What is my dog? Mom is a white malamute, but no one knows the dad. May he be a Wolf? Any ideas?](https://news.puppy-snuggles.com/115237780/what-is-my-dog-mom-is-a-white-malamute-but-no-one-knows-the-dad-may-he-be-a-wolf-any-ideas)
-- [My dog ​​is very playful 🙃](https://news.puppy-snuggles.com/112496448/my-dog-is-very-playful)
-- [What do you think he wants me to do?😁](https://news.puppy-snuggles.com/108920177/what-do-you-think-he-wants-me-to-do)
+- [Our little 0ld blind pirate still loves a good boat ride!!](https://news.puppy-snuggles.com/115992400/our-little-0ld-blind-pirate-still-loves-a-good-boat-ride)
+- [I guess he likes chemistry](https://news.puppy-snuggles.com/115481921/i-guess-he-likes-chemistry)
+- [Loki is a Romanian rescue and he will be 9 on Tuesday! 🥳](https://news.puppy-snuggles.com/114175183/loki-is-a-romanian-rescue-and-he-will-be-9-on-tuesday)
+- [My boys first bath!](https://news.puppy-snuggles.com/112259155/my-boys-first-bath)
+- [We adopted a dog today we haven’t named her yet does anyone have ideas](https://news.puppy-snuggles.com/112111357/we-adopted-a-dog-today-we-havent-named-her-yet-does-anyone-have-ideas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
