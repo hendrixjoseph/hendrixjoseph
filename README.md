@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My beautiful late baby 🕊️](https://news.puppy-snuggles.com/117638165/my-beautiful-late-baby)
-- [Old boy is tired](https://news.puppy-snuggles.com/117607577/old-boy-is-tired)
-- [Baby River finally coming home](https://news.puppy-snuggles.com/117478912/baby-river-finally-coming-home)
-- [Name suggestions?! Adopting this beautiful girl.](https://news.puppy-snuggles.com/116515518/name-suggestions-adopting-this-beautiful-girl)
-- [Rainbow girl 🌈](https://news.puppy-snuggles.com/116366680/rainbow-girl)
+- [I feel like my dog judges me when I eat a donut.](https://news.puppy-snuggles.com/115088824/i-feel-like-my-dog-judges-me-when-i-eat-a-donut)
+- [My best boy going strong after almost losing him a few weeks back](https://news.puppy-snuggles.com/113051113/my-best-boy-going-strong-after-almost-losing-him-a-few-weeks-back)
+- [Scent of a dog’s paws](https://news.puppy-snuggles.com/111684147/scent-of-a-dogs-paws)
+- [Smile… it’s Friday! 😃](https://news.puppy-snuggles.com/93070792/smile-its-friday)
+- [My handsome Jude passed away today.](https://news.puppy-snuggles.com/85298185/my-handsome-jude-passed-away-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
