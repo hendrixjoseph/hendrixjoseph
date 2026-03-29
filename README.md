@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I feel like my dog judges me when I eat a donut.](https://news.puppy-snuggles.com/115088824/i-feel-like-my-dog-judges-me-when-i-eat-a-donut)
-- [My best boy going strong after almost losing him a few weeks back](https://news.puppy-snuggles.com/113051113/my-best-boy-going-strong-after-almost-losing-him-a-few-weeks-back)
-- [Scent of a dog’s paws](https://news.puppy-snuggles.com/111684147/scent-of-a-dogs-paws)
-- [Smile… it’s Friday! 😃](https://news.puppy-snuggles.com/93070792/smile-its-friday)
-- [My handsome Jude passed away today.](https://news.puppy-snuggles.com/85298185/my-handsome-jude-passed-away-today)
+- [my pretty boy](https://news.puppy-snuggles.com/118195905/my-pretty-boy)
+- [That big happy smile… I had to turn it into something you can carry around](https://news.puppy-snuggles.com/117901238/that-big-happy-smile-i-had-to-turn-it-into-something-you-can-carry-around)
+- [Scout on a rooftop bar](https://news.puppy-snuggles.com/117901242/scout-on-a-rooftop-bar)
+- [17/03/2026 RIP ROCCO 💙](https://news.puppy-snuggles.com/117574630/17032026-rip-rocco)
+- [My dog turns 8 today!!!](https://news.puppy-snuggles.com/114971254/my-dog-turns-8-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
