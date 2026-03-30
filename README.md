@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [my pretty boy](https://news.puppy-snuggles.com/118195905/my-pretty-boy)
-- [That big happy smile… I had to turn it into something you can carry around](https://news.puppy-snuggles.com/117901238/that-big-happy-smile-i-had-to-turn-it-into-something-you-can-carry-around)
-- [Scout on a rooftop bar](https://news.puppy-snuggles.com/117901242/scout-on-a-rooftop-bar)
-- [17/03/2026 RIP ROCCO 💙](https://news.puppy-snuggles.com/117574630/17032026-rip-rocco)
-- [My dog turns 8 today!!!](https://news.puppy-snuggles.com/114971254/my-dog-turns-8-today)
+- [Rest in peace Rupert 🌈 🐕 I’ll always love you ❤️ 😭 &lpar;2014-2026&rpar;](https://news.puppy-snuggles.com/118346852/rest-in-peace-rupert-ill-always-love-you-2014-2026)
+- [Our beloved Watson has gone to Valhalla](https://news.puppy-snuggles.com/117959052/our-beloved-watson-has-gone-to-valhalla)
+- [Our perfect little gentleman, Wolf](https://news.puppy-snuggles.com/117870242/our-perfect-little-gentleman-wolf)
+- [it’s her day off](https://news.puppy-snuggles.com/115057666/its-her-day-off)
+- [I hope youre enjoying heaven. I’m sorry that I failed you again.](https://news.puppy-snuggles.com/114484696/i-hope-youre-enjoying-heaven-im-sorry-that-i-failed-you-again)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
