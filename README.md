@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rest in peace Rupert 🌈 🐕 I’ll always love you ❤️ 😭 &lpar;2014-2026&rpar;](https://news.puppy-snuggles.com/118346852/rest-in-peace-rupert-ill-always-love-you-2014-2026)
-- [Our beloved Watson has gone to Valhalla](https://news.puppy-snuggles.com/117959052/our-beloved-watson-has-gone-to-valhalla)
-- [Our perfect little gentleman, Wolf](https://news.puppy-snuggles.com/117870242/our-perfect-little-gentleman-wolf)
-- [it’s her day off](https://news.puppy-snuggles.com/115057666/its-her-day-off)
-- [I hope youre enjoying heaven. I’m sorry that I failed you again.](https://news.puppy-snuggles.com/114484696/i-hope-youre-enjoying-heaven-im-sorry-that-i-failed-you-again)
+- [Ten years and still perky :&rpar;.](https://news.puppy-snuggles.com/116968774/ten-years-and-still-perky)
+- [My sweet Lucky boy :&lpar;](https://news.puppy-snuggles.com/116336930/my-sweet-lucky-boy)
+- [Girl has no Dognity](https://news.puppy-snuggles.com/115057662/girl-has-no-dognity)
+- [Mowgli turns 14](https://news.puppy-snuggles.com/113866275/mowgli-turns-14)
+- [Goodbye, both of you](https://news.puppy-snuggles.com/113091355/goodbye-both-of-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
