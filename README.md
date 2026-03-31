@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [A Poké Ball for My Son&#39;s Birthday](https://www.joehxblog.com/a-pokeball-for-my-sons-birthday/)
 - [Goodbye, Arcadia Power](https://www.joehxblog.com/goodbye-arcadia-power/)
 - [Worthy Peer Capital Bonds Are Now Worthless](https://www.joehxblog.com/worthy-peer-capital-bonds-are-now-worthless/)
 - [Chase to Limit Cash Back Options](https://www.joehxblog.com/chase-to-limit-cash-back-options/)
 - [COB LED Lighting for my Son&#39;s Room](https://www.joehxblog.com/cob-led-lighting-for-my-sons-room/)
-- [Visualizing my Electric Energy Options](https://www.joehxblog.com/visualizing-my-electric-energy-options/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
