@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ten years and still perky :&rpar;.](https://news.puppy-snuggles.com/116968774/ten-years-and-still-perky)
-- [My sweet Lucky boy :&lpar;](https://news.puppy-snuggles.com/116336930/my-sweet-lucky-boy)
-- [Girl has no Dognity](https://news.puppy-snuggles.com/115057662/girl-has-no-dognity)
-- [Mowgli turns 14](https://news.puppy-snuggles.com/113866275/mowgli-turns-14)
-- [Goodbye, both of you](https://news.puppy-snuggles.com/113091355/goodbye-both-of-you)
+- [This dog has a face reminiscent of a creepypasta, except it’s not creepy at all. So really this dog just has a pasta face.](https://news.puppy-snuggles.com/117758742/this-dog-has-a-face-reminiscent-of-a-creepypasta-except-its-not-creepy-at-all-so-really-this-dog-just-has-a-pasta-face)
+- [We have to say goodbye to George on Friday.](https://news.puppy-snuggles.com/69139366/we-have-to-say-goodbye-to-george-on-friday)
+- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
+- [i got to spend the day with this crazy girl❤️🌊](https://news.puppy-snuggles.com/59247922/i-got-to-spend-the-day-with-this-crazy-girl)
+- [Cute dog . So lovely .](https://news.puppy-snuggles.com/23823383/cute-dog-so-lovely)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
