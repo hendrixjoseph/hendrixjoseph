@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This dog has a face reminiscent of a creepypasta, except it’s not creepy at all. So really this dog just has a pasta face.](https://news.puppy-snuggles.com/117758742/this-dog-has-a-face-reminiscent-of-a-creepypasta-except-its-not-creepy-at-all-so-really-this-dog-just-has-a-pasta-face)
-- [We have to say goodbye to George on Friday.](https://news.puppy-snuggles.com/69139366/we-have-to-say-goodbye-to-george-on-friday)
-- [My babies are cold!!](https://news.puppy-snuggles.com/63886482/my-babies-are-cold)
-- [i got to spend the day with this crazy girl❤️🌊](https://news.puppy-snuggles.com/59247922/i-got-to-spend-the-day-with-this-crazy-girl)
-- [Cute dog . So lovely .](https://news.puppy-snuggles.com/23823383/cute-dog-so-lovely)
+- [My Old Man 😍](https://news.puppy-snuggles.com/118163500/my-old-man)
+- [My Beanie Baby](https://news.puppy-snuggles.com/118134636/my-beanie-baby)
+- [It&amp;#039;s her 5th birthday](https://news.puppy-snuggles.com/114095900/its-her-5th-birthday)
+- [This is a Philippine Witch Dog. They live independently in the forest, can climb trees, eat cobras, and have extra sharp claws which they regularly shed!](https://news.puppy-snuggles.com/111535248/this-is-a-philippine-witch-dog-they-live-independently-in-the-forest-can-climb-trees-eat-cobras-and-have-extra-sharp-claws-which-they-regularly-shed)
+- [365 Days of Pepperoni &amp;amp; Her Toys. Day 9](https://news.puppy-snuggles.com/111160936/365-days-of-pepperoni-her-toys-day-9)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
