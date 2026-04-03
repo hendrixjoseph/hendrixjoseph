@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Old Man 😍](https://news.puppy-snuggles.com/118163500/my-old-man)
-- [My Beanie Baby](https://news.puppy-snuggles.com/118134636/my-beanie-baby)
-- [It&amp;#039;s her 5th birthday](https://news.puppy-snuggles.com/114095900/its-her-5th-birthday)
-- [This is a Philippine Witch Dog. They live independently in the forest, can climb trees, eat cobras, and have extra sharp claws which they regularly shed!](https://news.puppy-snuggles.com/111535248/this-is-a-philippine-witch-dog-they-live-independently-in-the-forest-can-climb-trees-eat-cobras-and-have-extra-sharp-claws-which-they-regularly-shed)
-- [365 Days of Pepperoni &amp;amp; Her Toys. Day 9](https://news.puppy-snuggles.com/111160936/365-days-of-pepperoni-her-toys-day-9)
+- [Yasu As A Puppy, He’s Now 2](https://news.puppy-snuggles.com/112111358/yasu-as-a-puppy-hes-now-2)
+- [We love you so much Chloe](https://news.puppy-snuggles.com/111998654/we-love-you-so-much-chloe)
+- [Happy 1st birthday, Shelly!](https://news.puppy-snuggles.com/111828582/happy-1st-birthday-shelly)
+- [At home vs. out having fun](https://news.puppy-snuggles.com/111626193/at-home-vs-out-having-fun)
+- [Happy because mom is home 🥰](https://news.puppy-snuggles.com/111386152/happy-because-mom-is-home)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
