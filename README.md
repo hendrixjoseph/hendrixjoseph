@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yasu As A Puppy, He’s Now 2](https://news.puppy-snuggles.com/112111358/yasu-as-a-puppy-hes-now-2)
-- [We love you so much Chloe](https://news.puppy-snuggles.com/111998654/we-love-you-so-much-chloe)
-- [Happy 1st birthday, Shelly!](https://news.puppy-snuggles.com/111828582/happy-1st-birthday-shelly)
-- [At home vs. out having fun](https://news.puppy-snuggles.com/111626193/at-home-vs-out-having-fun)
-- [Happy because mom is home 🥰](https://news.puppy-snuggles.com/111386152/happy-because-mom-is-home)
+- [There are stories of &amp;quot;ordinary&amp;quot; but incredible people that should not be forgotten.](https://news.puppy-snuggles.com/116784587/there-are-stories-of-ordinary-but-incredible-people-that-should-not-be-forgotten)
+- [Found a golden retriever…she was tired this evening, but she began licking my shoe 🥰](https://news.puppy-snuggles.com/114911618/found-a-golden-retrievershe-was-tired-this-evening-but-she-began-licking-my-shoe)
+- [Let&amp;#039;s start this month in the best way! I&amp;#039;m going to draw your dog, share your photo!](https://news.puppy-snuggles.com/113127334/lets-start-this-month-in-the-best-way-im-going-to-draw-your-dog-share-your-photo)
+- [6 years and I still miss her, I still call her name inadvertently, I still wait to hear her tippy-taps on the floor. Goldy truly was the most intelligent dog I&amp;#039;ve had.](https://news.puppy-snuggles.com/79097805/6-years-and-i-still-miss-her-i-still-call-her-name-inadvertently-i-still-wait-to-hear-her-tippy-taps-on-the-floor-goldy-truly-was-the-most-intelligent-dog-ive-had)
+- [I need everyone to see this 2.5lb pup my step brother got it&amp;#039;s so small and so soft!](https://news.puppy-snuggles.com/70262143/i-need-everyone-to-see-this-25lb-pup-my-step-brother-got-its-so-small-and-so-soft)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
