@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [There are stories of &amp;quot;ordinary&amp;quot; but incredible people that should not be forgotten.](https://news.puppy-snuggles.com/116784587/there-are-stories-of-ordinary-but-incredible-people-that-should-not-be-forgotten)
-- [Found a golden retriever…she was tired this evening, but she began licking my shoe 🥰](https://news.puppy-snuggles.com/114911618/found-a-golden-retrievershe-was-tired-this-evening-but-she-began-licking-my-shoe)
-- [Let&amp;#039;s start this month in the best way! I&amp;#039;m going to draw your dog, share your photo!](https://news.puppy-snuggles.com/113127334/lets-start-this-month-in-the-best-way-im-going-to-draw-your-dog-share-your-photo)
-- [6 years and I still miss her, I still call her name inadvertently, I still wait to hear her tippy-taps on the floor. Goldy truly was the most intelligent dog I&amp;#039;ve had.](https://news.puppy-snuggles.com/79097805/6-years-and-i-still-miss-her-i-still-call-her-name-inadvertently-i-still-wait-to-hear-her-tippy-taps-on-the-floor-goldy-truly-was-the-most-intelligent-dog-ive-had)
-- [I need everyone to see this 2.5lb pup my step brother got it&amp;#039;s so small and so soft!](https://news.puppy-snuggles.com/70262143/i-need-everyone-to-see-this-25lb-pup-my-step-brother-got-its-so-small-and-so-soft)
+- [Ten years of love and joy. You gave us so much. Run free Harvey, the best boy.](https://news.puppy-snuggles.com/116664158/ten-years-of-love-and-joy-you-gave-us-so-much-run-free-harvey-the-best-boy)
+- [Did some say it’s the weekend? Our rescue pups here at Sara Morocco are all smiles!](https://news.puppy-snuggles.com/97097354/did-some-say-its-the-weekend-our-rescue-pups-here-at-sara-morocco-are-all-smiles)
+- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
+- [Our puppy looking out the window waiting for my wife to get home.](https://news.puppy-snuggles.com/79348570/our-puppy-looking-out-the-window-waiting-for-my-wife-to-get-home)
+- [Mom, son guilty on all counts in fatal dog mauling attack that killed 73-year-old woman](https://news.puppy-snuggles.com/75095009/mom-son-guilty-on-all-counts-in-fatal-dog-mauling-attack-that-killed-73-year-old-woman)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
