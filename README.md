@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ten years of love and joy. You gave us so much. Run free Harvey, the best boy.](https://news.puppy-snuggles.com/116664158/ten-years-of-love-and-joy-you-gave-us-so-much-run-free-harvey-the-best-boy)
-- [Did some say it’s the weekend? Our rescue pups here at Sara Morocco are all smiles!](https://news.puppy-snuggles.com/97097354/did-some-say-its-the-weekend-our-rescue-pups-here-at-sara-morocco-are-all-smiles)
-- [Goodbye my friend](https://news.puppy-snuggles.com/85684294/goodbye-my-friend)
-- [Our puppy looking out the window waiting for my wife to get home.](https://news.puppy-snuggles.com/79348570/our-puppy-looking-out-the-window-waiting-for-my-wife-to-get-home)
-- [Mom, son guilty on all counts in fatal dog mauling attack that killed 73-year-old woman](https://news.puppy-snuggles.com/75095009/mom-son-guilty-on-all-counts-in-fatal-dog-mauling-attack-that-killed-73-year-old-woman)
+- [My forever baby boy ❤️](https://news.puppy-snuggles.com/118854726/my-forever-baby-boy)
+- [Chicago was basking in a pastel sunset this evening so we got some photos :&rpar;](https://news.puppy-snuggles.com/117239618/chicago-was-basking-in-a-pastel-sunset-this-evening-so-we-got-some-photos)
+- [My girl](https://news.puppy-snuggles.com/116486428/my-girl)
+- [Our newest addition. We are now a FOUR dog family](https://news.puppy-snuggles.com/113866283/our-newest-addition-we-are-now-a-four-dog-family)
+- [My dog Passed away on September 15th 2025](https://news.puppy-snuggles.com/108686778/my-dog-passed-away-on-september-15th-2025)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
