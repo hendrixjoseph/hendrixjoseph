@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My forever baby boy ❤️](https://news.puppy-snuggles.com/118854726/my-forever-baby-boy)
-- [Chicago was basking in a pastel sunset this evening so we got some photos :&rpar;](https://news.puppy-snuggles.com/117239618/chicago-was-basking-in-a-pastel-sunset-this-evening-so-we-got-some-photos)
-- [My girl](https://news.puppy-snuggles.com/116486428/my-girl)
-- [Our newest addition. We are now a FOUR dog family](https://news.puppy-snuggles.com/113866283/our-newest-addition-we-are-now-a-four-dog-family)
-- [My dog Passed away on September 15th 2025](https://news.puppy-snuggles.com/108686778/my-dog-passed-away-on-september-15th-2025)
+- [A collection of Harry carrying things](https://news.puppy-snuggles.com/119287074/a-collection-of-harry-carrying-things)
+- [My buddy Dobby crossed the rainbow bridge this morning](https://news.puppy-snuggles.com/99418146/my-buddy-dobby-crossed-the-rainbow-bridge-this-morning)
+- [Posting here in memory of my sweet boy who passed away from cancer on Friday. I’ll miss him forever.](https://news.puppy-snuggles.com/85032704/posting-here-in-memory-of-my-sweet-boy-who-passed-away-from-cancer-on-friday-ill-miss-him-forever)
+- [You never really stop missing them](https://news.puppy-snuggles.com/84314048/you-never-really-stop-missing-them)
+- [Aya Sophia has a crush on Odin, while Spirit watches them doin goofy Zoomies, after a surprising kiss 😭😊](https://news.puppy-snuggles.com/83476944/aya-sophia-has-a-crush-on-odin-while-spirit-watches-them-doin-goofy-zoomies-after-a-surprising-kiss)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
