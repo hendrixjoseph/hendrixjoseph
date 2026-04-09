@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sending for awareness/reference &lpar;seizure&rpar;](https://news.puppy-snuggles.com/114369375/sending-for-awarenessreference-seizure)
-- [The best boy 🥰](https://news.puppy-snuggles.com/113747360/the-best-boy)
-- [This 2 month old cutie](https://news.puppy-snuggles.com/108821162/this-2-month-old-cutie)
-- [any guesses what breed mixed with?](https://news.puppy-snuggles.com/103803844/any-guesses-what-breed-mixed-with)
-- [What do you think he’s mixed with.](https://news.puppy-snuggles.com/102468239/what-do-you-think-hes-mixed-with)
+- [Birthday Boy Smile 🐾🥳🎂🎈](https://news.puppy-snuggles.com/114758750/birthday-boy-smile)
+- [Grape is getting a dental in a week, wish her luck!](https://news.puppy-snuggles.com/84684968/grape-is-getting-a-dental-in-a-week-wish-her-luck)
+- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
+- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
+- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
