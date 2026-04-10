@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Birthday Boy Smile 🐾🥳🎂🎈](https://news.puppy-snuggles.com/114758750/birthday-boy-smile)
-- [Grape is getting a dental in a week, wish her luck!](https://news.puppy-snuggles.com/84684968/grape-is-getting-a-dental-in-a-week-wish-her-luck)
-- [It’s my girl’s 3rd birthday/2nd adoption anniversary today 🥰](https://news.puppy-snuggles.com/84007872/its-my-girls-3rd-birthday2nd-adoption-anniversary-today)
-- [Today, after 14 years, I had to say goodbye to my sweet girl, Roxii.](https://news.puppy-snuggles.com/83971589/today-after-14-years-i-had-to-say-goodbye-to-my-sweet-girl-roxii)
-- [Sweetest doggo!💕](https://news.puppy-snuggles.com/83817994/sweetest-doggo)
+- [Princess Evie loves sitting like a hooman](https://news.puppy-snuggles.com/111626188/princess-evie-loves-sitting-like-a-hooman)
+- [Amos 14 weeks and big sis tsuki](https://news.puppy-snuggles.com/110554258/amos-14-weeks-and-big-sis-tsuki)
+- [My dog Toby](https://news.puppy-snuggles.com/110157072/my-dog-toby)
+- [Enjoying a nice fall Sunday hike](https://news.puppy-snuggles.com/102828856/enjoying-a-nice-fall-sunday-hike)
+- [No Fireworks Gang](https://news.puppy-snuggles.com/89761320/no-fireworks-gang)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
