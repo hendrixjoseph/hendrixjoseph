@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Princess Evie loves sitting like a hooman](https://news.puppy-snuggles.com/111626188/princess-evie-loves-sitting-like-a-hooman)
-- [Amos 14 weeks and big sis tsuki](https://news.puppy-snuggles.com/110554258/amos-14-weeks-and-big-sis-tsuki)
-- [My dog Toby](https://news.puppy-snuggles.com/110157072/my-dog-toby)
-- [Enjoying a nice fall Sunday hike](https://news.puppy-snuggles.com/102828856/enjoying-a-nice-fall-sunday-hike)
-- [No Fireworks Gang](https://news.puppy-snuggles.com/89761320/no-fireworks-gang)
+- [My son, Hans.](https://news.puppy-snuggles.com/119193991/my-son-hans)
+- [Elvis turned 8 yesterday](https://news.puppy-snuggles.com/118375622/elvis-turned-8-yesterday)
+- [I hope u like my style](https://news.puppy-snuggles.com/117059828/i-hope-u-like-my-style)
+- [My boy Eddie. Please share stories/photos of your recent &lpar;or not so recent&rpar; lost ones - it will be helpful for me to know he won&amp;#039;t be alone and what kind of friends he will make in the afterwards.](https://news.puppy-snuggles.com/115677413/my-boy-eddie-please-share-storiesphotos-of-your-recent-or-not-so-recent-lost-ones-it-will-be-helpful-for-me-to-know-he-wont-be-alone-and-what-kind-of-friends-he-will-make-in-the-afterwards)
+- [Just adopted this pup!](https://news.puppy-snuggles.com/113747364/just-adopted-this-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
