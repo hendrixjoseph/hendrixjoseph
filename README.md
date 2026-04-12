@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My son, Hans.](https://news.puppy-snuggles.com/119193991/my-son-hans)
-- [Elvis turned 8 yesterday](https://news.puppy-snuggles.com/118375622/elvis-turned-8-yesterday)
-- [I hope u like my style](https://news.puppy-snuggles.com/117059828/i-hope-u-like-my-style)
-- [My boy Eddie. Please share stories/photos of your recent &lpar;or not so recent&rpar; lost ones - it will be helpful for me to know he won&amp;#039;t be alone and what kind of friends he will make in the afterwards.](https://news.puppy-snuggles.com/115677413/my-boy-eddie-please-share-storiesphotos-of-your-recent-or-not-so-recent-lost-ones-it-will-be-helpful-for-me-to-know-he-wont-be-alone-and-what-kind-of-friends-he-will-make-in-the-afterwards)
-- [Just adopted this pup!](https://news.puppy-snuggles.com/113747364/just-adopted-this-pup)
+- [RIP sweet tobi](https://news.puppy-snuggles.com/114545511/rip-sweet-tobi)
+- [Say hi to ruby](https://news.puppy-snuggles.com/112533710/say-hi-to-ruby)
+- [Is my dog cute or is my brother a jerk?](https://news.puppy-snuggles.com/106317862/is-my-dog-cute-or-is-my-brother-a-jerk)
+- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
+- [1 year with our sweet boy](https://news.puppy-snuggles.com/84118651/1-year-with-our-sweet-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
