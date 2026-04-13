@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP sweet tobi](https://news.puppy-snuggles.com/114545511/rip-sweet-tobi)
-- [Say hi to ruby](https://news.puppy-snuggles.com/112533710/say-hi-to-ruby)
-- [Is my dog cute or is my brother a jerk?](https://news.puppy-snuggles.com/106317862/is-my-dog-cute-or-is-my-brother-a-jerk)
-- [I just gave these two stray dogs a couple of biscuits in the morning while I&amp;#039;m going to work . Now the found my home 😅](https://news.puppy-snuggles.com/89404476/i-just-gave-these-two-stray-dogs-a-couple-of-biscuits-in-the-morning-while-im-going-to-work-now-the-found-my-home)
-- [1 year with our sweet boy](https://news.puppy-snuggles.com/84118651/1-year-with-our-sweet-boy)
+- [[OC] This good boi at a No Kings rally today 🐶](https://news.puppy-snuggles.com/118225746/oc-this-good-boi-at-a-no-kings-rally-today)
+- [My baby💗](https://news.puppy-snuggles.com/117987192/my-baby)
+- [Dressed to the K9s](https://news.puppy-snuggles.com/110157069/dressed-to-the-k9s)
+- [Does your dog ask you for uppies?](https://news.puppy-snuggles.com/90422152/does-your-dog-ask-you-for-uppies)
+- [I love seeing them together](https://news.puppy-snuggles.com/83851267/i-love-seeing-them-together)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
