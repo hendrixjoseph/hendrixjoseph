@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [[OC] This good boi at a No Kings rally today 🐶](https://news.puppy-snuggles.com/118225746/oc-this-good-boi-at-a-no-kings-rally-today)
-- [My baby💗](https://news.puppy-snuggles.com/117987192/my-baby)
-- [Dressed to the K9s](https://news.puppy-snuggles.com/110157069/dressed-to-the-k9s)
-- [Does your dog ask you for uppies?](https://news.puppy-snuggles.com/90422152/does-your-dog-ask-you-for-uppies)
-- [I love seeing them together](https://news.puppy-snuggles.com/83851267/i-love-seeing-them-together)
+- [Rosa after yard time](https://news.puppy-snuggles.com/119531066/rosa-after-yard-time)
+- [Excitement after being picked up from daycare](https://news.puppy-snuggles.com/105753694/excitement-after-being-picked-up-from-daycare)
+- [Meet my two annoying Anti depressants &lpar;Gizmo and Ollie&rpar;](https://news.puppy-snuggles.com/98350926/meet-my-two-annoying-anti-depressants-gizmo-and-ollie)
+- [Rusty was my buddy through my youth.](https://news.puppy-snuggles.com/83577202/rusty-was-my-buddy-through-my-youth)
+- [What breed is my dog?](https://news.puppy-snuggles.com/72981007/what-breed-is-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
