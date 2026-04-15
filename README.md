@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Rosa after yard time](https://news.puppy-snuggles.com/119531066/rosa-after-yard-time)
-- [Excitement after being picked up from daycare](https://news.puppy-snuggles.com/105753694/excitement-after-being-picked-up-from-daycare)
-- [Meet my two annoying Anti depressants &lpar;Gizmo and Ollie&rpar;](https://news.puppy-snuggles.com/98350926/meet-my-two-annoying-anti-depressants-gizmo-and-ollie)
-- [Rusty was my buddy through my youth.](https://news.puppy-snuggles.com/83577202/rusty-was-my-buddy-through-my-youth)
-- [What breed is my dog?](https://news.puppy-snuggles.com/72981007/what-breed-is-my-dog)
+- [12 YO Parson Russell before &amp;amp; after waking up](https://news.puppy-snuggles.com/114215097/12-yo-parson-russell-before-after-waking-up)
+- [Logan-Sleep tight mate](https://news.puppy-snuggles.com/113673415/logan-sleep-tight-mate)
+- [I couldn’t wait to share this little guy, that quiet, gentle look just stayed with me](https://news.puppy-snuggles.com/111323125/i-couldnt-wait-to-share-this-little-guy-that-quiet-gentle-look-just-stayed-with-me)
+- [Celebrating 9-Month Post Diagnosis](https://news.puppy-snuggles.com/108140478/celebrating-9-month-post-diagnosis)
+- [He only smiles like this when he’s walking around the seashore](https://news.puppy-snuggles.com/95954852/he-only-smiles-like-this-when-hes-walking-around-the-seashore)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
