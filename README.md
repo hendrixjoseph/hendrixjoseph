@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [12 YO Parson Russell before &amp;amp; after waking up](https://news.puppy-snuggles.com/114215097/12-yo-parson-russell-before-after-waking-up)
-- [Logan-Sleep tight mate](https://news.puppy-snuggles.com/113673415/logan-sleep-tight-mate)
-- [I couldn’t wait to share this little guy, that quiet, gentle look just stayed with me](https://news.puppy-snuggles.com/111323125/i-couldnt-wait-to-share-this-little-guy-that-quiet-gentle-look-just-stayed-with-me)
-- [Celebrating 9-Month Post Diagnosis](https://news.puppy-snuggles.com/108140478/celebrating-9-month-post-diagnosis)
-- [He only smiles like this when he’s walking around the seashore](https://news.puppy-snuggles.com/95954852/he-only-smiles-like-this-when-hes-walking-around-the-seashore)
+- [He was supposed to protect the home 😂😂 , in love with Egyptian dogs ☺️](https://news.puppy-snuggles.com/119857706/he-was-supposed-to-protect-the-home-in-love-with-egyptian-dogs)
+- [Shy smile](https://news.puppy-snuggles.com/118614811/shy-smile)
+- [Relaxing on the porch](https://news.puppy-snuggles.com/117388155/relaxing-on-the-porch)
+- [He&amp;#039;s claimed this box and no one is allowed to move it](https://news.puppy-snuggles.com/116724771/hes-claimed-this-box-and-no-one-is-allowed-to-move-it)
+- [My sweet Falkor in the wind](https://news.puppy-snuggles.com/116664137/my-sweet-falkor-in-the-wind)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
