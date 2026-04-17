@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He was supposed to protect the home 😂😂 , in love with Egyptian dogs ☺️](https://news.puppy-snuggles.com/119857706/he-was-supposed-to-protect-the-home-in-love-with-egyptian-dogs)
-- [Shy smile](https://news.puppy-snuggles.com/118614811/shy-smile)
-- [Relaxing on the porch](https://news.puppy-snuggles.com/117388155/relaxing-on-the-porch)
-- [He&amp;#039;s claimed this box and no one is allowed to move it](https://news.puppy-snuggles.com/116724771/hes-claimed-this-box-and-no-one-is-allowed-to-move-it)
-- [My sweet Falkor in the wind](https://news.puppy-snuggles.com/116664137/my-sweet-falkor-in-the-wind)
+- [Found a cute bunny in the garden](https://news.puppy-snuggles.com/119256104/found-a-cute-bunny-in-the-garden)
+- [Meet Henry. 12 week old Chorkie](https://news.puppy-snuggles.com/116724767/meet-henry-12-week-old-chorkie)
+- [ANYONE ELSE WANNA MAKE FUN OF MY DOG](https://news.puppy-snuggles.com/112455865/anyone-else-wanna-make-fun-of-my-dog)
+- [You will be always in my heart. RIP 😥](https://news.puppy-snuggles.com/111191695/you-will-be-always-in-my-heart-rip)
+- [I think he wants me to open the bag](https://news.puppy-snuggles.com/110088652/i-think-he-wants-me-to-open-the-bag)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
