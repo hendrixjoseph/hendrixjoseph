@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Found a cute bunny in the garden](https://news.puppy-snuggles.com/119256104/found-a-cute-bunny-in-the-garden)
-- [Meet Henry. 12 week old Chorkie](https://news.puppy-snuggles.com/116724767/meet-henry-12-week-old-chorkie)
-- [ANYONE ELSE WANNA MAKE FUN OF MY DOG](https://news.puppy-snuggles.com/112455865/anyone-else-wanna-make-fun-of-my-dog)
-- [You will be always in my heart. RIP 😥](https://news.puppy-snuggles.com/111191695/you-will-be-always-in-my-heart-rip)
-- [I think he wants me to open the bag](https://news.puppy-snuggles.com/110088652/i-think-he-wants-me-to-open-the-bag)
+- [happy girl at the park! &lpar;swipe for better pic of her shoes&rpar;](https://news.puppy-snuggles.com/120574635/happy-girl-at-the-park-swipe-for-better-pic-of-her-shoes)
+- [Atlas just turned 1 years old](https://news.puppy-snuggles.com/117901244/atlas-just-turned-1-years-old)
+- [Rest in peace beautiful boy](https://news.puppy-snuggles.com/116486422/rest-in-peace-beautiful-boy)
+- [downward doggo](https://news.puppy-snuggles.com/114484703/downward-doggo)
+- [Help, my dog won&amp;#039;t eat anything](https://news.puppy-snuggles.com/114336571/help-my-dog-wont-eat-anything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
