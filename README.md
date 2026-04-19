@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [happy girl at the park! &lpar;swipe for better pic of her shoes&rpar;](https://news.puppy-snuggles.com/120574635/happy-girl-at-the-park-swipe-for-better-pic-of-her-shoes)
-- [Atlas just turned 1 years old](https://news.puppy-snuggles.com/117901244/atlas-just-turned-1-years-old)
-- [Rest in peace beautiful boy](https://news.puppy-snuggles.com/116486422/rest-in-peace-beautiful-boy)
-- [downward doggo](https://news.puppy-snuggles.com/114484703/downward-doggo)
-- [Help, my dog won&amp;#039;t eat anything](https://news.puppy-snuggles.com/114336571/help-my-dog-wont-eat-anything)
+- [She&amp;#039;s turning four in a couple of months.](https://news.puppy-snuggles.com/120249485/shes-turning-four-in-a-couple-of-months)
+- [Any guesses on this dogs breed?](https://news.puppy-snuggles.com/119039280/any-guesses-on-this-dogs-breed)
+- [Excavator For Hire](https://news.puppy-snuggles.com/118586924/excavator-for-hire)
+- [The bestest bestie &lpar;and goodest&rpar;](https://news.puppy-snuggles.com/113979861/the-bestest-bestie-and-goodest)
+- [Werewolf smiles!](https://news.puppy-snuggles.com/109868342/werewolf-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
