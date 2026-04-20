@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She&amp;#039;s turning four in a couple of months.](https://news.puppy-snuggles.com/120249485/shes-turning-four-in-a-couple-of-months)
-- [Any guesses on this dogs breed?](https://news.puppy-snuggles.com/119039280/any-guesses-on-this-dogs-breed)
-- [Excavator For Hire](https://news.puppy-snuggles.com/118586924/excavator-for-hire)
-- [The bestest bestie &lpar;and goodest&rpar;](https://news.puppy-snuggles.com/113979861/the-bestest-bestie-and-goodest)
-- [Werewolf smiles!](https://news.puppy-snuggles.com/109868342/werewolf-smiles)
+- [Lily Before and After Rescue](https://news.puppy-snuggles.com/114056633/lily-before-and-after-rescue)
+- [16 Years of Unconditional Love. I’ll miss you Marley &amp;lt;3](https://news.puppy-snuggles.com/81483600/16-years-of-unconditional-love-ill-miss-you-marley-3)
+- [Horace the Gentle Giant](https://news.puppy-snuggles.com/77111247/horace-the-gentle-giant)
+- [Kevin after his first time at the groomers. Looking all happy in his bandana.](https://news.puppy-snuggles.com/76327878/kevin-after-his-first-time-at-the-groomers-looking-all-happy-in-his-bandana)
+- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
