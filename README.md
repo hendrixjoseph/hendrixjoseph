@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lily Before and After Rescue](https://news.puppy-snuggles.com/114056633/lily-before-and-after-rescue)
-- [16 Years of Unconditional Love. I’ll miss you Marley &amp;lt;3](https://news.puppy-snuggles.com/81483600/16-years-of-unconditional-love-ill-miss-you-marley-3)
-- [Horace the Gentle Giant](https://news.puppy-snuggles.com/77111247/horace-the-gentle-giant)
-- [Kevin after his first time at the groomers. Looking all happy in his bandana.](https://news.puppy-snuggles.com/76327878/kevin-after-his-first-time-at-the-groomers-looking-all-happy-in-his-bandana)
-- [Not everyone may like hairless dogs, but mine is my obsession.](https://news.puppy-snuggles.com/57710188/not-everyone-may-like-hairless-dogs-but-mine-is-my-obsession)
+- [Please... send light to Kira](https://news.puppy-snuggles.com/120514813/please-send-light-to-kira)
+- [Show me Your Best Pup Pics!!](https://news.puppy-snuggles.com/117697083/show-me-your-best-pup-pics)
+- [Petunia can become invisible at will. Apologies for the picture of random twigs and snow. There is actually a puppy in there.](https://news.puppy-snuggles.com/117090951/petunia-can-become-invisible-at-will-apologies-for-the-picture-of-random-twigs-and-snow-there-is-actually-a-puppy-in-there)
+- [Dog smiles! Just wanna share my happily little girl 💛🌞](https://news.puppy-snuggles.com/113941717/dog-smiles-just-wanna-share-my-happily-little-girl)
+- [I miss her so much!](https://news.puppy-snuggles.com/113051111/i-miss-her-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
