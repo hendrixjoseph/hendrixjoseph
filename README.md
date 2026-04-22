@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Please... send light to Kira](https://news.puppy-snuggles.com/120514813/please-send-light-to-kira)
-- [Show me Your Best Pup Pics!!](https://news.puppy-snuggles.com/117697083/show-me-your-best-pup-pics)
-- [Petunia can become invisible at will. Apologies for the picture of random twigs and snow. There is actually a puppy in there.](https://news.puppy-snuggles.com/117090951/petunia-can-become-invisible-at-will-apologies-for-the-picture-of-random-twigs-and-snow-there-is-actually-a-puppy-in-there)
-- [Dog smiles! Just wanna share my happily little girl 💛🌞](https://news.puppy-snuggles.com/113941717/dog-smiles-just-wanna-share-my-happily-little-girl)
-- [I miss her so much!](https://news.puppy-snuggles.com/113051111/i-miss-her-so-much)
+- [Before and after you tell him he has adorable grinch feet](https://news.puppy-snuggles.com/120574627/before-and-after-you-tell-him-he-has-adorable-grinch-feet)
+- [Photodump of my dog 🥳](https://news.puppy-snuggles.com/120482608/photodump-of-my-dog)
+- [Rumi is here for her weekly boops!](https://news.puppy-snuggles.com/119256106/rumi-is-here-for-her-weekly-boops)
+- [My nan gifted Luna to me a few weeks before she passed suddenly:&lpar; now I’ve lost my dear baby Luna 23/3 :&lpar; 🕊️](https://news.puppy-snuggles.com/117870235/my-nan-gifted-luna-to-me-a-few-weeks-before-she-passed-suddenly-now-ive-lost-my-dear-baby-luna-233)
+- [Pepe is such a photogenic boy.](https://news.puppy-snuggles.com/116604333/pepe-is-such-a-photogenic-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
