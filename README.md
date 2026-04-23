@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Before and after you tell him he has adorable grinch feet](https://news.puppy-snuggles.com/120574627/before-and-after-you-tell-him-he-has-adorable-grinch-feet)
-- [Photodump of my dog 🥳](https://news.puppy-snuggles.com/120482608/photodump-of-my-dog)
-- [Rumi is here for her weekly boops!](https://news.puppy-snuggles.com/119256106/rumi-is-here-for-her-weekly-boops)
-- [My nan gifted Luna to me a few weeks before she passed suddenly:&lpar; now I’ve lost my dear baby Luna 23/3 :&lpar; 🕊️](https://news.puppy-snuggles.com/117870235/my-nan-gifted-luna-to-me-a-few-weeks-before-she-passed-suddenly-now-ive-lost-my-dear-baby-luna-233)
-- [Pepe is such a photogenic boy.](https://news.puppy-snuggles.com/116604333/pepe-is-such-a-photogenic-boy)
+- [Happy Birthday, Rooh!](https://news.puppy-snuggles.com/119008647/happy-birthday-rooh)
+- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
+- [My foster dog starting to come out of his shell and he gave me a little smile](https://news.puppy-snuggles.com/115866190/my-foster-dog-starting-to-come-out-of-his-shell-and-he-gave-me-a-little-smile)
+- [My best friend](https://news.puppy-snuggles.com/114515965/my-best-friend)
+- [Daisy, She was special ❤️](https://news.puppy-snuggles.com/113362304/daisy-she-was-special)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
