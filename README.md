@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Dayton Children&#39;s receives $40M gift, will rename main campus after donor](https://www.reddit.com/r/dayton/comments/1srrhky/dayton_childrens_receives_40m_gift_will_rename/ohiexrm/)
 - [/u/joehx on meirl](https://www.reddit.com/r/meirl/comments/1sdd6sf/meirl/oeisft8/)
 - [/u/joehx on ELI5 what is vibe coding and why is everyone making jokes about it?](https://www.reddit.com/r/explainlikeimfive/comments/1s1y5aq/eli5_what_is_vibe_coding_and_why_is_everyone/oc4h9fe/)
 - [/u/joehx on Can someone help me with the OT deduction?](https://www.reddit.com/r/personalfinance/comments/1rttf51/can_someone_help_me_with_the_ot_deduction/oagj1a5/)
 - [/u/joehx on What&#39;s a restaurant red flag that tells you the food isn&#39;t going to be good?](https://www.reddit.com/r/AskReddit/comments/1rjw0px/whats_a_restaurant_red_flag_that_tells_you_the/o8hkjo1/)
-- [/u/joehx on Which YMCA branch in the area is the best?](https://www.reddit.com/r/dayton/comments/1r9gbs8/which_ymca_branch_in_the_area_is_the_best/o6cct0l/)
 <!-- REDDIT:END -->
