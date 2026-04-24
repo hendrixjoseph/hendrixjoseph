@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Birthday, Rooh!](https://news.puppy-snuggles.com/119008647/happy-birthday-rooh)
-- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
-- [My foster dog starting to come out of his shell and he gave me a little smile](https://news.puppy-snuggles.com/115866190/my-foster-dog-starting-to-come-out-of-his-shell-and-he-gave-me-a-little-smile)
-- [My best friend](https://news.puppy-snuggles.com/114515965/my-best-friend)
-- [Daisy, She was special ❤️](https://news.puppy-snuggles.com/113362304/daisy-she-was-special)
+- [Happy Caí!](https://news.puppy-snuggles.com/117298389/happy-cai)
+- [They said my dog was too ugly to be adopted](https://news.puppy-snuggles.com/113902814/they-said-my-dog-was-too-ugly-to-be-adopted)
+- [Distinctive picture](https://news.puppy-snuggles.com/111036738/distinctive-picture)
+- [Even wearing the donut of shame he still smiles](https://news.puppy-snuggles.com/111036733/even-wearing-the-donut-of-shame-he-still-smiles)
+- [Caption this! I have no words😂](https://news.puppy-snuggles.com/105821793/caption-this-i-have-no-words)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
