@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Caí!](https://news.puppy-snuggles.com/117298389/happy-cai)
-- [They said my dog was too ugly to be adopted](https://news.puppy-snuggles.com/113902814/they-said-my-dog-was-too-ugly-to-be-adopted)
-- [Distinctive picture](https://news.puppy-snuggles.com/111036738/distinctive-picture)
-- [Even wearing the donut of shame he still smiles](https://news.puppy-snuggles.com/111036733/even-wearing-the-donut-of-shame-he-still-smiles)
-- [Caption this! I have no words😂](https://news.puppy-snuggles.com/105821793/caption-this-i-have-no-words)
+- [Babysitting this cutie. This is her official camp photo.](https://news.puppy-snuggles.com/120930587/babysitting-this-cutie-this-is-her-official-camp-photo)
+- [Such a good model &amp;lt;3](https://news.puppy-snuggles.com/118825959/such-a-good-model-3)
+- [Jojo is 2 today! 🍰](https://news.puppy-snuggles.com/115266998/jojo-is-2-today)
+- [She likes to take long walks and lonnnng breaks](https://news.puppy-snuggles.com/115237774/she-likes-to-take-long-walks-and-lonnnng-breaks)
+- [Excited much?](https://news.puppy-snuggles.com/111191691/excited-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
