@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Babysitting this cutie. This is her official camp photo.](https://news.puppy-snuggles.com/120930587/babysitting-this-cutie-this-is-her-official-camp-photo)
-- [Such a good model &amp;lt;3](https://news.puppy-snuggles.com/118825959/such-a-good-model-3)
-- [Jojo is 2 today! 🍰](https://news.puppy-snuggles.com/115266998/jojo-is-2-today)
-- [She likes to take long walks and lonnnng breaks](https://news.puppy-snuggles.com/115237774/she-likes-to-take-long-walks-and-lonnnng-breaks)
-- [Excited much?](https://news.puppy-snuggles.com/111191691/excited-much)
+- [Baby Beau🩵](https://news.puppy-snuggles.com/120844279/baby-beau)
+- [Spent 35 hours painting my dog making my favorite stupid face. I hope someone enjoys because it was painful and I’m never trying this again :&rpar;](https://news.puppy-snuggles.com/120785951/spent-35-hours-painting-my-dog-making-my-favorite-stupid-face-i-hope-someone-enjoys-because-it-was-painful-and-im-never-trying-this-again)
+- [Two months since we adopted Bear, can’t imagine life without him now](https://news.puppy-snuggles.com/119224584/two-months-since-we-adopted-bear-cant-imagine-life-without-him-now)
+- [my pretty boy](https://news.puppy-snuggles.com/118195905/my-pretty-boy)
+- [Dog face on a dog face](https://news.puppy-snuggles.com/117542785/dog-face-on-a-dog-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
