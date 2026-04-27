@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Baby Beau🩵](https://news.puppy-snuggles.com/120844279/baby-beau)
-- [Spent 35 hours painting my dog making my favorite stupid face. I hope someone enjoys because it was painful and I’m never trying this again :&rpar;](https://news.puppy-snuggles.com/120785951/spent-35-hours-painting-my-dog-making-my-favorite-stupid-face-i-hope-someone-enjoys-because-it-was-painful-and-im-never-trying-this-again)
-- [Two months since we adopted Bear, can’t imagine life without him now](https://news.puppy-snuggles.com/119224584/two-months-since-we-adopted-bear-cant-imagine-life-without-him-now)
-- [my pretty boy](https://news.puppy-snuggles.com/118195905/my-pretty-boy)
-- [Dog face on a dog face](https://news.puppy-snuggles.com/117542785/dog-face-on-a-dog-face)
+- [My old man passed away recently at 19 after 17 years of living with us](https://news.puppy-snuggles.com/121079168/my-old-man-passed-away-recently-at-19-after-17-years-of-living-with-us)
+- [happy smiles from a happy senior girl](https://news.puppy-snuggles.com/120132545/happy-smiles-from-a-happy-senior-girl)
+- [Freedom!](https://news.puppy-snuggles.com/119620890/freedom)
+- [Dog indeed is man&amp;#039;s bestie💕...](https://news.puppy-snuggles.com/117511947/dog-indeed-is-mans-bestie)
+- [So this is Penny!](https://news.puppy-snuggles.com/114637414/so-this-is-penny)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
