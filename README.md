@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My old man passed away recently at 19 after 17 years of living with us](https://news.puppy-snuggles.com/121079168/my-old-man-passed-away-recently-at-19-after-17-years-of-living-with-us)
-- [happy smiles from a happy senior girl](https://news.puppy-snuggles.com/120132545/happy-smiles-from-a-happy-senior-girl)
-- [Freedom!](https://news.puppy-snuggles.com/119620890/freedom)
-- [Dog indeed is man&amp;#039;s bestie💕...](https://news.puppy-snuggles.com/117511947/dog-indeed-is-mans-bestie)
-- [So this is Penny!](https://news.puppy-snuggles.com/114637414/so-this-is-penny)
+- [Now I Understand How it Feels](https://news.puppy-snuggles.com/121466489/now-i-understand-how-it-feels)
+- [I miss my dog.](https://news.puppy-snuggles.com/121228272/i-miss-my-dog)
+- [My old dog Zeky, he&amp;#039;s now 13 years old.](https://news.puppy-snuggles.com/118346858/my-old-dog-zeky-hes-now-13-years-old)
+- [Samoyed Smile](https://news.puppy-snuggles.com/117000561/samoyed-smile)
+- [My GSD…. diagnosed with lymphoma but still beautiful](https://news.puppy-snuggles.com/112649243/my-gsd-diagnosed-with-lymphoma-but-still-beautiful)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
