@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Now I Understand How it Feels](https://news.puppy-snuggles.com/121466489/now-i-understand-how-it-feels)
-- [I miss my dog.](https://news.puppy-snuggles.com/121228272/i-miss-my-dog)
-- [My old dog Zeky, he&amp;#039;s now 13 years old.](https://news.puppy-snuggles.com/118346858/my-old-dog-zeky-hes-now-13-years-old)
-- [Samoyed Smile](https://news.puppy-snuggles.com/117000561/samoyed-smile)
-- [My GSD…. diagnosed with lymphoma but still beautiful](https://news.puppy-snuggles.com/112649243/my-gsd-diagnosed-with-lymphoma-but-still-beautiful)
+- [i will miss you buddy](https://news.puppy-snuggles.com/121713527/i-will-miss-you-buddy)
+- [My sister’s dog Otis is going to cross the rainbow bridge on Friday and I’m super sad… Send me some pictures of who he’s going to meet up there.](https://news.puppy-snuggles.com/117929827/my-sisters-dog-otis-is-going-to-cross-the-rainbow-bridge-on-friday-and-im-super-sad-send-me-some-pictures-of-who-hes-going-to-meet-up-there)
+- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
+- [Nap time…](https://news.puppy-snuggles.com/116183255/nap-time)
+- [She gets all the loveins](https://news.puppy-snuggles.com/115581575/she-gets-all-the-loveins)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
