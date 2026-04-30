@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i will miss you buddy](https://news.puppy-snuggles.com/121713527/i-will-miss-you-buddy)
-- [My sister’s dog Otis is going to cross the rainbow bridge on Friday and I’m super sad… Send me some pictures of who he’s going to meet up there.](https://news.puppy-snuggles.com/117929827/my-sisters-dog-otis-is-going-to-cross-the-rainbow-bridge-on-friday-and-im-super-sad-send-me-some-pictures-of-who-hes-going-to-meet-up-there)
-- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
-- [Nap time…](https://news.puppy-snuggles.com/116183255/nap-time)
-- [She gets all the loveins](https://news.puppy-snuggles.com/115581575/she-gets-all-the-loveins)
+- [Your dog is in jail, what crime did they commit?](https://news.puppy-snuggles.com/121713524/your-dog-is-in-jail-what-crime-did-they-commit)
+- [Ghost is ours!](https://news.puppy-snuggles.com/111967477/ghost-is-ours)
+- [One of my dogs has Alfred Hitchcock&amp;#039;s silhouette on her back](https://news.puppy-snuggles.com/110026355/one-of-my-dogs-has-alfred-hitchcocks-silhouette-on-her-back)
+- [God this old picture of my dog abby&lpar;she died 6 months ago&rpar; always cracks me up](https://news.puppy-snuggles.com/109836528/god-this-old-picture-of-my-dog-abbyshe-died-6-months-ago-always-cracks-me-up)
+- [We had to put down my 15 year old Husky today. Everyone say a little something nice for Bella. I’m going through it](https://news.puppy-snuggles.com/109773647/we-had-to-put-down-my-15-year-old-husky-today-everyone-say-a-little-something-nice-for-bella-im-going-through-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
