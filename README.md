@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Your dog is in jail, what crime did they commit?](https://news.puppy-snuggles.com/121713524/your-dog-is-in-jail-what-crime-did-they-commit)
-- [Ghost is ours!](https://news.puppy-snuggles.com/111967477/ghost-is-ours)
-- [One of my dogs has Alfred Hitchcock&amp;#039;s silhouette on her back](https://news.puppy-snuggles.com/110026355/one-of-my-dogs-has-alfred-hitchcocks-silhouette-on-her-back)
-- [God this old picture of my dog abby&lpar;she died 6 months ago&rpar; always cracks me up](https://news.puppy-snuggles.com/109836528/god-this-old-picture-of-my-dog-abbyshe-died-6-months-ago-always-cracks-me-up)
-- [We had to put down my 15 year old Husky today. Everyone say a little something nice for Bella. I’m going through it](https://news.puppy-snuggles.com/109773647/we-had-to-put-down-my-15-year-old-husky-today-everyone-say-a-little-something-nice-for-bella-im-going-through-it)
+- [The process and master of the infamous GSD stare.](https://news.puppy-snuggles.com/121949980/the-process-and-master-of-the-infamous-gsd-stare)
+- [Happy girl](https://news.puppy-snuggles.com/121683707/happy-girl)
+- [Adopted a new puppy this week in Australia. We are not sure what breeds she has in her. Any guesses? She is 4 months and quite small still.](https://news.puppy-snuggles.com/121079174/adopted-a-new-puppy-this-week-in-australia-we-are-not-sure-what-breeds-she-has-in-her-any-guesses-she-is-4-months-and-quite-small-still)
+- [Copper wants to say hi](https://news.puppy-snuggles.com/119979734/copper-wants-to-say-hi)
+- [So few have met Bubbie...](https://news.puppy-snuggles.com/119346221/so-few-have-met-bubbie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
