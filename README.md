@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The process and master of the infamous GSD stare.](https://news.puppy-snuggles.com/121949980/the-process-and-master-of-the-infamous-gsd-stare)
-- [Happy girl](https://news.puppy-snuggles.com/121683707/happy-girl)
-- [Adopted a new puppy this week in Australia. We are not sure what breeds she has in her. Any guesses? She is 4 months and quite small still.](https://news.puppy-snuggles.com/121079174/adopted-a-new-puppy-this-week-in-australia-we-are-not-sure-what-breeds-she-has-in-her-any-guesses-she-is-4-months-and-quite-small-still)
-- [Copper wants to say hi](https://news.puppy-snuggles.com/119979734/copper-wants-to-say-hi)
-- [So few have met Bubbie...](https://news.puppy-snuggles.com/119346221/so-few-have-met-bubbie)
+- [when she realizes im not going outside with her](https://news.puppy-snuggles.com/119680075/when-she-realizes-im-not-going-outside-with-her)
+- [she smiled so big on her 13th birthday!](https://news.puppy-snuggles.com/118225754/she-smiled-so-big-on-her-13th-birthday)
+- [My guy in Utah](https://news.puppy-snuggles.com/117542786/my-guy-in-utah)
+- [Introducing Loopy With The Ears!](https://news.puppy-snuggles.com/115327128/introducing-loopy-with-the-ears)
+- [porkchop aced his 12th annual checkup today! i treated him to a taco afterward. 🌮](https://news.puppy-snuggles.com/115029368/porkchop-aced-his-12th-annual-checkup-today-i-treated-him-to-a-taco-afterward)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
