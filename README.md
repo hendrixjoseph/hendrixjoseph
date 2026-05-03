@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [when she realizes im not going outside with her](https://news.puppy-snuggles.com/119680075/when-she-realizes-im-not-going-outside-with-her)
-- [she smiled so big on her 13th birthday!](https://news.puppy-snuggles.com/118225754/she-smiled-so-big-on-her-13th-birthday)
-- [My guy in Utah](https://news.puppy-snuggles.com/117542786/my-guy-in-utah)
-- [Introducing Loopy With The Ears!](https://news.puppy-snuggles.com/115327128/introducing-loopy-with-the-ears)
-- [porkchop aced his 12th annual checkup today! i treated him to a taco afterward. 🌮](https://news.puppy-snuggles.com/115029368/porkchop-aced-his-12th-annual-checkup-today-i-treated-him-to-a-taco-afterward)
+- [does anyone else&amp;#039;s dog use their toy as a pacifier?](https://news.puppy-snuggles.com/119620889/does-anyone-elses-dog-use-their-toy-as-a-pacifier)
+- [This is Grizzly my Chow Chow. Now 1 year 3 months! Here’s some of my favourite smiley photos from present day through to when I first got him at 8 weeks! 🧸](https://news.puppy-snuggles.com/119500063/this-is-grizzly-my-chow-chow-now-1-year-3-months-heres-some-of-my-favourite-smiley-photos-from-present-day-through-to-when-i-first-got-him-at-8-weeks)
+- [Looking for dogs to practice embroidering &lpar;free&rpar;](https://news.puppy-snuggles.com/118195902/looking-for-dogs-to-practice-embroidering-free)
+- [Happy 15th Maddie!!!](https://news.puppy-snuggles.com/117120246/happy-15th-maddie)
+- [I shared my corgi now here is my aussie](https://news.puppy-snuggles.com/116486424/i-shared-my-corgi-now-here-is-my-aussie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
