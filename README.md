@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [does anyone else&amp;#039;s dog use their toy as a pacifier?](https://news.puppy-snuggles.com/119620889/does-anyone-elses-dog-use-their-toy-as-a-pacifier)
-- [This is Grizzly my Chow Chow. Now 1 year 3 months! Here’s some of my favourite smiley photos from present day through to when I first got him at 8 weeks! 🧸](https://news.puppy-snuggles.com/119500063/this-is-grizzly-my-chow-chow-now-1-year-3-months-heres-some-of-my-favourite-smiley-photos-from-present-day-through-to-when-i-first-got-him-at-8-weeks)
-- [Looking for dogs to practice embroidering &lpar;free&rpar;](https://news.puppy-snuggles.com/118195902/looking-for-dogs-to-practice-embroidering-free)
-- [Happy 15th Maddie!!!](https://news.puppy-snuggles.com/117120246/happy-15th-maddie)
-- [I shared my corgi now here is my aussie](https://news.puppy-snuggles.com/116486424/i-shared-my-corgi-now-here-is-my-aussie)
+- [Old, but New](https://news.puppy-snuggles.com/120427246/old-but-new)
+- [Just returned to Canada after 6 months. Adopted a furbaby along the way](https://news.puppy-snuggles.com/120427250/just-returned-to-canada-after-6-months-adopted-a-furbaby-along-the-way)
+- [Let me draw your dog!](https://news.puppy-snuggles.com/118195908/let-me-draw-your-dog)
+- [this is king jereth! 👑🤴🐶🥺](https://news.puppy-snuggles.com/118195909/this-is-king-jereth)
+- [meet this cutie pie](https://news.puppy-snuggles.com/117268165/meet-this-cutie-pie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
