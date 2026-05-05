@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Old, but New](https://news.puppy-snuggles.com/120427246/old-but-new)
-- [Just returned to Canada after 6 months. Adopted a furbaby along the way](https://news.puppy-snuggles.com/120427250/just-returned-to-canada-after-6-months-adopted-a-furbaby-along-the-way)
-- [Let me draw your dog!](https://news.puppy-snuggles.com/118195908/let-me-draw-your-dog)
-- [this is king jereth! 👑🤴🐶🥺](https://news.puppy-snuggles.com/118195909/this-is-king-jereth)
-- [meet this cutie pie](https://news.puppy-snuggles.com/117268165/meet-this-cutie-pie)
+- [Empty house. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/120602260/empty-house-original-charcoal-and-pastel-art-by-me)
+- [In a few hours I will be farewelling the bestest boy and sending him into an eternal slumber](https://news.puppy-snuggles.com/120103045/in-a-few-hours-i-will-be-farewelling-the-bestest-boy-and-sending-him-into-an-eternal-slumber)
+- [A good sigh](https://news.puppy-snuggles.com/119857717/a-good-sigh)
+- [Snoozin](https://news.puppy-snuggles.com/119651260/snoozin)
+- [This is Maisie. Her tongue is out more than it is not.](https://news.puppy-snuggles.com/119561033/this-is-maisie-her-tongue-is-out-more-than-it-is-not)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
