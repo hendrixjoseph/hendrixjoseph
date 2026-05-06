@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Empty house. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/120602260/empty-house-original-charcoal-and-pastel-art-by-me)
-- [In a few hours I will be farewelling the bestest boy and sending him into an eternal slumber](https://news.puppy-snuggles.com/120103045/in-a-few-hours-i-will-be-farewelling-the-bestest-boy-and-sending-him-into-an-eternal-slumber)
-- [A good sigh](https://news.puppy-snuggles.com/119857717/a-good-sigh)
-- [Snoozin](https://news.puppy-snuggles.com/119651260/snoozin)
-- [This is Maisie. Her tongue is out more than it is not.](https://news.puppy-snuggles.com/119561033/this-is-maisie-her-tongue-is-out-more-than-it-is-not)
+- [Benito aka Benito Box aka Big Boi Benny](https://news.puppy-snuggles.com/122187383/benito-aka-benito-box-aka-big-boi-benny)
+- [Samuel being regal with his lamby](https://news.puppy-snuggles.com/119469161/samuel-being-regal-with-his-lamby)
+- [My white walker.](https://news.puppy-snuggles.com/119008651/my-white-walker)
+- [Bella has been in my life and making me happy for 5 years!🥰🦮❤️](https://news.puppy-snuggles.com/118764535/bella-has-been-in-my-life-and-making-me-happy-for-5-years)
+- [I love the park and I love you!](https://news.puppy-snuggles.com/117987186/i-love-the-park-and-i-love-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
