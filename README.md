@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Benito aka Benito Box aka Big Boi Benny](https://news.puppy-snuggles.com/122187383/benito-aka-benito-box-aka-big-boi-benny)
-- [Samuel being regal with his lamby](https://news.puppy-snuggles.com/119469161/samuel-being-regal-with-his-lamby)
-- [My white walker.](https://news.puppy-snuggles.com/119008651/my-white-walker)
-- [Bella has been in my life and making me happy for 5 years!🥰🦮❤️](https://news.puppy-snuggles.com/118764535/bella-has-been-in-my-life-and-making-me-happy-for-5-years)
-- [I love the park and I love you!](https://news.puppy-snuggles.com/117987186/i-love-the-park-and-i-love-you)
+- [Every walk she&amp;#039;s ever been on is the best walk she&amp;#039;s ever been on.](https://news.puppy-snuggles.com/122750101/every-walk-shes-ever-been-on-is-the-best-walk-shes-ever-been-on)
+- [Annie loves her leaves!](https://news.puppy-snuggles.com/122750094/annie-loves-her-leaves)
+- [Stray came by for food and love](https://news.puppy-snuggles.com/122750097/stray-came-by-for-food-and-love)
+- [Bye my dear Dixon](https://news.puppy-snuggles.com/116456344/bye-my-dear-dixon)
+- [First day to now.](https://news.puppy-snuggles.com/109741592/first-day-to-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
