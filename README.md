@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Every walk she&amp;#039;s ever been on is the best walk she&amp;#039;s ever been on.](https://news.puppy-snuggles.com/122750101/every-walk-shes-ever-been-on-is-the-best-walk-shes-ever-been-on)
-- [Annie loves her leaves!](https://news.puppy-snuggles.com/122750094/annie-loves-her-leaves)
-- [Stray came by for food and love](https://news.puppy-snuggles.com/122750097/stray-came-by-for-food-and-love)
-- [Bye my dear Dixon](https://news.puppy-snuggles.com/116456344/bye-my-dear-dixon)
-- [First day to now.](https://news.puppy-snuggles.com/109741592/first-day-to-now)
+- [Shadow](https://news.puppy-snuggles.com/121286776/shadow)
+- [My mom shaved my and I am crying](https://news.puppy-snuggles.com/119680070/my-mom-shaved-my-and-i-am-crying)
+- [Adopted this little guy](https://news.puppy-snuggles.com/119100570/adopted-this-little-guy)
+- [Miel &lpar;Honey&rpar;, the queen of the block.](https://news.puppy-snuggles.com/117210784/miel-honey-the-queen-of-the-block)
+- [Meet our 8 week old English cream retriever puppy!](https://news.puppy-snuggles.com/115772024/meet-our-8-week-old-english-cream-retriever-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
