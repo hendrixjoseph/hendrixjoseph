@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Shadow](https://news.puppy-snuggles.com/121286776/shadow)
-- [My mom shaved my and I am crying](https://news.puppy-snuggles.com/119680070/my-mom-shaved-my-and-i-am-crying)
-- [Adopted this little guy](https://news.puppy-snuggles.com/119100570/adopted-this-little-guy)
-- [Miel &lpar;Honey&rpar;, the queen of the block.](https://news.puppy-snuggles.com/117210784/miel-honey-the-queen-of-the-block)
-- [Meet our 8 week old English cream retriever puppy!](https://news.puppy-snuggles.com/115772024/meet-our-8-week-old-english-cream-retriever-puppy)
+- [i’ve had her for 11 years why is she still awkward is she stupid](https://news.puppy-snuggles.com/120874941/ive-had-her-for-11-years-why-is-she-still-awkward-is-she-stupid)
+- [This is Loafy. He is smiling at you. You must smile back. Those are the rules.](https://news.puppy-snuggles.com/119738225/this-is-loafy-he-is-smiling-at-you-you-must-smile-back-those-are-the-rules)
+- [Happy Birthday, Rooh!](https://news.puppy-snuggles.com/119008647/happy-birthday-rooh)
+- [All dressed up and ready to go sniff! Lol! 🐕😍](https://news.puppy-snuggles.com/118017198/all-dressed-up-and-ready-to-go-sniff-lol)
+- [Grief is the cost of love ❤️](https://news.puppy-snuggles.com/112649239/grief-is-the-cost-of-love)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
