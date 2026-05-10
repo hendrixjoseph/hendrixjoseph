@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i’ve had her for 11 years why is she still awkward is she stupid](https://news.puppy-snuggles.com/120874941/ive-had-her-for-11-years-why-is-she-still-awkward-is-she-stupid)
-- [This is Loafy. He is smiling at you. You must smile back. Those are the rules.](https://news.puppy-snuggles.com/119738225/this-is-loafy-he-is-smiling-at-you-you-must-smile-back-those-are-the-rules)
-- [Happy Birthday, Rooh!](https://news.puppy-snuggles.com/119008647/happy-birthday-rooh)
-- [All dressed up and ready to go sniff! Lol! 🐕😍](https://news.puppy-snuggles.com/118017198/all-dressed-up-and-ready-to-go-sniff-lol)
-- [Grief is the cost of love ❤️](https://news.puppy-snuggles.com/112649239/grief-is-the-cost-of-love)
+- [He wouldn’t sit still!](https://news.puppy-snuggles.com/120395417/he-wouldnt-sit-still)
+- [This is figgy. Be nice, she’s almost 13!](https://news.puppy-snuggles.com/120012836/this-is-figgy-be-nice-shes-almost-13)
+- [My most loved family member... &amp;quot;Stitch&amp;quot;!](https://news.puppy-snuggles.com/119376533/my-most-loved-family-member-stitch)
+- [Can I get some love for my good boy](https://news.puppy-snuggles.com/118764539/can-i-get-some-love-for-my-good-boy)
+- [My puppy is now a scholar.](https://news.puppy-snuggles.com/118466772/my-puppy-is-now-a-scholar)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
