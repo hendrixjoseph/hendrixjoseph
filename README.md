@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He wouldn’t sit still!](https://news.puppy-snuggles.com/120395417/he-wouldnt-sit-still)
-- [This is figgy. Be nice, she’s almost 13!](https://news.puppy-snuggles.com/120012836/this-is-figgy-be-nice-shes-almost-13)
-- [My most loved family member... &amp;quot;Stitch&amp;quot;!](https://news.puppy-snuggles.com/119376533/my-most-loved-family-member-stitch)
-- [Can I get some love for my good boy](https://news.puppy-snuggles.com/118764539/can-i-get-some-love-for-my-good-boy)
-- [My puppy is now a scholar.](https://news.puppy-snuggles.com/118466772/my-puppy-is-now-a-scholar)
+- [Dexie went for ice cream today 😋](https://news.puppy-snuggles.com/108851903/dexie-went-for-ice-cream-today)
+- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
+- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
+- [Look at those faces! How adorable](https://news.puppy-snuggles.com/52269486/look-at-those-faces-how-adorable)
+- [Now our homes complete Our Doggo.](https://news.puppy-snuggles.com/52058134/now-our-homes-complete-our-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
