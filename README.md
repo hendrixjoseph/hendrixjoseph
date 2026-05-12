@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dexie went for ice cream today 😋](https://news.puppy-snuggles.com/108851903/dexie-went-for-ice-cream-today)
-- [Lost Zoe a year ago today](https://news.puppy-snuggles.com/84194941/lost-zoe-a-year-ago-today)
-- [My first day with this gentleman](https://news.puppy-snuggles.com/52880374/my-first-day-with-this-gentleman)
-- [Look at those faces! How adorable](https://news.puppy-snuggles.com/52269486/look-at-those-faces-how-adorable)
-- [Now our homes complete Our Doggo.](https://news.puppy-snuggles.com/52058134/now-our-homes-complete-our-doggo)
+- [He&amp;#039;s a good boy and you deserve to see him](https://news.puppy-snuggles.com/38206454/hes-a-good-boy-and-you-deserve-to-see-him)
+- [My dog is obsessed with our work meetings](https://news.puppy-snuggles.com/36667273/my-dog-is-obsessed-with-our-work-meetings)
+- [Kevin’s grin cuddling with his best friend](https://news.puppy-snuggles.com/36201376/kevins-grin-cuddling-with-his-best-friend)
+- [My sweet girl turned a year old last week!!](https://news.puppy-snuggles.com/35938121/my-sweet-girl-turned-a-year-old-last-week)
+- [First post here, this is my babygirl Maple!](https://news.puppy-snuggles.com/35895248/first-post-here-this-is-my-babygirl-maple)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
