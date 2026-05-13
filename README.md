@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s a good boy and you deserve to see him](https://news.puppy-snuggles.com/38206454/hes-a-good-boy-and-you-deserve-to-see-him)
-- [My dog is obsessed with our work meetings](https://news.puppy-snuggles.com/36667273/my-dog-is-obsessed-with-our-work-meetings)
-- [Kevin’s grin cuddling with his best friend](https://news.puppy-snuggles.com/36201376/kevins-grin-cuddling-with-his-best-friend)
-- [My sweet girl turned a year old last week!!](https://news.puppy-snuggles.com/35938121/my-sweet-girl-turned-a-year-old-last-week)
-- [First post here, this is my babygirl Maple!](https://news.puppy-snuggles.com/35895248/first-post-here-this-is-my-babygirl-maple)
+- [I got a new pup and he needs a name - give me ideas!](https://news.puppy-snuggles.com/123013631/i-got-a-new-pup-and-he-needs-a-name-give-me-ideas)
+- [Marty got a new haircut](https://news.puppy-snuggles.com/120482602/marty-got-a-new-haircut)
+- [Two months since we adopted Bear, can’t imagine life without him now](https://news.puppy-snuggles.com/119224584/two-months-since-we-adopted-bear-cant-imagine-life-without-him-now)
+- [Arya at 3 months old vs at 1 year and 3 months old](https://news.puppy-snuggles.com/117929828/arya-at-3-months-old-vs-at-1-year-and-3-months-old)
+- [adopted this sweet boy from a high kill shelter](https://news.puppy-snuggles.com/117388154/adopted-this-sweet-boy-from-a-high-kill-shelter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
