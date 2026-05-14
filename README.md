@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I got a new pup and he needs a name - give me ideas!](https://news.puppy-snuggles.com/123013631/i-got-a-new-pup-and-he-needs-a-name-give-me-ideas)
-- [Marty got a new haircut](https://news.puppy-snuggles.com/120482602/marty-got-a-new-haircut)
-- [Two months since we adopted Bear, can’t imagine life without him now](https://news.puppy-snuggles.com/119224584/two-months-since-we-adopted-bear-cant-imagine-life-without-him-now)
-- [Arya at 3 months old vs at 1 year and 3 months old](https://news.puppy-snuggles.com/117929828/arya-at-3-months-old-vs-at-1-year-and-3-months-old)
-- [adopted this sweet boy from a high kill shelter](https://news.puppy-snuggles.com/117388154/adopted-this-sweet-boy-from-a-high-kill-shelter)
+- [Grizzly is happy that the good weather is here in the UK! 🧸](https://news.puppy-snuggles.com/120221591/grizzly-is-happy-that-the-good-weather-is-here-in-the-uk)
+- [Bella🥹](https://news.puppy-snuggles.com/119039277/bella)
+- [First time seeing the beach.](https://news.puppy-snuggles.com/118915381/first-time-seeing-the-beach)
+- [Something about this Chihuahua’s expression made me want to recreate it in needle felting art](https://news.puppy-snuggles.com/118794259/something-about-this-chihuahuas-expression-made-me-want-to-recreate-it-in-needle-felting-art)
+- [Excavator For Hire](https://news.puppy-snuggles.com/118586924/excavator-for-hire)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
