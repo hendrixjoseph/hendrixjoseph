@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Grizzly is happy that the good weather is here in the UK! 🧸](https://news.puppy-snuggles.com/120221591/grizzly-is-happy-that-the-good-weather-is-here-in-the-uk)
-- [Bella🥹](https://news.puppy-snuggles.com/119039277/bella)
-- [First time seeing the beach.](https://news.puppy-snuggles.com/118915381/first-time-seeing-the-beach)
-- [Something about this Chihuahua’s expression made me want to recreate it in needle felting art](https://news.puppy-snuggles.com/118794259/something-about-this-chihuahuas-expression-made-me-want-to-recreate-it-in-needle-felting-art)
-- [Excavator For Hire](https://news.puppy-snuggles.com/118586924/excavator-for-hire)
+- [Someone is happy](https://news.puppy-snuggles.com/123625231/someone-is-happy)
+- [Help with a name please](https://news.puppy-snuggles.com/123625232/help-with-a-name-please)
+- [Waldo💗](https://news.puppy-snuggles.com/123625233/waldo)
+- [Tovri the labradoodle](https://news.puppy-snuggles.com/123292735/tovri-the-labradoodle)
+- [Hilarious 😂](https://news.puppy-snuggles.com/123232257/hilarious)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
