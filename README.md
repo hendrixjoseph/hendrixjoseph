@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Someone is happy](https://news.puppy-snuggles.com/123625231/someone-is-happy)
-- [Help with a name please](https://news.puppy-snuggles.com/123625232/help-with-a-name-please)
-- [Waldo💗](https://news.puppy-snuggles.com/123625233/waldo)
-- [Tovri the labradoodle](https://news.puppy-snuggles.com/123292735/tovri-the-labradoodle)
-- [Hilarious 😂](https://news.puppy-snuggles.com/123232257/hilarious)
+- [My mall walking partner](https://news.puppy-snuggles.com/123407646/my-mall-walking-partner)
+- [Ralphie, in his new ball pit a got him! 🐶🐾](https://news.puppy-snuggles.com/122982867/ralphie-in-his-new-ball-pit-a-got-him)
+- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
+- [My boy turned 17 💙](https://news.puppy-snuggles.com/121344858/my-boy-turned-17)
+- [I found this smile today](https://news.puppy-snuggles.com/120103048/i-found-this-smile-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
