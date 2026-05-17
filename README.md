@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mall walking partner](https://news.puppy-snuggles.com/123407646/my-mall-walking-partner)
-- [Ralphie, in his new ball pit a got him! 🐶🐾](https://news.puppy-snuggles.com/122982867/ralphie-in-his-new-ball-pit-a-got-him)
-- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
-- [My boy turned 17 💙](https://news.puppy-snuggles.com/121344858/my-boy-turned-17)
-- [I found this smile today](https://news.puppy-snuggles.com/120103048/i-found-this-smile-today)
+- [My Big Red dog is the best mama](https://news.puppy-snuggles.com/122365067/my-big-red-dog-is-the-best-mama)
+- [The process and master of the infamous GSD stare.](https://news.puppy-snuggles.com/121949980/the-process-and-master-of-the-infamous-gsd-stare)
+- [My bestie from my local shelter 🐾](https://news.puppy-snuggles.com/121406733/my-bestie-from-my-local-shelter)
+- [My grandpa got a puppy! Welcome Liza!](https://news.puppy-snuggles.com/118076033/my-grandpa-got-a-puppy-welcome-liza)
+- [Miss my girl but it’s okay- Love you Mia](https://news.puppy-snuggles.com/116425976/miss-my-girl-but-its-okay-love-you-mia)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
