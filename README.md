@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Big Red dog is the best mama](https://news.puppy-snuggles.com/122365067/my-big-red-dog-is-the-best-mama)
-- [The process and master of the infamous GSD stare.](https://news.puppy-snuggles.com/121949980/the-process-and-master-of-the-infamous-gsd-stare)
-- [My bestie from my local shelter 🐾](https://news.puppy-snuggles.com/121406733/my-bestie-from-my-local-shelter)
-- [My grandpa got a puppy! Welcome Liza!](https://news.puppy-snuggles.com/118076033/my-grandpa-got-a-puppy-welcome-liza)
-- [Miss my girl but it’s okay- Love you Mia](https://news.puppy-snuggles.com/116425976/miss-my-girl-but-its-okay-love-you-mia)
+- [My mom sent me this while I was in the bath 💀](https://news.puppy-snuggles.com/123660550/my-mom-sent-me-this-while-i-was-in-the-bath)
+- [Happy birthday, Berwyn!!! 🥳 🎉](https://news.puppy-snuggles.com/123013630/happy-birthday-berwyn)
+- [Meet Pearl - French bulldog](https://news.puppy-snuggles.com/120696243/meet-pearl-french-bulldog)
+- [In a few hours I will be farewelling the bestest boy and sending him into an eternal slumber](https://news.puppy-snuggles.com/120103045/in-a-few-hours-i-will-be-farewelling-the-bestest-boy-and-sending-him-into-an-eternal-slumber)
+- [I miss her](https://news.puppy-snuggles.com/119769554/i-miss-her)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
