@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mom sent me this while I was in the bath 💀](https://news.puppy-snuggles.com/123660550/my-mom-sent-me-this-while-i-was-in-the-bath)
-- [Happy birthday, Berwyn!!! 🥳 🎉](https://news.puppy-snuggles.com/123013630/happy-birthday-berwyn)
-- [Meet Pearl - French bulldog](https://news.puppy-snuggles.com/120696243/meet-pearl-french-bulldog)
-- [In a few hours I will be farewelling the bestest boy and sending him into an eternal slumber](https://news.puppy-snuggles.com/120103045/in-a-few-hours-i-will-be-farewelling-the-bestest-boy-and-sending-him-into-an-eternal-slumber)
-- [I miss her](https://news.puppy-snuggles.com/119769554/i-miss-her)
+- [your dog’s funniest/cutest sleeping poses](https://news.puppy-snuggles.com/122307046/your-dogs-funniestcutest-sleeping-poses)
+- [Clara looking regal](https://news.puppy-snuggles.com/118674934/clara-looking-regal)
+- [Happy National Puppy Day!](https://news.puppy-snuggles.com/117697076/happy-national-puppy-day)
+- [She was in a kill shelter, rescue day vs year later](https://news.puppy-snuggles.com/117418332/she-was-in-a-kill-shelter-rescue-day-vs-year-later)
+- [Thank you to everyone who loved my boys smiles!](https://news.puppy-snuggles.com/116817298/thank-you-to-everyone-who-loved-my-boys-smiles)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
