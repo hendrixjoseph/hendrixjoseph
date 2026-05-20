@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [your dog’s funniest/cutest sleeping poses](https://news.puppy-snuggles.com/122307046/your-dogs-funniestcutest-sleeping-poses)
-- [Clara looking regal](https://news.puppy-snuggles.com/118674934/clara-looking-regal)
-- [Happy National Puppy Day!](https://news.puppy-snuggles.com/117697076/happy-national-puppy-day)
-- [She was in a kill shelter, rescue day vs year later](https://news.puppy-snuggles.com/117418332/she-was-in-a-kill-shelter-rescue-day-vs-year-later)
-- [Thank you to everyone who loved my boys smiles!](https://news.puppy-snuggles.com/116817298/thank-you-to-everyone-who-loved-my-boys-smiles)
+- [11.5 year old mix breed Nala](https://news.puppy-snuggles.com/120221592/115-year-old-mix-breed-nala)
+- [My first baby…I still think of you every day, Digby🌈💙](https://news.puppy-snuggles.com/116938419/my-first-babyi-still-think-of-you-every-day-digby)
+- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
+- [Toothy grin 😀](https://news.puppy-snuggles.com/116026190/toothy-grin)
+- [He just wanted to say hi🥹🐾](https://news.puppy-snuggles.com/115551510/he-just-wanted-to-say-hi)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
