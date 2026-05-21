@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [11.5 year old mix breed Nala](https://news.puppy-snuggles.com/120221592/115-year-old-mix-breed-nala)
-- [My first baby…I still think of you every day, Digby🌈💙](https://news.puppy-snuggles.com/116938419/my-first-babyi-still-think-of-you-every-day-digby)
-- [Happy 3rd birthday 🎉](https://news.puppy-snuggles.com/116754694/happy-3rd-birthday)
-- [Toothy grin 😀](https://news.puppy-snuggles.com/116026190/toothy-grin)
-- [He just wanted to say hi🥹🐾](https://news.puppy-snuggles.com/115551510/he-just-wanted-to-say-hi)
+- [Hi all! This is Grizzly my 15 month old Chow Chow. Swipe to the end photo for the most ridiculous picture of him a year ago! 🧸](https://news.puppy-snuggles.com/121436428/hi-all-this-is-grizzly-my-15-month-old-chow-chow-swipe-to-the-end-photo-for-the-most-ridiculous-picture-of-him-a-year-ago)
+- [millie gave up halfway into bed](https://news.puppy-snuggles.com/118107943/millie-gave-up-halfway-into-bed)
+- [My handsomest son](https://news.puppy-snuggles.com/116817301/my-handsomest-son)
+- [Teddy on his birthday](https://news.puppy-snuggles.com/110187975/teddy-on-his-birthday)
+- [All she needs is a crown!](https://news.puppy-snuggles.com/106845815/all-she-needs-is-a-crown)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
