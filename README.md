@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hi all! This is Grizzly my 15 month old Chow Chow. Swipe to the end photo for the most ridiculous picture of him a year ago! 🧸](https://news.puppy-snuggles.com/121436428/hi-all-this-is-grizzly-my-15-month-old-chow-chow-swipe-to-the-end-photo-for-the-most-ridiculous-picture-of-him-a-year-ago)
-- [millie gave up halfway into bed](https://news.puppy-snuggles.com/118107943/millie-gave-up-halfway-into-bed)
-- [My handsomest son](https://news.puppy-snuggles.com/116817301/my-handsomest-son)
-- [Teddy on his birthday](https://news.puppy-snuggles.com/110187975/teddy-on-his-birthday)
-- [All she needs is a crown!](https://news.puppy-snuggles.com/106845815/all-she-needs-is-a-crown)
+- [Ranger says hi](https://news.puppy-snuggles.com/124024807/ranger-says-hi)
+- [The face of a wiem who was promised a &amp;#039;walk&amp;#039; and got a &amp;#039;wash&amp;#039; instead.&amp;quot;](https://news.puppy-snuggles.com/121892959/the-face-of-a-wiem-who-was-promised-a-walk-and-got-a-wash-instead)
+- [The puppy I didn&amp;#039;t want followed me home. Years later, he saved my life.](https://news.puppy-snuggles.com/117785747/the-puppy-i-didnt-want-followed-me-home-years-later-he-saved-my-life)
+- [Meet my pack!](https://news.puppy-snuggles.com/117268157/meet-my-pack)
+- [My dog is addicted to licking toads… do I need to send him to rehab](https://news.puppy-snuggles.com/117210778/my-dog-is-addicted-to-licking-toads-do-i-need-to-send-him-to-rehab)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
