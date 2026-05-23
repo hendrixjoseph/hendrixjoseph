@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ranger says hi](https://news.puppy-snuggles.com/124024807/ranger-says-hi)
-- [The face of a wiem who was promised a &amp;#039;walk&amp;#039; and got a &amp;#039;wash&amp;#039; instead.&amp;quot;](https://news.puppy-snuggles.com/121892959/the-face-of-a-wiem-who-was-promised-a-walk-and-got-a-wash-instead)
-- [The puppy I didn&amp;#039;t want followed me home. Years later, he saved my life.](https://news.puppy-snuggles.com/117785747/the-puppy-i-didnt-want-followed-me-home-years-later-he-saved-my-life)
-- [Meet my pack!](https://news.puppy-snuggles.com/117268157/meet-my-pack)
-- [My dog is addicted to licking toads… do I need to send him to rehab](https://news.puppy-snuggles.com/117210778/my-dog-is-addicted-to-licking-toads-do-i-need-to-send-him-to-rehab)
+- [Flo in all her scruffy glory!](https://news.puppy-snuggles.com/124089605/flo-in-all-her-scruffy-glory)
+- [My mom sent me this while I was in the bath 💀](https://news.puppy-snuggles.com/123660550/my-mom-sent-me-this-while-i-was-in-the-bath)
+- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
+- [Took the pack hiking!](https://news.puppy-snuggles.com/121622598/took-the-pack-hiking)
+- [Drop your dog photo, ill draw em.](https://news.puppy-snuggles.com/120874939/drop-your-dog-photo-ill-draw-em)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
