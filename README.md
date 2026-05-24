@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Flo in all her scruffy glory!](https://news.puppy-snuggles.com/124089605/flo-in-all-her-scruffy-glory)
-- [My mom sent me this while I was in the bath 💀](https://news.puppy-snuggles.com/123660550/my-mom-sent-me-this-while-i-was-in-the-bath)
-- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
-- [Took the pack hiking!](https://news.puppy-snuggles.com/121622598/took-the-pack-hiking)
-- [Drop your dog photo, ill draw em.](https://news.puppy-snuggles.com/120874939/drop-your-dog-photo-ill-draw-em)
+- [Very happy 🥰🐶❤️](https://news.puppy-snuggles.com/124352182/very-happy)
+- [Dakota says hi from Ukraine 🐶🇺🇦](https://news.puppy-snuggles.com/124352178/dakota-says-hi-from-ukraine)
+- [happy 6months clover!](https://news.puppy-snuggles.com/124352181/happy-6months-clover)
+- [Which one of these doggies is the culprit? Drawings I made of some Boston Terrier doggies ☺️](https://news.puppy-snuggles.com/124352185/which-one-of-these-doggies-is-the-culprit-drawings-i-made-of-some-boston-terrier-doggies)
+- [hope everyone has a great weekend. from my pack to yours.](https://news.puppy-snuggles.com/124352179/hope-everyone-has-a-great-weekend-from-my-pack-to-yours)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
