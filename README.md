@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Very happy 🥰🐶❤️](https://news.puppy-snuggles.com/124352182/very-happy)
-- [Dakota says hi from Ukraine 🐶🇺🇦](https://news.puppy-snuggles.com/124352178/dakota-says-hi-from-ukraine)
-- [happy 6months clover!](https://news.puppy-snuggles.com/124352181/happy-6months-clover)
-- [Which one of these doggies is the culprit? Drawings I made of some Boston Terrier doggies ☺️](https://news.puppy-snuggles.com/124352185/which-one-of-these-doggies-is-the-culprit-drawings-i-made-of-some-boston-terrier-doggies)
-- [hope everyone has a great weekend. from my pack to yours.](https://news.puppy-snuggles.com/124352179/hope-everyone-has-a-great-weekend-from-my-pack-to-yours)
+- [This is bronson hes very happy](https://news.puppy-snuggles.com/124124580/this-is-bronson-hes-very-happy)
+- [Smiles between canine friends in the park](https://news.puppy-snuggles.com/124089607/smiles-between-canine-friends-in-the-park)
+- [Meet Barley](https://news.puppy-snuggles.com/120903822/meet-barley)
+- [Caught him napping](https://news.puppy-snuggles.com/120903826/caught-him-napping)
+- [They grow up so fast](https://news.puppy-snuggles.com/120070287/they-grow-up-so-fast)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
