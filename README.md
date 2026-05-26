@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is bronson hes very happy](https://news.puppy-snuggles.com/124124580/this-is-bronson-hes-very-happy)
-- [Smiles between canine friends in the park](https://news.puppy-snuggles.com/124089607/smiles-between-canine-friends-in-the-park)
-- [Meet Barley](https://news.puppy-snuggles.com/120903822/meet-barley)
-- [Caught him napping](https://news.puppy-snuggles.com/120903826/caught-him-napping)
-- [They grow up so fast](https://news.puppy-snuggles.com/120070287/they-grow-up-so-fast)
+- [Did I mention that Rachel was my flower girl at my wedding? Flawless execution 🩷🤍](https://news.puppy-snuggles.com/124660445/did-i-mention-that-rachel-was-my-flower-girl-at-my-wedding-flawless-execution)
+- [Did I mention that Rachel was my flower girl at my wedding? Flawless execution 🩷🤍](https://news.puppy-snuggles.com/124660438/did-i-mention-that-rachel-was-my-flower-girl-at-my-wedding-flawless-execution)
+- [This adorable little guy visited the dealership I work at today. meet Dober, everyone!](https://news.puppy-snuggles.com/124660440/this-adorable-little-guy-visited-the-dealership-i-work-at-today-meet-dober-everyone)
+- [Look at this funny beast](https://news.puppy-snuggles.com/124660436/look-at-this-funny-beast)
+- [The atlas dog, named &lpar; Aïdi &rpar;, based in north africa](https://news.puppy-snuggles.com/120785953/the-atlas-dog-named-aidi-based-in-north-africa)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
