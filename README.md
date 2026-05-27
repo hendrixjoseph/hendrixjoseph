@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Did I mention that Rachel was my flower girl at my wedding? Flawless execution 🩷🤍](https://news.puppy-snuggles.com/124660445/did-i-mention-that-rachel-was-my-flower-girl-at-my-wedding-flawless-execution)
-- [Did I mention that Rachel was my flower girl at my wedding? Flawless execution 🩷🤍](https://news.puppy-snuggles.com/124660438/did-i-mention-that-rachel-was-my-flower-girl-at-my-wedding-flawless-execution)
-- [This adorable little guy visited the dealership I work at today. meet Dober, everyone!](https://news.puppy-snuggles.com/124660440/this-adorable-little-guy-visited-the-dealership-i-work-at-today-meet-dober-everyone)
-- [Look at this funny beast](https://news.puppy-snuggles.com/124660436/look-at-this-funny-beast)
-- [The atlas dog, named &lpar; Aïdi &rpar;, based in north africa](https://news.puppy-snuggles.com/120785953/the-atlas-dog-named-aidi-based-in-north-africa)
+- [Jefe: All crabs must leave the beach and return to the ocean immediately!](https://news.puppy-snuggles.com/124660439/jefe-all-crabs-must-leave-the-beach-and-return-to-the-ocean-immediately)
+- [How do you know?](https://news.puppy-snuggles.com/124660434/how-do-you-know)
+- [Dexter loving the 🌞](https://news.puppy-snuggles.com/124416152/dexter-loving-the)
+- [BELLA&amp;#039;S LAST DAY...4/10/22](https://news.puppy-snuggles.com/122307048/bellas-last-day41022)
+- [My doggo](https://news.puppy-snuggles.com/120455233/my-doggo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
