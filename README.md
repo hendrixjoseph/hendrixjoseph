@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Jefe: All crabs must leave the beach and return to the ocean immediately!](https://news.puppy-snuggles.com/124660439/jefe-all-crabs-must-leave-the-beach-and-return-to-the-ocean-immediately)
-- [How do you know?](https://news.puppy-snuggles.com/124660434/how-do-you-know)
-- [Dexter loving the 🌞](https://news.puppy-snuggles.com/124416152/dexter-loving-the)
-- [BELLA&amp;#039;S LAST DAY...4/10/22](https://news.puppy-snuggles.com/122307048/bellas-last-day41022)
-- [My doggo](https://news.puppy-snuggles.com/120455233/my-doggo)
+- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
+- [This guy runs the show at our house.](https://news.puppy-snuggles.com/123106739/this-guy-runs-the-show-at-our-house)
+- [I have to put down my brightest star tomorrow, and it is killing me.](https://news.puppy-snuggles.com/122955868/i-have-to-put-down-my-brightest-star-tomorrow-and-it-is-killing-me)
+- [She loves my shirts 🥰](https://news.puppy-snuggles.com/116635134/she-loves-my-shirts)
+- [beautiful smile](https://news.puppy-snuggles.com/114999763/beautiful-smile)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
