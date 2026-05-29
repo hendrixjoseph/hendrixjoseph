@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
-- [This guy runs the show at our house.](https://news.puppy-snuggles.com/123106739/this-guy-runs-the-show-at-our-house)
-- [I have to put down my brightest star tomorrow, and it is killing me.](https://news.puppy-snuggles.com/122955868/i-have-to-put-down-my-brightest-star-tomorrow-and-it-is-killing-me)
-- [She loves my shirts 🥰](https://news.puppy-snuggles.com/116635134/she-loves-my-shirts)
-- [beautiful smile](https://news.puppy-snuggles.com/114999763/beautiful-smile)
+- [My happy sweet boy](https://news.puppy-snuggles.com/122866181/my-happy-sweet-boy)
+- [Flowers](https://news.puppy-snuggles.com/121803202/flowers)
+- [Hello from Ofelia!](https://news.puppy-snuggles.com/120903824/hello-from-ofelia)
+- [This is Loafy. He is smiling at you. You must smile back. Those are the rules.](https://news.puppy-snuggles.com/119738225/this-is-loafy-he-is-smiling-at-you-you-must-smile-back-those-are-the-rules)
+- [Gf took some amazing pics of our son, thought I’d share them here](https://news.puppy-snuggles.com/114013883/gf-took-some-amazing-pics-of-our-son-thought-id-share-them-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
