@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My happy sweet boy](https://news.puppy-snuggles.com/122866181/my-happy-sweet-boy)
-- [Flowers](https://news.puppy-snuggles.com/121803202/flowers)
-- [Hello from Ofelia!](https://news.puppy-snuggles.com/120903824/hello-from-ofelia)
-- [This is Loafy. He is smiling at you. You must smile back. Those are the rules.](https://news.puppy-snuggles.com/119738225/this-is-loafy-he-is-smiling-at-you-you-must-smile-back-those-are-the-rules)
-- [Gf took some amazing pics of our son, thought I’d share them here](https://news.puppy-snuggles.com/114013883/gf-took-some-amazing-pics-of-our-son-thought-id-share-them-here)
+- [The difference a year makes! Show me your puppies vs now!](https://news.puppy-snuggles.com/123694353/the-difference-a-year-makes-show-me-your-puppies-vs-now)
+- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
+- [My adopted children.](https://news.puppy-snuggles.com/122099416/my-adopted-children)
+- [I&amp;#039;m not crying](https://news.puppy-snuggles.com/121592485/im-not-crying)
+- [Sugar says good morning!! ❤️](https://news.puppy-snuggles.com/118885034/sugar-says-good-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
