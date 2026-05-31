@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The difference a year makes! Show me your puppies vs now!](https://news.puppy-snuggles.com/123694353/the-difference-a-year-makes-show-me-your-puppies-vs-now)
-- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
-- [My adopted children.](https://news.puppy-snuggles.com/122099416/my-adopted-children)
-- [I&amp;#039;m not crying](https://news.puppy-snuggles.com/121592485/im-not-crying)
-- [Sugar says good morning!! ❤️](https://news.puppy-snuggles.com/118885034/sugar-says-good-morning)
+- [Old boy Luca enjoying the day](https://news.puppy-snuggles.com/122243898/old-boy-luca-enjoying-the-day)
+- [Is she a Roxie, a Penelope &lpar;Penny&rpar;, or something else? &lpar;help me name her&rpar;](https://news.puppy-snuggles.com/120514823/is-she-a-roxie-a-penelope-penny-or-something-else-help-me-name-her)
+- [How many times a day do you just stare at your pups in awe?](https://news.puppy-snuggles.com/119620894/how-many-times-a-day-do-you-just-stare-at-your-pups-in-awe)
+- [rocky &amp;amp; chewy spooning](https://news.puppy-snuggles.com/117638176/rocky-chewy-spooning)
+- [My best friend](https://news.puppy-snuggles.com/114515965/my-best-friend)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
