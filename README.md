@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Old boy Luca enjoying the day](https://news.puppy-snuggles.com/122243898/old-boy-luca-enjoying-the-day)
-- [Is she a Roxie, a Penelope &lpar;Penny&rpar;, or something else? &lpar;help me name her&rpar;](https://news.puppy-snuggles.com/120514823/is-she-a-roxie-a-penelope-penny-or-something-else-help-me-name-her)
-- [How many times a day do you just stare at your pups in awe?](https://news.puppy-snuggles.com/119620894/how-many-times-a-day-do-you-just-stare-at-your-pups-in-awe)
-- [rocky &amp;amp; chewy spooning](https://news.puppy-snuggles.com/117638176/rocky-chewy-spooning)
-- [My best friend](https://news.puppy-snuggles.com/114515965/my-best-friend)
+- [My son, Hans.](https://news.puppy-snuggles.com/119193991/my-son-hans)
+- [Meet Gabru ❤](https://news.puppy-snuggles.com/117987191/meet-gabru)
+- [Not sure I did the right thing… I love you, girlie](https://news.puppy-snuggles.com/117511941/not-sure-i-did-the-right-thing-i-love-you-girlie)
+- [Can i get some food ?😂](https://news.puppy-snuggles.com/114336573/can-i-get-some-food)
+- [Perhaps the goodest boy that ever good boy&amp;#039;d...Stetson. -The- Happiest dog I&amp;#039;ve owned.](https://news.puppy-snuggles.com/112187734/perhaps-the-goodest-boy-that-ever-good-boydstetson-the-happiest-dog-ive-owned)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
