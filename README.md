@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My son, Hans.](https://news.puppy-snuggles.com/119193991/my-son-hans)
-- [Meet Gabru ❤](https://news.puppy-snuggles.com/117987191/meet-gabru)
-- [Not sure I did the right thing… I love you, girlie](https://news.puppy-snuggles.com/117511941/not-sure-i-did-the-right-thing-i-love-you-girlie)
-- [Can i get some food ?😂](https://news.puppy-snuggles.com/114336573/can-i-get-some-food)
-- [Perhaps the goodest boy that ever good boy&amp;#039;d...Stetson. -The- Happiest dog I&amp;#039;ve owned.](https://news.puppy-snuggles.com/112187734/perhaps-the-goodest-boy-that-ever-good-boydstetson-the-happiest-dog-ive-owned)
+- [People with Velcro dogs: do you ever feel like you&amp;#039;re failing them?](https://news.puppy-snuggles.com/123534820/people-with-velcro-dogs-do-you-ever-feel-like-youre-failing-them)
+- [My pup&amp;#039;s Halloween costumes](https://news.puppy-snuggles.com/123106746/my-pups-halloween-costumes)
+- [Benito aka Benito Box aka Big Boi Benny](https://news.puppy-snuggles.com/122187383/benito-aka-benito-box-aka-big-boi-benny)
+- [My baby passed away last Wednesday and I’m struggling.](https://news.puppy-snuggles.com/121773595/my-baby-passed-away-last-wednesday-and-im-struggling)
+- [Piper got groomed today](https://news.puppy-snuggles.com/121047690/piper-got-groomed-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
