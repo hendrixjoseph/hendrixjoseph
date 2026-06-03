@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [People with Velcro dogs: do you ever feel like you&amp;#039;re failing them?](https://news.puppy-snuggles.com/123534820/people-with-velcro-dogs-do-you-ever-feel-like-youre-failing-them)
-- [My pup&amp;#039;s Halloween costumes](https://news.puppy-snuggles.com/123106746/my-pups-halloween-costumes)
-- [Benito aka Benito Box aka Big Boi Benny](https://news.puppy-snuggles.com/122187383/benito-aka-benito-box-aka-big-boi-benny)
-- [My baby passed away last Wednesday and I’m struggling.](https://news.puppy-snuggles.com/121773595/my-baby-passed-away-last-wednesday-and-im-struggling)
-- [Piper got groomed today](https://news.puppy-snuggles.com/121047690/piper-got-groomed-today)
+- [Our newest family member, Leopoldina &lpar;Dina for short&rpar;](https://news.puppy-snuggles.com/125092147/our-newest-family-member-leopoldina-dina-for-short)
+- [Ivy enjoying the weather ☀️🥰](https://news.puppy-snuggles.com/125026264/ivy-enjoying-the-weather)
+- [Memorial Weekend](https://news.puppy-snuggles.com/124595323/memorial-weekend)
+- [My new doggy sage !](https://news.puppy-snuggles.com/123961231/my-new-doggy-sage)
+- [Some shots of my babies Rocko &lpar;6&rpar; and Roxie &lpar;7&rpar;](https://news.puppy-snuggles.com/122955877/some-shots-of-my-babies-rocko-6-and-roxie-7)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
