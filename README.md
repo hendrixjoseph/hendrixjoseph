@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Daisy 4ys Golden](https://news.puppy-snuggles.com/124220474/daisy-4ys-golden)
-- [Benedict’s DNA Results](https://news.puppy-snuggles.com/122778829/benedicts-dna-results)
-- [I’m going insane from how much I love her](https://news.puppy-snuggles.com/118614808/im-going-insane-from-how-much-i-love-her)
-- [Got my new baby today](https://news.puppy-snuggles.com/118134637/got-my-new-baby-today)
-- [My beloved beautiful Lucy - Mini Schnauzer](https://news.puppy-snuggles.com/117870246/my-beloved-beautiful-lucy-mini-schnauzer)
+- [Gimli let’s us know when we are doing a good job on his butt scratches 😂🥰 I love him so damn much](https://news.puppy-snuggles.com/124595318/gimli-lets-us-know-when-we-are-doing-a-good-job-on-his-butt-scratches-i-love-him-so-damn-much)
+- [She gave me smile](https://news.puppy-snuggles.com/124352180/she-gave-me-smile)
+- [She enjoyed our walk 🌅](https://news.puppy-snuggles.com/123861039/she-enjoyed-our-walk)
+- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
+- [Ever seen a pointer, rat terrier, cattle dog pit mix?](https://news.puppy-snuggles.com/121466480/ever-seen-a-pointer-rat-terrier-cattle-dog-pit-mix)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
