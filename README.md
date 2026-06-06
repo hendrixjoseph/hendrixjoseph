@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Gimli let’s us know when we are doing a good job on his butt scratches 😂🥰 I love him so damn much](https://news.puppy-snuggles.com/124595318/gimli-lets-us-know-when-we-are-doing-a-good-job-on-his-butt-scratches-i-love-him-so-damn-much)
-- [She gave me smile](https://news.puppy-snuggles.com/124352180/she-gave-me-smile)
-- [She enjoyed our walk 🌅](https://news.puppy-snuggles.com/123861039/she-enjoyed-our-walk)
-- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
-- [Ever seen a pointer, rat terrier, cattle dog pit mix?](https://news.puppy-snuggles.com/121466480/ever-seen-a-pointer-rat-terrier-cattle-dog-pit-mix)
+- [Ghost is is a year old today!!](https://news.puppy-snuggles.com/124595321/ghost-is-is-a-year-old-today)
+- [I graduated medical school!!!](https://news.puppy-snuggles.com/122365063/i-graduated-medical-school)
+- [This is my sweet pup Brooklyn](https://news.puppy-snuggles.com/121047689/this-is-my-sweet-pup-brooklyn)
+- [My baby is turning 3!](https://news.puppy-snuggles.com/120634482/my-baby-is-turning-3)
+- [My Pom is always smiling. Even when resting.](https://news.puppy-snuggles.com/120455234/my-pom-is-always-smiling-even-when-resting)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
