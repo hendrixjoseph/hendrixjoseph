@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ghost is is a year old today!!](https://news.puppy-snuggles.com/124595321/ghost-is-is-a-year-old-today)
-- [I graduated medical school!!!](https://news.puppy-snuggles.com/122365063/i-graduated-medical-school)
-- [This is my sweet pup Brooklyn](https://news.puppy-snuggles.com/121047689/this-is-my-sweet-pup-brooklyn)
-- [My baby is turning 3!](https://news.puppy-snuggles.com/120634482/my-baby-is-turning-3)
-- [My Pom is always smiling. Even when resting.](https://news.puppy-snuggles.com/120455234/my-pom-is-always-smiling-even-when-resting)
+- [It’s my Dog’s Birthday today. She is 13 and gets a Pup patty from In and Out](https://news.puppy-snuggles.com/125819439/its-my-dogs-birthday-today-she-is-13-and-gets-a-pup-patty-from-in-and-out)
+- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
+- [Memorial Weekend](https://news.puppy-snuggles.com/124595323/memorial-weekend)
+- [This is her typical reaction every time she sees me, haha. She’s totally unstoppable.](https://news.puppy-snuggles.com/123961239/this-is-her-typical-reaction-every-time-she-sees-me-haha-shes-totally-unstoppable)
+- [As a puppy, Lola had the best and scariest teefs.](https://news.puppy-snuggles.com/123440748/as-a-puppy-lola-had-the-best-and-scariest-teefs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
