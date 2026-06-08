@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s my Dog’s Birthday today. She is 13 and gets a Pup patty from In and Out](https://news.puppy-snuggles.com/125819439/its-my-dogs-birthday-today-she-is-13-and-gets-a-pup-patty-from-in-and-out)
-- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
-- [Memorial Weekend](https://news.puppy-snuggles.com/124595323/memorial-weekend)
-- [This is her typical reaction every time she sees me, haha. She’s totally unstoppable.](https://news.puppy-snuggles.com/123961239/this-is-her-typical-reaction-every-time-she-sees-me-haha-shes-totally-unstoppable)
-- [As a puppy, Lola had the best and scariest teefs.](https://news.puppy-snuggles.com/123440748/as-a-puppy-lola-had-the-best-and-scariest-teefs)
+- [I love this dude❤️](https://news.puppy-snuggles.com/124723626/i-love-this-dude)
+- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
+- [Heey](https://news.puppy-snuggles.com/121436429/heey)
+- [The power of love. Original wet charcoal and pastel art by Andrew McAdam &lpar;me&rpar;.](https://news.puppy-snuggles.com/121199119/the-power-of-love-original-wet-charcoal-and-pastel-art-by-andrew-mcadam-me)
+- [This is Jasper. My 8 year old beagle. Turning 9, May 6th.](https://news.puppy-snuggles.com/120723845/this-is-jasper-my-8-year-old-beagle-turning-9-may-6th)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
