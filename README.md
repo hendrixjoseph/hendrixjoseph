@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I love this dude❤️](https://news.puppy-snuggles.com/124723626/i-love-this-dude)
-- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
-- [Heey](https://news.puppy-snuggles.com/121436429/heey)
-- [The power of love. Original wet charcoal and pastel art by Andrew McAdam &lpar;me&rpar;.](https://news.puppy-snuggles.com/121199119/the-power-of-love-original-wet-charcoal-and-pastel-art-by-andrew-mcadam-me)
-- [This is Jasper. My 8 year old beagle. Turning 9, May 6th.](https://news.puppy-snuggles.com/120723845/this-is-jasper-my-8-year-old-beagle-turning-9-may-6th)
+- [Thank you.](https://news.puppy-snuggles.com/121375076/thank-you)
+- [Lost Both My Girls w/in 30 days of one another](https://news.puppy-snuggles.com/111222629/lost-both-my-girls-win-30-days-of-one-another)
+- [RIP Zoey.. you will be missed!](https://news.puppy-snuggles.com/97379707/rip-zoey-you-will-be-missed)
+- [I’m a dog walker and I send clients pictures of their dog&lpar;s&rpar; after every walk. These are a few of my favorites](https://news.puppy-snuggles.com/96645845/im-a-dog-walker-and-i-send-clients-pictures-of-their-dogs-after-every-walk-these-are-a-few-of-my-favorites)
+- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
