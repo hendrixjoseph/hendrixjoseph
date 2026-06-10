@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thank you.](https://news.puppy-snuggles.com/121375076/thank-you)
-- [Lost Both My Girls w/in 30 days of one another](https://news.puppy-snuggles.com/111222629/lost-both-my-girls-win-30-days-of-one-another)
-- [RIP Zoey.. you will be missed!](https://news.puppy-snuggles.com/97379707/rip-zoey-you-will-be-missed)
-- [I’m a dog walker and I send clients pictures of their dog&lpar;s&rpar; after every walk. These are a few of my favorites](https://news.puppy-snuggles.com/96645845/im-a-dog-walker-and-i-send-clients-pictures-of-their-dogs-after-every-walk-these-are-a-few-of-my-favorites)
-- [Everyone meet the sweetest rescue Nylah.](https://news.puppy-snuggles.com/84351629/everyone-meet-the-sweetest-rescue-nylah)
+- [I am Jimmy!](https://news.puppy-snuggles.com/123292744/i-am-jimmy)
+- [it’s her day off](https://news.puppy-snuggles.com/115057666/its-her-day-off)
+- [I think she is saving my life and its not even my dog](https://news.puppy-snuggles.com/102002520/i-think-she-is-saving-my-life-and-its-not-even-my-dog)
+- [My dog wouldn&amp;#039;t make it on the street](https://news.puppy-snuggles.com/101533633/my-dog-wouldnt-make-it-on-the-street)
+- [I’m just gonna sleep like this…Wrigley](https://news.puppy-snuggles.com/96370389/im-just-gonna-sleep-like-thiswrigley)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
