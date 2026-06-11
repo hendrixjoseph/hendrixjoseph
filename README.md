@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I am Jimmy!](https://news.puppy-snuggles.com/123292744/i-am-jimmy)
-- [it’s her day off](https://news.puppy-snuggles.com/115057666/its-her-day-off)
-- [I think she is saving my life and its not even my dog](https://news.puppy-snuggles.com/102002520/i-think-she-is-saving-my-life-and-its-not-even-my-dog)
-- [My dog wouldn&amp;#039;t make it on the street](https://news.puppy-snuggles.com/101533633/my-dog-wouldnt-make-it-on-the-street)
-- [I’m just gonna sleep like this…Wrigley](https://news.puppy-snuggles.com/96370389/im-just-gonna-sleep-like-thiswrigley)
+- [What else is mixed with this lab?](https://news.puppy-snuggles.com/122214862/what-else-is-mixed-with-this-lab)
+- [The sweetest soul 💛](https://news.puppy-snuggles.com/121683712/the-sweetest-soul)
+- [My Marley is happy to see me!](https://news.puppy-snuggles.com/120992563/my-marley-is-happy-to-see-me)
+- [Mr Dog just wants to say hello!](https://news.puppy-snuggles.com/120813945/mr-dog-just-wants-to-say-hello)
+- [Dog I&amp;#039;m thinking of buying](https://news.puppy-snuggles.com/113593375/dog-im-thinking-of-buying)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
