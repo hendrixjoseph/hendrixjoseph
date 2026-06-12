@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What else is mixed with this lab?](https://news.puppy-snuggles.com/122214862/what-else-is-mixed-with-this-lab)
-- [The sweetest soul 💛](https://news.puppy-snuggles.com/121683712/the-sweetest-soul)
-- [My Marley is happy to see me!](https://news.puppy-snuggles.com/120992563/my-marley-is-happy-to-see-me)
-- [Mr Dog just wants to say hello!](https://news.puppy-snuggles.com/120813945/mr-dog-just-wants-to-say-hello)
-- [Dog I&amp;#039;m thinking of buying](https://news.puppy-snuggles.com/113593375/dog-im-thinking-of-buying)
+- [chilling on the couch with her custom blanket 🥹](https://news.puppy-snuggles.com/124058149/chilling-on-the-couch-with-her-custom-blanket)
+- [Rescued some babies](https://news.puppy-snuggles.com/121834083/rescued-some-babies)
+- [my dog and her new best friend 🥹](https://news.puppy-snuggles.com/121683710/my-dog-and-her-new-best-friend)
+- [Rest In Peace to my sweet Bella 2020-2026](https://news.puppy-snuggles.com/117478906/rest-in-peace-to-my-sweet-bella-2020-2026)
+- [Look at the speed](https://news.puppy-snuggles.com/113051108/look-at-the-speed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
