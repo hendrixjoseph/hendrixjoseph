@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [MET Values for each Exercise in MapMyFitness](https://www.joehxblog.com/met-values-for-each-exercise-in-mapmyfitness/)
 - [My Thoughts on the FitBit Air - From Someone Who&#39;s Never Used a Fitness Tracker](https://www.joehxblog.com/my-thoughts-on-the-fitbit-air-from-someone-who's-never-used-a-fitness-tracker/)
 - [My Next Fitness Goal - Carry my Wife](https://www.joehxblog.com/my-next-fitness-goal-carry-my-wife/)
 - [A Poké Ball for My Son&#39;s Birthday](https://www.joehxblog.com/a-pokeball-for-my-sons-birthday/)
 - [Goodbye, Arcadia Power](https://www.joehxblog.com/goodbye-arcadia-power/)
-- [Worthy Peer Capital Bonds Are Now Worthless](https://www.joehxblog.com/worthy-peer-capital-bonds-are-now-worthless/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
