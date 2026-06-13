@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [chilling on the couch with her custom blanket 🥹](https://news.puppy-snuggles.com/124058149/chilling-on-the-couch-with-her-custom-blanket)
-- [Rescued some babies](https://news.puppy-snuggles.com/121834083/rescued-some-babies)
-- [my dog and her new best friend 🥹](https://news.puppy-snuggles.com/121683710/my-dog-and-her-new-best-friend)
-- [Rest In Peace to my sweet Bella 2020-2026](https://news.puppy-snuggles.com/117478906/rest-in-peace-to-my-sweet-bella-2020-2026)
-- [Look at the speed](https://news.puppy-snuggles.com/113051108/look-at-the-speed)
+- [My sweet Bug](https://news.puppy-snuggles.com/125269474/my-sweet-bug)
+- [zoomies go nyoooom](https://news.puppy-snuggles.com/124954889/zoomies-go-nyoooom)
+- [What do we think Milos breed is?](https://news.puppy-snuggles.com/122307045/what-do-we-think-milos-breed-is)
+- [My rescue pup!](https://news.puppy-snuggles.com/122156493/my-rescue-pup)
+- [My wonderful gross dog](https://news.puppy-snuggles.com/122156500/my-wonderful-gross-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
