@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
-- [/u/joehx on Dayton Children&#39;s receives $40M gift, will rename main campus after donor](https://www.reddit.com/r/dayton/comments/1srrhky/dayton_childrens_receives_40m_gift_will_rename/ohiexrm/)
-- [/u/joehx on meirl](https://www.reddit.com/r/meirl/comments/1sdd6sf/meirl/oeisft8/)
-- [/u/joehx on ELI5 what is vibe coding and why is everyone making jokes about it?](https://www.reddit.com/r/explainlikeimfive/comments/1s1y5aq/eli5_what_is_vibe_coding_and_why_is_everyone/oc4h9fe/)
-- [/u/joehx on Can someone help me with the OT deduction?](https://www.reddit.com/r/personalfinance/comments/1rttf51/can_someone_help_me_with_the_ot_deduction/oagj1a5/)
-- [/u/joehx on What&#39;s a restaurant red flag that tells you the food isn&#39;t going to be good?](https://www.reddit.com/r/AskReddit/comments/1rjw0px/whats_a_restaurant_red_flag_that_tells_you_the/o8hkjo1/)
+- [/u/joehx on ELI5: What are real numbers? I have the notion till rational. Other math sub will make it too difficult for me.](https://www.reddit.com/r/explainlikeimfive/comments/1u42ngl/eli5_what_are_real_numbers_i_have_the_notion_till/orbuoq2/)
+- [/u/joehx on ELI5:Why do movies from the &#39;90s and early 2000s often have a warm yellowish tone, visible film grain, and a smooth, cinematic look that feels more visually appealing than many modern films?](https://www.reddit.com/r/explainlikeimfive/comments/1u20fzs/eli5why_do_movies_from_the_90s_and_early_2000s/oqtyxh5/)
+- [/u/joehx on LPT: Lost the valve cap on your tyre? Look in the gravel around the air machine at any petrol station](https://www.reddit.com/r/LifeProTips/comments/1u1mby5/lpt_lost_the_valve_cap_on_your_tyre_look_in_the/oqqyj6k/)
+- [/u/joehx on Financial checklist for expecting and new parents. Things most people miss](https://www.reddit.com/r/financialindependence/comments/1u0apvs/financial_checklist_for_expecting_and_new_parents/oqit2ia/)
+- [/u/joehx on Any ETA on the app please?](https://www.reddit.com/r/Runalyze/comments/1tvweip/any_eta_on_the_app_please/opowjkd/)
 <!-- REDDIT:END -->
