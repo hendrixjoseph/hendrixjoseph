@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet Bug](https://news.puppy-snuggles.com/125269474/my-sweet-bug)
-- [zoomies go nyoooom](https://news.puppy-snuggles.com/124954889/zoomies-go-nyoooom)
-- [What do we think Milos breed is?](https://news.puppy-snuggles.com/122307045/what-do-we-think-milos-breed-is)
-- [My rescue pup!](https://news.puppy-snuggles.com/122156493/my-rescue-pup)
-- [My wonderful gross dog](https://news.puppy-snuggles.com/122156500/my-wonderful-gross-dog)
+- [Got some bad news at the vet yesterday](https://news.puppy-snuggles.com/125819434/got-some-bad-news-at-the-vet-yesterday)
+- [puppy!!!!](https://news.puppy-snuggles.com/124024804/puppy)
+- [He is stinky.](https://news.puppy-snuggles.com/123723932/he-is-stinky)
+- [More Lola? OK.](https://news.puppy-snuggles.com/123500705/more-lola-ok)
+- [Piper got groomed today](https://news.puppy-snuggles.com/121047690/piper-got-groomed-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
