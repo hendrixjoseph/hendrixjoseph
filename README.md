@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Got some bad news at the vet yesterday](https://news.puppy-snuggles.com/125819434/got-some-bad-news-at-the-vet-yesterday)
-- [puppy!!!!](https://news.puppy-snuggles.com/124024804/puppy)
-- [He is stinky.](https://news.puppy-snuggles.com/123723932/he-is-stinky)
-- [More Lola? OK.](https://news.puppy-snuggles.com/123500705/more-lola-ok)
-- [Piper got groomed today](https://news.puppy-snuggles.com/121047690/piper-got-groomed-today)
+- [Little combo platter](https://news.puppy-snuggles.com/123595578/little-combo-platter)
+- [This is Abby, she’s the most pretty puppy princess in the whole universe](https://news.puppy-snuggles.com/123407637/this-is-abby-shes-the-most-pretty-puppy-princess-in-the-whole-universe)
+- [Charlie Was Here, and He Loved, Fiercely: A Eulogy](https://news.puppy-snuggles.com/123073296/charlie-was-here-and-he-loved-fiercely-a-eulogy)
+- [Best friend ever.](https://news.puppy-snuggles.com/121803190/best-friend-ever)
+- [Dog sounds hollow](https://news.puppy-snuggles.com/118134638/dog-sounds-hollow)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
