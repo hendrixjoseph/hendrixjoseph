@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Does anyone else dog go looking for counter snacks?](https://news.puppy-snuggles.com/125953941/does-anyone-else-dog-go-looking-for-counter-snacks)
-- [His eyes wander, but his heart never does 🥹](https://news.puppy-snuggles.com/122926733/his-eyes-wander-but-his-heart-never-does)
-- [A sunny day for Rebus](https://news.puppy-snuggles.com/122517889/a-sunny-day-for-rebus)
-- [Is my dog fat?](https://news.puppy-snuggles.com/121344863/is-my-dog-fat)
-- [My sweet girl left me today](https://news.puppy-snuggles.com/120930577/my-sweet-girl-left-me-today)
+- [Penny turned 1 yesterday!](https://news.puppy-snuggles.com/122722477/penny-turned-1-yesterday)
+- [A selection of smiles from Nui ! 🐶🧡](https://news.puppy-snuggles.com/122275314/a-selection-of-smiles-from-nui)
+- [Fern and I when we were about to leave the shelter 🐾🌿](https://news.puppy-snuggles.com/120249494/fern-and-i-when-we-were-about-to-leave-the-shelter)
+- [My best friend is getting TPLO surgery today…. It’s killing me.](https://news.puppy-snuggles.com/118526912/my-best-friend-is-getting-tplo-surgery-today-its-killing-me)
+- [It’s my baby girl’s tenth birthday today 🥹](https://news.puppy-snuggles.com/118346856/its-my-baby-girls-tenth-birthday-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
