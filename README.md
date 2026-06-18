@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Penny turned 1 yesterday!](https://news.puppy-snuggles.com/122722477/penny-turned-1-yesterday)
-- [A selection of smiles from Nui ! 🐶🧡](https://news.puppy-snuggles.com/122275314/a-selection-of-smiles-from-nui)
-- [Fern and I when we were about to leave the shelter 🐾🌿](https://news.puppy-snuggles.com/120249494/fern-and-i-when-we-were-about-to-leave-the-shelter)
-- [My best friend is getting TPLO surgery today…. It’s killing me.](https://news.puppy-snuggles.com/118526912/my-best-friend-is-getting-tplo-surgery-today-its-killing-me)
-- [It’s my baby girl’s tenth birthday today 🥹](https://news.puppy-snuggles.com/118346856/its-my-baby-girls-tenth-birthday-today)
+- [Saturday we said goodbye to Sarge after 12 fantastic years](https://news.puppy-snuggles.com/125992985/saturday-we-said-goodbye-to-sarge-after-12-fantastic-years)
+- [My happy puppies 😁](https://news.puppy-snuggles.com/125713652/my-happy-puppies)
+- [Couldn’t love each other more😂❤️](https://news.puppy-snuggles.com/125713647/couldnt-love-each-other-more)
+- [Spencer’s judging you softly, but very thoroughly](https://news.puppy-snuggles.com/124521851/spencers-judging-you-softly-but-very-thoroughly)
+- [🐶Happy National Rescue Dog Day 🐶](https://news.puppy-snuggles.com/124155577/happy-national-rescue-dog-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
