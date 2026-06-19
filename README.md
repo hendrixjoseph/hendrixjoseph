@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Saturday we said goodbye to Sarge after 12 fantastic years](https://news.puppy-snuggles.com/125992985/saturday-we-said-goodbye-to-sarge-after-12-fantastic-years)
-- [My happy puppies 😁](https://news.puppy-snuggles.com/125713652/my-happy-puppies)
-- [Couldn’t love each other more😂❤️](https://news.puppy-snuggles.com/125713647/couldnt-love-each-other-more)
-- [Spencer’s judging you softly, but very thoroughly](https://news.puppy-snuggles.com/124521851/spencers-judging-you-softly-but-very-thoroughly)
-- [🐶Happy National Rescue Dog Day 🐶](https://news.puppy-snuggles.com/124155577/happy-national-rescue-dog-day)
+- [Happy Birthday Charlie!](https://news.puppy-snuggles.com/125540933/happy-birthday-charlie)
+- [He has two summer homes now.](https://news.puppy-snuggles.com/125335973/he-has-two-summer-homes-now)
+- [They said my dog was too ugly to be adopted](https://news.puppy-snuggles.com/113902814/they-said-my-dog-was-too-ugly-to-be-adopted)
+- [Just passed 1 year without him](https://news.puppy-snuggles.com/112906689/just-passed-1-year-without-him)
+- [We had to say goodbye to darla after 16years of being around.](https://news.puppy-snuggles.com/112339844/we-had-to-say-goodbye-to-darla-after-16years-of-being-around)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
