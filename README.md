@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy Birthday Charlie!](https://news.puppy-snuggles.com/125540933/happy-birthday-charlie)
-- [He has two summer homes now.](https://news.puppy-snuggles.com/125335973/he-has-two-summer-homes-now)
-- [They said my dog was too ugly to be adopted](https://news.puppy-snuggles.com/113902814/they-said-my-dog-was-too-ugly-to-be-adopted)
-- [Just passed 1 year without him](https://news.puppy-snuggles.com/112906689/just-passed-1-year-without-him)
-- [We had to say goodbye to darla after 16years of being around.](https://news.puppy-snuggles.com/112339844/we-had-to-say-goodbye-to-darla-after-16years-of-being-around)
+- [Adopted an Abandoned Pup](https://news.puppy-snuggles.com/116908270/adopted-an-abandoned-pup)
+- [I just love my dog](https://news.puppy-snuggles.com/112076847/i-just-love-my-dog)
+- [10 week old Mali!](https://news.puppy-snuggles.com/104846918/10-week-old-mali)
+- [My sweet old man in his favorite spot](https://news.puppy-snuggles.com/98033848/my-sweet-old-man-in-his-favorite-spot)
+- [Writing this as I put my down to sleep.](https://news.puppy-snuggles.com/93415075/writing-this-as-i-put-my-down-to-sleep)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
