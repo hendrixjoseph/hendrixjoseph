@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Adopted an Abandoned Pup](https://news.puppy-snuggles.com/116908270/adopted-an-abandoned-pup)
-- [I just love my dog](https://news.puppy-snuggles.com/112076847/i-just-love-my-dog)
-- [10 week old Mali!](https://news.puppy-snuggles.com/104846918/10-week-old-mali)
-- [My sweet old man in his favorite spot](https://news.puppy-snuggles.com/98033848/my-sweet-old-man-in-his-favorite-spot)
-- [Writing this as I put my down to sleep.](https://news.puppy-snuggles.com/93415075/writing-this-as-i-put-my-down-to-sleep)
+- [I almost missed days like this without realizing it.](https://news.puppy-snuggles.com/126498976/i-almost-missed-days-like-this-without-realizing-it)
+- [Beagle smile](https://news.puppy-snuggles.com/125370071/beagle-smile)
+- [His name is Blue &amp;amp; he&amp;#039;s a Chonk](https://news.puppy-snuggles.com/123925822/his-name-is-blue-hes-a-chonk)
+- [Parvo virus tried to knock him down, but my snow not giving up!](https://news.puppy-snuggles.com/122243903/parvo-virus-tried-to-knock-him-down-but-my-snow-not-giving-up)
+- [Drop your dog photo, ill draw em.](https://news.puppy-snuggles.com/120874939/drop-your-dog-photo-ill-draw-em)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
