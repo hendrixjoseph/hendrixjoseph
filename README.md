@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Handsome boy!](https://news.puppy-snuggles.com/125888736/my-handsome-boy)
-- [Harry AKA Pablo Escobark wants to say hi!](https://news.puppy-snuggles.com/125504586/harry-aka-pablo-escobark-wants-to-say-hi)
-- [Rainbow Bridge Crossing Today](https://news.puppy-snuggles.com/122365062/rainbow-bridge-crossing-today)
-- [It’s Hazel’s 7th Birthday! 🎂](https://news.puppy-snuggles.com/118976705/its-hazels-7th-birthday)
-- [[OC] This good boi at a No Kings rally today 🐶](https://news.puppy-snuggles.com/118225746/oc-this-good-boi-at-a-no-kings-rally-today)
+- [Whatcha up to?](https://news.puppy-snuggles.com/126629356/whatcha-up-to)
+- [A little smile before bath time 😆🛁🐶](https://news.puppy-snuggles.com/126265424/a-little-smile-before-bath-time)
+- [Just adopted this guy a few days ago. Sleeping so hard his tongue is out.](https://news.puppy-snuggles.com/125713646/just-adopted-this-guy-a-few-days-ago-sleeping-so-hard-his-tongue-is-out)
+- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
+- [Parvo virus tried to knock him down, but my snow not giving up!](https://news.puppy-snuggles.com/122243903/parvo-virus-tried-to-knock-him-down-but-my-snow-not-giving-up)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
