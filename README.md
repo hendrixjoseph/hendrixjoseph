@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Whatcha up to?](https://news.puppy-snuggles.com/126629356/whatcha-up-to)
-- [A little smile before bath time 😆🛁🐶](https://news.puppy-snuggles.com/126265424/a-little-smile-before-bath-time)
-- [Just adopted this guy a few days ago. Sleeping so hard his tongue is out.](https://news.puppy-snuggles.com/125713646/just-adopted-this-guy-a-few-days-ago-sleeping-so-hard-his-tongue-is-out)
-- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
-- [Parvo virus tried to knock him down, but my snow not giving up!](https://news.puppy-snuggles.com/122243903/parvo-virus-tried-to-knock-him-down-but-my-snow-not-giving-up)
+- [Matilda Smiles!](https://news.puppy-snuggles.com/127083675/matilda-smiles)
+- [Celebrating the girls staying still long enough for me to capture this moment 🤲🥳](https://news.puppy-snuggles.com/126366469/celebrating-the-girls-staying-still-long-enough-for-me-to-capture-this-moment)
+- [I feel guilty because I’m not grieving](https://news.puppy-snuggles.com/124824113/i-feel-guilty-because-im-not-grieving)
+- [Wilbur and Flick. What a pair 🤩](https://news.puppy-snuggles.com/121108697/wilbur-and-flick-what-a-pair)
+- [Australian Shepherd Mix 🍫](https://news.puppy-snuggles.com/120103052/australian-shepherd-mix)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
