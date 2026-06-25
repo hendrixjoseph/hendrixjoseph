@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Matilda Smiles!](https://news.puppy-snuggles.com/127083675/matilda-smiles)
-- [Celebrating the girls staying still long enough for me to capture this moment 🤲🥳](https://news.puppy-snuggles.com/126366469/celebrating-the-girls-staying-still-long-enough-for-me-to-capture-this-moment)
-- [I feel guilty because I’m not grieving](https://news.puppy-snuggles.com/124824113/i-feel-guilty-because-im-not-grieving)
-- [Wilbur and Flick. What a pair 🤩](https://news.puppy-snuggles.com/121108697/wilbur-and-flick-what-a-pair)
-- [Australian Shepherd Mix 🍫](https://news.puppy-snuggles.com/120103052/australian-shepherd-mix)
+- [My pup&amp;#039;s Halloween costumes](https://news.puppy-snuggles.com/123106746/my-pups-halloween-costumes)
+- [My main man Lando](https://news.puppy-snuggles.com/122156496/my-main-man-lando)
+- [I miss my dog.](https://news.puppy-snuggles.com/121228272/i-miss-my-dog)
+- [The day our soul dog left us, we realized he never really left at all](https://news.puppy-snuggles.com/120903825/the-day-our-soul-dog-left-us-we-realized-he-never-really-left-at-all)
+- [He chose this life 😂](https://news.puppy-snuggles.com/120755631/he-chose-this-life)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
