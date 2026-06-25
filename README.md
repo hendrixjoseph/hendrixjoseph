@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What is a life luxury that you tasted once and now can absolutely never go back to the cheap version of?](https://www.reddit.com/r/AskReddit/comments/1uel2iq/what_is_a_life_luxury_that_you_tasted_once_and/otm1pid/)
 - [/u/joehx on Chase Freedom Q3 2026 Categories: Gas Stations and EV Charging, Public Transit, Select Live Entertainment and United Way](https://www.reddit.com/r/CreditCards/comments/1u5leh4/chase_freedom_q3_2026_categories_gas_stations_and/orrx7mz/)
 - [/u/joehx on ELI5: What are real numbers? I have the notion till rational. Other math sub will make it too difficult for me.](https://www.reddit.com/r/explainlikeimfive/comments/1u42ngl/eli5_what_are_real_numbers_i_have_the_notion_till/orbuoq2/)
 - [/u/joehx on ELI5:Why do movies from the &#39;90s and early 2000s often have a warm yellowish tone, visible film grain, and a smooth, cinematic look that feels more visually appealing than many modern films?](https://www.reddit.com/r/explainlikeimfive/comments/1u20fzs/eli5why_do_movies_from_the_90s_and_early_2000s/oqtyxh5/)
 - [/u/joehx on LPT: Lost the valve cap on your tyre? Look in the gravel around the air machine at any petrol station](https://www.reddit.com/r/LifeProTips/comments/1u1mby5/lpt_lost_the_valve_cap_on_your_tyre_look_in_the/oqqyj6k/)
-- [/u/joehx on Financial checklist for expecting and new parents. Things most people miss](https://www.reddit.com/r/financialindependence/comments/1u0apvs/financial_checklist_for_expecting_and_new_parents/oqit2ia/)
 <!-- REDDIT:END -->
