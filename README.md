@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My pup&amp;#039;s Halloween costumes](https://news.puppy-snuggles.com/123106746/my-pups-halloween-costumes)
-- [My main man Lando](https://news.puppy-snuggles.com/122156496/my-main-man-lando)
-- [I miss my dog.](https://news.puppy-snuggles.com/121228272/i-miss-my-dog)
-- [The day our soul dog left us, we realized he never really left at all](https://news.puppy-snuggles.com/120903825/the-day-our-soul-dog-left-us-we-realized-he-never-really-left-at-all)
-- [He chose this life 😂](https://news.puppy-snuggles.com/120755631/he-chose-this-life)
+- [Up to no good](https://news.puppy-snuggles.com/124660433/up-to-no-good)
+- [My boy, Metztli.](https://news.puppy-snuggles.com/124250151/my-boy-metztli)
+- [Can anyone tell me why my dog does this?](https://news.puppy-snuggles.com/124155568/can-anyone-tell-me-why-my-dog-does-this)
+- [Present. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/123073298/present-original-charcoal-and-pastel-art-by-me)
+- [Someone reached out on my last post to tell me my dog is fat — are they right or is it just the winter floof?](https://news.puppy-snuggles.com/122036600/someone-reached-out-on-my-last-post-to-tell-me-my-dog-is-fat-are-they-right-or-is-it-just-the-winter-floof)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
