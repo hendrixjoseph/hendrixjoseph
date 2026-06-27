@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Up to no good](https://news.puppy-snuggles.com/124660433/up-to-no-good)
-- [My boy, Metztli.](https://news.puppy-snuggles.com/124250151/my-boy-metztli)
-- [Can anyone tell me why my dog does this?](https://news.puppy-snuggles.com/124155568/can-anyone-tell-me-why-my-dog-does-this)
-- [Present. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/123073298/present-original-charcoal-and-pastel-art-by-me)
-- [Someone reached out on my last post to tell me my dog is fat — are they right or is it just the winter floof?](https://news.puppy-snuggles.com/122036600/someone-reached-out-on-my-last-post-to-tell-me-my-dog-is-fat-are-they-right-or-is-it-just-the-winter-floof)
+- [12 years young on Father’s Day!](https://news.puppy-snuggles.com/127471988/12-years-young-on-fathers-day)
+- [Can you resist this smile? I know I can’t. 😍](https://news.puppy-snuggles.com/125819431/can-you-resist-this-smile-i-know-i-cant)
+- [At least he got his fish.](https://news.puppy-snuggles.com/122722476/at-least-he-got-his-fish)
+- [Still worried about my pups staples - please help](https://news.puppy-snuggles.com/122397374/still-worried-about-my-pups-staples-please-help)
+- [The sweetest soul 💛](https://news.puppy-snuggles.com/121683712/the-sweetest-soul)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
