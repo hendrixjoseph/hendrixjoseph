@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [12 years young on Father’s Day!](https://news.puppy-snuggles.com/127471988/12-years-young-on-fathers-day)
-- [Can you resist this smile? I know I can’t. 😍](https://news.puppy-snuggles.com/125819431/can-you-resist-this-smile-i-know-i-cant)
-- [At least he got his fish.](https://news.puppy-snuggles.com/122722476/at-least-he-got-his-fish)
-- [Still worried about my pups staples - please help](https://news.puppy-snuggles.com/122397374/still-worried-about-my-pups-staples-please-help)
-- [The sweetest soul 💛](https://news.puppy-snuggles.com/121683712/the-sweetest-soul)
+- [A fun day in the mountains](https://news.puppy-snuggles.com/127667283/a-fun-day-in-the-mountains)
+- [This happens every time he hears the sound of a package opening](https://news.puppy-snuggles.com/126601452/this-happens-every-time-he-hears-the-sound-of-a-package-opening)
+- [Bonding with my rescue](https://news.puppy-snuggles.com/126099357/bonding-with-my-rescue)
+- [I just want to share my boy with you all](https://news.puppy-snuggles.com/124885529/i-just-want-to-share-my-boy-with-you-all)
+- [today is my best friend’s sweet 16! happy birthday Ella💕🎉](https://news.puppy-snuggles.com/124089606/today-is-my-best-friends-sweet-16-happy-birthday-ella)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
