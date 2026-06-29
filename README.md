@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A fun day in the mountains](https://news.puppy-snuggles.com/127667283/a-fun-day-in-the-mountains)
-- [This happens every time he hears the sound of a package opening](https://news.puppy-snuggles.com/126601452/this-happens-every-time-he-hears-the-sound-of-a-package-opening)
-- [Bonding with my rescue](https://news.puppy-snuggles.com/126099357/bonding-with-my-rescue)
-- [I just want to share my boy with you all](https://news.puppy-snuggles.com/124885529/i-just-want-to-share-my-boy-with-you-all)
-- [today is my best friend’s sweet 16! happy birthday Ella💕🎉](https://news.puppy-snuggles.com/124089606/today-is-my-best-friends-sweet-16-happy-birthday-ella)
+- [Sit on the couch with me mom!](https://news.puppy-snuggles.com/124988751/sit-on-the-couch-with-me-mom)
+- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
+- [1 year anniversary of being rescued.](https://news.puppy-snuggles.com/122926735/1-year-anniversary-of-being-rescued)
+- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
+- [3 years of dealing with his stubbornness but I love em!](https://news.puppy-snuggles.com/122009257/3-years-of-dealing-with-his-stubbornness-but-i-love-em)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
