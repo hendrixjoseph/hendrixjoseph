@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sit on the couch with me mom!](https://news.puppy-snuggles.com/124988751/sit-on-the-couch-with-me-mom)
-- [My dog has something important to say](https://news.puppy-snuggles.com/123625224/my-dog-has-something-important-to-say)
-- [1 year anniversary of being rescued.](https://news.puppy-snuggles.com/122926735/1-year-anniversary-of-being-rescued)
-- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
-- [3 years of dealing with his stubbornness but I love em!](https://news.puppy-snuggles.com/122009257/3-years-of-dealing-with-his-stubbornness-but-i-love-em)
+- [Birthday boy](https://news.puppy-snuggles.com/127437934/birthday-boy)
+- [Ms. Beggy McBeggarsen](https://news.puppy-snuggles.com/127053673/ms-beggy-mcbeggarsen)
+- [Say hello to Penelope! She officially became family last night 🤗🤗🤗](https://news.puppy-snuggles.com/124824116/say-hello-to-penelope-she-officially-became-family-last-night)
+- [first bath went as well as expected](https://news.puppy-snuggles.com/124284176/first-bath-went-as-well-as-expected)
+- [My two babies attacking my dad](https://news.puppy-snuggles.com/123694361/my-two-babies-attacking-my-dad)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
