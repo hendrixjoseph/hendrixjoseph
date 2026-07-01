@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Birthday boy](https://news.puppy-snuggles.com/127437934/birthday-boy)
-- [Ms. Beggy McBeggarsen](https://news.puppy-snuggles.com/127053673/ms-beggy-mcbeggarsen)
-- [Say hello to Penelope! She officially became family last night 🤗🤗🤗](https://news.puppy-snuggles.com/124824116/say-hello-to-penelope-she-officially-became-family-last-night)
-- [first bath went as well as expected](https://news.puppy-snuggles.com/124284176/first-bath-went-as-well-as-expected)
-- [My two babies attacking my dad](https://news.puppy-snuggles.com/123694361/my-two-babies-attacking-my-dad)
+- [Is this a good idea?](https://news.puppy-snuggles.com/124595314/is-this-a-good-idea)
+- [Just a smiling dog and some flowers to brighten your day🌸🐶](https://news.puppy-snuggles.com/124220466/just-a-smiling-dog-and-some-flowers-to-brighten-your-day)
+- [Pretty girls](https://news.puppy-snuggles.com/124155574/pretty-girls)
+- [Working on his smile](https://news.puppy-snuggles.com/121592478/working-on-his-smile)
+- [Still in that carefree, happy puppy phase 😊](https://news.puppy-snuggles.com/121531391/still-in-that-carefree-happy-puppy-phase)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
