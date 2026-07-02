@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is this a good idea?](https://news.puppy-snuggles.com/124595314/is-this-a-good-idea)
-- [Just a smiling dog and some flowers to brighten your day🌸🐶](https://news.puppy-snuggles.com/124220466/just-a-smiling-dog-and-some-flowers-to-brighten-your-day)
-- [Pretty girls](https://news.puppy-snuggles.com/124155574/pretty-girls)
-- [Working on his smile](https://news.puppy-snuggles.com/121592478/working-on-his-smile)
-- [Still in that carefree, happy puppy phase 😊](https://news.puppy-snuggles.com/121531391/still-in-that-carefree-happy-puppy-phase)
+- [My 18 year old dog!](https://news.puppy-snuggles.com/126810428/my-18-year-old-dog)
+- [If I fits I sits, but if I don&amp;#039;t fits I also sits](https://news.puppy-snuggles.com/126432021/if-i-fits-i-sits-but-if-i-dont-fits-i-also-sits)
+- [Here is how “Bella” greets me ♥️🐶](https://news.puppy-snuggles.com/126366470/here-is-how-bella-greets-me)
+- [my puppy](https://news.puppy-snuggles.com/123793568/my-puppy)
+- [First time travelling together in the car boot](https://news.puppy-snuggles.com/121375085/first-time-travelling-together-in-the-car-boot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
