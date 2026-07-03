@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 18 year old dog!](https://news.puppy-snuggles.com/126810428/my-18-year-old-dog)
-- [If I fits I sits, but if I don&amp;#039;t fits I also sits](https://news.puppy-snuggles.com/126432021/if-i-fits-i-sits-but-if-i-dont-fits-i-also-sits)
-- [Here is how “Bella” greets me ♥️🐶](https://news.puppy-snuggles.com/126366470/here-is-how-bella-greets-me)
-- [my puppy](https://news.puppy-snuggles.com/123793568/my-puppy)
-- [First time travelling together in the car boot](https://news.puppy-snuggles.com/121375085/first-time-travelling-together-in-the-car-boot)
+- [My dog, Poppy](https://news.puppy-snuggles.com/128288505/my-dog-poppy)
+- [Why? Why would you do this to me!?](https://news.puppy-snuggles.com/128288506/why-why-would-you-do-this-to-me)
+- [I love spending time with this beautiful lady ❤️🐶](https://news.puppy-snuggles.com/127536729/i-love-spending-time-with-this-beautiful-lady)
+- [Coming home. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/127536726/coming-home-original-wet-charcoal-and-pastel-art-by-me)
+- [Cute Cute Bagel wishes u feeling cozy like her every day!](https://news.puppy-snuggles.com/126991885/cute-cute-bagel-wishes-u-feeling-cozy-like-her-every-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
