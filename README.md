@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog, Poppy](https://news.puppy-snuggles.com/128288505/my-dog-poppy)
-- [Why? Why would you do this to me!?](https://news.puppy-snuggles.com/128288506/why-why-would-you-do-this-to-me)
-- [I love spending time with this beautiful lady ❤️🐶](https://news.puppy-snuggles.com/127536729/i-love-spending-time-with-this-beautiful-lady)
-- [Coming home. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/127536726/coming-home-original-wet-charcoal-and-pastel-art-by-me)
-- [Cute Cute Bagel wishes u feeling cozy like her every day!](https://news.puppy-snuggles.com/126991885/cute-cute-bagel-wishes-u-feeling-cozy-like-her-every-day)
+- [had a seizure on our walk &lpar;first one i’ve had outside&rpar; ruby got to ride the ambulance too🤭](https://news.puppy-snuggles.com/127053668/had-a-seizure-on-our-walk-first-one-ive-had-outside-ruby-got-to-ride-the-ambulance-too)
+- [I always post my cats on the cat subreddit but have never posted my dog here, so here he is! Meet Beer 🐶](https://news.puppy-snuggles.com/121019831/i-always-post-my-cats-on-the-cat-subreddit-but-have-never-posted-my-dog-here-so-here-he-is-meet-beer)
+- [Said goodbye to my best friend yesterday](https://news.puppy-snuggles.com/120545431/said-goodbye-to-my-best-friend-yesterday)
+- [Send good thoughts for baby Pretz](https://news.puppy-snuggles.com/120132546/send-good-thoughts-for-baby-pretz)
+- [Adopting a Senior Dog?](https://news.puppy-snuggles.com/119531065/adopting-a-senior-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
