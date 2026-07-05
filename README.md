@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [had a seizure on our walk &lpar;first one i’ve had outside&rpar; ruby got to ride the ambulance too🤭](https://news.puppy-snuggles.com/127053668/had-a-seizure-on-our-walk-first-one-ive-had-outside-ruby-got-to-ride-the-ambulance-too)
-- [I always post my cats on the cat subreddit but have never posted my dog here, so here he is! Meet Beer 🐶](https://news.puppy-snuggles.com/121019831/i-always-post-my-cats-on-the-cat-subreddit-but-have-never-posted-my-dog-here-so-here-he-is-meet-beer)
-- [Said goodbye to my best friend yesterday](https://news.puppy-snuggles.com/120545431/said-goodbye-to-my-best-friend-yesterday)
-- [Send good thoughts for baby Pretz](https://news.puppy-snuggles.com/120132546/send-good-thoughts-for-baby-pretz)
-- [Adopting a Senior Dog?](https://news.puppy-snuggles.com/119531065/adopting-a-senior-dog)
+- [Show me your sleeping doggos](https://news.puppy-snuggles.com/127337286/show-me-your-sleeping-doggos)
+- [My Pitty](https://news.puppy-snuggles.com/127178002/my-pitty)
+- [It’s my Dog’s Birthday today. She is 13 and gets a Pup patty from In and Out](https://news.puppy-snuggles.com/125819439/its-my-dogs-birthday-today-she-is-13-and-gets-a-pup-patty-from-in-and-out)
+- [This girl is probably the sweetest dog I have ever met. Roxie &lpar;7&rpar;, Adopted from the shelter 3 years ago.](https://news.puppy-snuggles.com/125540928/this-girl-is-probably-the-sweetest-dog-i-have-ever-met-roxie-7-adopted-from-the-shelter-3-years-ago)
+- [Happy 13th bday to Buster!](https://news.puppy-snuggles.com/121047694/happy-13th-bday-to-buster)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
