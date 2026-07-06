@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Show me your sleeping doggos](https://news.puppy-snuggles.com/127337286/show-me-your-sleeping-doggos)
-- [My Pitty](https://news.puppy-snuggles.com/127178002/my-pitty)
-- [It’s my Dog’s Birthday today. She is 13 and gets a Pup patty from In and Out](https://news.puppy-snuggles.com/125819439/its-my-dogs-birthday-today-she-is-13-and-gets-a-pup-patty-from-in-and-out)
-- [This girl is probably the sweetest dog I have ever met. Roxie &lpar;7&rpar;, Adopted from the shelter 3 years ago.](https://news.puppy-snuggles.com/125540928/this-girl-is-probably-the-sweetest-dog-i-have-ever-met-roxie-7-adopted-from-the-shelter-3-years-ago)
-- [Happy 13th bday to Buster!](https://news.puppy-snuggles.com/121047694/happy-13th-bday-to-buster)
+- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
+- [A story I guess?](https://news.puppy-snuggles.com/123044475/a-story-i-guess)
+- [How bro looks at me if I don&amp;#039;t give him belly rubs](https://news.puppy-snuggles.com/121592480/how-bro-looks-at-me-if-i-dont-give-him-belly-rubs)
+- [Thank you.](https://news.puppy-snuggles.com/121375076/thank-you)
+- [Adorable golden begging for fries at a Paris cafe!](https://news.puppy-snuggles.com/120723840/adorable-golden-begging-for-fries-at-a-paris-cafe)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
