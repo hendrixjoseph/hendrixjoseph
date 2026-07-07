@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
-- [A story I guess?](https://news.puppy-snuggles.com/123044475/a-story-i-guess)
-- [How bro looks at me if I don&amp;#039;t give him belly rubs](https://news.puppy-snuggles.com/121592480/how-bro-looks-at-me-if-i-dont-give-him-belly-rubs)
-- [Thank you.](https://news.puppy-snuggles.com/121375076/thank-you)
-- [Adorable golden begging for fries at a Paris cafe!](https://news.puppy-snuggles.com/120723840/adorable-golden-begging-for-fries-at-a-paris-cafe)
+- [Ruger would like you to see his new bandana.](https://news.puppy-snuggles.com/128710013/ruger-would-like-you-to-see-his-new-bandana)
+- [From being an unplanned rescue to being my best mate for over six years!](https://news.puppy-snuggles.com/126297992/from-being-an-unplanned-rescue-to-being-my-best-mate-for-over-six-years)
+- [At the park with Eddie Spaghetti](https://news.puppy-snuggles.com/124187877/at-the-park-with-eddie-spaghetti)
+- [This is her typical reaction every time she sees me, haha. She’s totally unstoppable.](https://news.puppy-snuggles.com/123961239/this-is-her-typical-reaction-every-time-she-sees-me-haha-shes-totally-unstoppable)
+- [Annie loves you’](https://news.puppy-snuggles.com/122866178/annie-loves-you)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
