@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ruger would like you to see his new bandana.](https://news.puppy-snuggles.com/128710013/ruger-would-like-you-to-see-his-new-bandana)
-- [From being an unplanned rescue to being my best mate for over six years!](https://news.puppy-snuggles.com/126297992/from-being-an-unplanned-rescue-to-being-my-best-mate-for-over-six-years)
-- [At the park with Eddie Spaghetti](https://news.puppy-snuggles.com/124187877/at-the-park-with-eddie-spaghetti)
-- [This is her typical reaction every time she sees me, haha. She’s totally unstoppable.](https://news.puppy-snuggles.com/123961239/this-is-her-typical-reaction-every-time-she-sees-me-haha-shes-totally-unstoppable)
-- [Annie loves you’](https://news.puppy-snuggles.com/122866178/annie-loves-you)
+- [Miss you. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/128632927/miss-you-original-wet-charcoal-and-pastel-art-by-me)
+- [goodbye Billy. Angels are watching over you ❤️🕊](https://news.puppy-snuggles.com/127272305/goodbye-billy-angels-are-watching-over-you)
+- [Goodbye my sweet baby angel, Aayla.](https://news.puppy-snuggles.com/126164378/goodbye-my-sweet-baby-angel-aayla)
+- [I got my favorite photograph of my dog made into a canvas print. Best money I’ve ever spent](https://news.puppy-snuggles.com/124488165/i-got-my-favorite-photograph-of-my-dog-made-into-a-canvas-print-best-money-ive-ever-spent)
+- [She enjoys strawberries](https://news.puppy-snuggles.com/119738228/she-enjoys-strawberries)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
