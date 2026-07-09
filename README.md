@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Miss you. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/128632927/miss-you-original-wet-charcoal-and-pastel-art-by-me)
-- [goodbye Billy. Angels are watching over you ❤️🕊](https://news.puppy-snuggles.com/127272305/goodbye-billy-angels-are-watching-over-you)
-- [Goodbye my sweet baby angel, Aayla.](https://news.puppy-snuggles.com/126164378/goodbye-my-sweet-baby-angel-aayla)
-- [I got my favorite photograph of my dog made into a canvas print. Best money I’ve ever spent](https://news.puppy-snuggles.com/124488165/i-got-my-favorite-photograph-of-my-dog-made-into-a-canvas-print-best-money-ive-ever-spent)
-- [She enjoys strawberries](https://news.puppy-snuggles.com/119738228/she-enjoys-strawberries)
+- [My new shelter dog, Benny](https://news.puppy-snuggles.com/128862657/my-new-shelter-dog-benny)
+- [Better?](https://news.puppy-snuggles.com/128632926/better)
+- [Dinner was 11 minutes ago. Pray for her](https://news.puppy-snuggles.com/127896222/dinner-was-11-minutes-ago-pray-for-her)
+- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
+- [Is it comfy? Lilith says yes.](https://news.puppy-snuggles.com/125199934/is-it-comfy-lilith-says-yes)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
