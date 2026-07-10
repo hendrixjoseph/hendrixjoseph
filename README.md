@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new shelter dog, Benny](https://news.puppy-snuggles.com/128862657/my-new-shelter-dog-benny)
-- [Better?](https://news.puppy-snuggles.com/128632926/better)
-- [Dinner was 11 minutes ago. Pray for her](https://news.puppy-snuggles.com/127896222/dinner-was-11-minutes-ago-pray-for-her)
-- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
-- [Is it comfy? Lilith says yes.](https://news.puppy-snuggles.com/125199934/is-it-comfy-lilith-says-yes)
+- [New hat 🤠](https://news.puppy-snuggles.com/127796796/new-hat)
+- [A very distinguished gentleman.](https://news.puppy-snuggles.com/124954892/a-very-distinguished-gentleman)
+- [I know that’s good.](https://news.puppy-snuggles.com/122009253/i-know-thats-good)
+- [My boy Hucky B is a whole TWO years old today!! Tell him Happy Birthday!](https://news.puppy-snuggles.com/119287081/my-boy-hucky-b-is-a-whole-two-years-old-today-tell-him-happy-birthday)
+- [What is my dog? Mom is a white malamute, but no one knows the dad. May he be a Wolf? Any ideas?](https://news.puppy-snuggles.com/115237780/what-is-my-dog-mom-is-a-white-malamute-but-no-one-knows-the-dad-may-he-be-a-wolf-any-ideas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
