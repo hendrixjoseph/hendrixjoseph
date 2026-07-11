@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New hat 🤠](https://news.puppy-snuggles.com/127796796/new-hat)
-- [A very distinguished gentleman.](https://news.puppy-snuggles.com/124954892/a-very-distinguished-gentleman)
-- [I know that’s good.](https://news.puppy-snuggles.com/122009253/i-know-thats-good)
-- [My boy Hucky B is a whole TWO years old today!! Tell him Happy Birthday!](https://news.puppy-snuggles.com/119287081/my-boy-hucky-b-is-a-whole-two-years-old-today-tell-him-happy-birthday)
-- [What is my dog? Mom is a white malamute, but no one knows the dad. May he be a Wolf? Any ideas?](https://news.puppy-snuggles.com/115237780/what-is-my-dog-mom-is-a-white-malamute-but-no-one-knows-the-dad-may-he-be-a-wolf-any-ideas)
+- [Return of the land seal.](https://news.puppy-snuggles.com/128632921/return-of-the-land-seal)
+- [HAPPY DAWG](https://news.puppy-snuggles.com/126660505/happy-dawg)
+- [little cutie baby!!! ♡♡♡♡ his name is Puck, do u think it suits him??](https://news.puppy-snuggles.com/125610434/little-cutie-baby-his-name-is-puck-do-u-think-it-suits-him)
+- [The best life. Original wet charcoal and pastel art by me &lpar;Andrew McAdam&rpar;](https://news.puppy-snuggles.com/121922195/the-best-life-original-wet-charcoal-and-pastel-art-by-me-andrew-mcadam)
+- [He&amp;#039;s claimed this box and no one is allowed to move it](https://news.puppy-snuggles.com/116724771/hes-claimed-this-box-and-no-one-is-allowed-to-move-it)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
