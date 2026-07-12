@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Return of the land seal.](https://news.puppy-snuggles.com/128632921/return-of-the-land-seal)
-- [HAPPY DAWG](https://news.puppy-snuggles.com/126660505/happy-dawg)
-- [little cutie baby!!! ♡♡♡♡ his name is Puck, do u think it suits him??](https://news.puppy-snuggles.com/125610434/little-cutie-baby-his-name-is-puck-do-u-think-it-suits-him)
-- [The best life. Original wet charcoal and pastel art by me &lpar;Andrew McAdam&rpar;](https://news.puppy-snuggles.com/121922195/the-best-life-original-wet-charcoal-and-pastel-art-by-me-andrew-mcadam)
-- [He&amp;#039;s claimed this box and no one is allowed to move it](https://news.puppy-snuggles.com/116724771/hes-claimed-this-box-and-no-one-is-allowed-to-move-it)
+- [Smiling Bennie](https://news.puppy-snuggles.com/127763705/smiling-bennie)
+- [The crew going for a ride](https://news.puppy-snuggles.com/127337281/the-crew-going-for-a-ride)
+- [Ma Goofy girls, both 10!](https://news.puppy-snuggles.com/126718573/ma-goofy-girls-both-10)
+- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
+- [I had to put my baby down this morning](https://news.puppy-snuggles.com/121019824/i-had-to-put-my-baby-down-this-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
