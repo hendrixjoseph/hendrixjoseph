@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smiling Bennie](https://news.puppy-snuggles.com/127763705/smiling-bennie)
-- [The crew going for a ride](https://news.puppy-snuggles.com/127337281/the-crew-going-for-a-ride)
-- [Ma Goofy girls, both 10!](https://news.puppy-snuggles.com/126718573/ma-goofy-girls-both-10)
-- [Meet Stella..](https://news.puppy-snuggles.com/122187389/meet-stella)
-- [I had to put my baby down this morning](https://news.puppy-snuggles.com/121019824/i-had-to-put-my-baby-down-this-morning)
+- [My rescue dogs. You can’t tell that one was thrown from a moving vehicle and the other tied to a pole at the shelter during the night because now they’re loved and spoiled 24/7. 💕](https://news.puppy-snuggles.com/128899828/my-rescue-dogs-you-cant-tell-that-one-was-thrown-from-a-moving-vehicle-and-the-other-tied-to-a-pole-at-the-shelter-during-the-night-because-now-theyre-loved-and-spoiled-247)
+- [Sandie was a bad girl today.](https://news.puppy-snuggles.com/128212697/sandie-was-a-bad-girl-today)
+- [First Rescue](https://news.puppy-snuggles.com/127862927/first-rescue)
+- [This Father’s Day happens to be Rufus 12th birthday!](https://news.puppy-snuggles.com/127437941/this-fathers-day-happens-to-be-rufus-12th-birthday)
+- [Present. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/123073298/present-original-charcoal-and-pastel-art-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
