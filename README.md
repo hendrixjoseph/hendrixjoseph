@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My rescue dogs. You can’t tell that one was thrown from a moving vehicle and the other tied to a pole at the shelter during the night because now they’re loved and spoiled 24/7. 💕](https://news.puppy-snuggles.com/128899828/my-rescue-dogs-you-cant-tell-that-one-was-thrown-from-a-moving-vehicle-and-the-other-tied-to-a-pole-at-the-shelter-during-the-night-because-now-theyre-loved-and-spoiled-247)
-- [Sandie was a bad girl today.](https://news.puppy-snuggles.com/128212697/sandie-was-a-bad-girl-today)
-- [First Rescue](https://news.puppy-snuggles.com/127862927/first-rescue)
-- [This Father’s Day happens to be Rufus 12th birthday!](https://news.puppy-snuggles.com/127437941/this-fathers-day-happens-to-be-rufus-12th-birthday)
-- [Present. Original charcoal and pastel art by me.](https://news.puppy-snuggles.com/123073298/present-original-charcoal-and-pastel-art-by-me)
+- [How to get dogs to tolerate one another?](https://news.puppy-snuggles.com/128899835/how-to-get-dogs-to-tolerate-one-another)
+- [Ava &lpar;also know as Ava la Roo&rpar; please say hi!](https://news.puppy-snuggles.com/127146934/ava-also-know-as-ava-la-roo-please-say-hi)
+- [Buddy crossed the rainbow bridge today. Thank you for 13 years of awesomeness.](https://news.puppy-snuggles.com/126126773/buddy-crossed-the-rainbow-bridge-today-thank-you-for-13-years-of-awesomeness)
+- [Juniper changed forms like a Pokémon when she grew up.](https://news.puppy-snuggles.com/123625228/juniper-changed-forms-like-a-pokemon-when-she-grew-up)
+- [Saying goodbye to my best friend Izzy](https://news.puppy-snuggles.com/119287071/saying-goodbye-to-my-best-friend-izzy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
