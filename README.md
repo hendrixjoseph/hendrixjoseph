@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [How to get dogs to tolerate one another?](https://news.puppy-snuggles.com/128899835/how-to-get-dogs-to-tolerate-one-another)
-- [Ava &lpar;also know as Ava la Roo&rpar; please say hi!](https://news.puppy-snuggles.com/127146934/ava-also-know-as-ava-la-roo-please-say-hi)
-- [Buddy crossed the rainbow bridge today. Thank you for 13 years of awesomeness.](https://news.puppy-snuggles.com/126126773/buddy-crossed-the-rainbow-bridge-today-thank-you-for-13-years-of-awesomeness)
-- [Juniper changed forms like a Pokémon when she grew up.](https://news.puppy-snuggles.com/123625228/juniper-changed-forms-like-a-pokemon-when-she-grew-up)
-- [Saying goodbye to my best friend Izzy](https://news.puppy-snuggles.com/119287071/saying-goodbye-to-my-best-friend-izzy)
+- [My 13 year old mutt, Petunia](https://news.puppy-snuggles.com/129381068/my-13-year-old-mutt-petunia)
+- [Good news/ Bad news](https://news.puppy-snuggles.com/129123862/good-news-bad-news)
+- [My 17-year-old Jack Russell then and now](https://news.puppy-snuggles.com/128976857/my-17-year-old-jack-russell-then-and-now)
+- [What are your thoughts?](https://news.puppy-snuggles.com/128862650/what-are-your-thoughts)
+- [Thank you, thank you, thank you! We have decided on a name!](https://news.puppy-snuggles.com/128824818/thank-you-thank-you-thank-you-we-have-decided-on-a-name)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
