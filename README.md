@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 13 year old mutt, Petunia](https://news.puppy-snuggles.com/129381068/my-13-year-old-mutt-petunia)
-- [Good news/ Bad news](https://news.puppy-snuggles.com/129123862/good-news-bad-news)
-- [My 17-year-old Jack Russell then and now](https://news.puppy-snuggles.com/128976857/my-17-year-old-jack-russell-then-and-now)
-- [What are your thoughts?](https://news.puppy-snuggles.com/128862650/what-are-your-thoughts)
-- [Thank you, thank you, thank you! We have decided on a name!](https://news.puppy-snuggles.com/128824818/thank-you-thank-you-thank-you-we-have-decided-on-a-name)
+- [My aunt and uncle have a new dog.](https://news.puppy-snuggles.com/129500409/my-aunt-and-uncle-have-a-new-dog)
+- [Killer hair style. She just woke up like this.](https://news.puppy-snuggles.com/129307810/killer-hair-style-she-just-woke-up-like-this)
+- [My boy Kevin turned 2 recently and these are some of my favourite pictures of him since he&amp;#039;s been in my life.](https://news.puppy-snuggles.com/127929827/my-boy-kevin-turned-2-recently-and-these-are-some-of-my-favourite-pictures-of-him-since-hes-been-in-my-life)
+- [Derpy girl.](https://news.puppy-snuggles.com/127437937/derpy-girl)
+- [Happy Father’s Day! Post your dog children, here! 🥳🐶🥳](https://news.puppy-snuggles.com/127369569/happy-fathers-day-post-your-dog-children-here)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
