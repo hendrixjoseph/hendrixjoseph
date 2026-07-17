@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My aunt and uncle have a new dog.](https://news.puppy-snuggles.com/129500409/my-aunt-and-uncle-have-a-new-dog)
-- [Killer hair style. She just woke up like this.](https://news.puppy-snuggles.com/129307810/killer-hair-style-she-just-woke-up-like-this)
-- [My boy Kevin turned 2 recently and these are some of my favourite pictures of him since he&amp;#039;s been in my life.](https://news.puppy-snuggles.com/127929827/my-boy-kevin-turned-2-recently-and-these-are-some-of-my-favourite-pictures-of-him-since-hes-been-in-my-life)
-- [Derpy girl.](https://news.puppy-snuggles.com/127437937/derpy-girl)
-- [Happy Father’s Day! Post your dog children, here! 🥳🐶🥳](https://news.puppy-snuggles.com/127369569/happy-fathers-day-post-your-dog-children-here)
+- [All I did was sit next to bro](https://news.puppy-snuggles.com/129618975/all-i-did-was-sit-next-to-bro)
+- [Akimba turned 5!! 🥳🥳](https://news.puppy-snuggles.com/129580886/akimba-turned-5)
+- [Toniiiiiiii](https://news.puppy-snuggles.com/129345440/toniiiiiiii)
+- [Mac is feeling silly!](https://news.puppy-snuggles.com/129014313/mac-is-feeling-silly)
+- [ISO: foster for sweet senior girl -NY/NJ areas](https://news.puppy-snuggles.com/128554943/iso-foster-for-sweet-senior-girl-nynj-areas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
