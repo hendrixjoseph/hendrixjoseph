@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [All I did was sit next to bro](https://news.puppy-snuggles.com/129618975/all-i-did-was-sit-next-to-bro)
-- [Akimba turned 5!! 🥳🥳](https://news.puppy-snuggles.com/129580886/akimba-turned-5)
-- [Toniiiiiiii](https://news.puppy-snuggles.com/129345440/toniiiiiiii)
-- [Mac is feeling silly!](https://news.puppy-snuggles.com/129014313/mac-is-feeling-silly)
-- [ISO: foster for sweet senior girl -NY/NJ areas](https://news.puppy-snuggles.com/128554943/iso-foster-for-sweet-senior-girl-nynj-areas)
+- [I’m putting down my best friend tomorrow morning](https://news.puppy-snuggles.com/127536722/im-putting-down-my-best-friend-tomorrow-morning)
+- [Tripple](https://news.puppy-snuggles.com/123202993/tripple)
+- [In the shelter vs after 13 years with us. ❤️‍🩹 Love heals.](https://news.puppy-snuggles.com/119437149/in-the-shelter-vs-after-13-years-with-us-love-heals)
+- [My baby is 10. She&amp;#039;s literally so intelligent as a lab/blue heeler mix I enjoy her company so much.](https://news.puppy-snuggles.com/116054181/my-baby-is-10-shes-literally-so-intelligent-as-a-labblue-heeler-mix-i-enjoy-her-company-so-much)
+- [5 weeks to 5 years, Sapphire is 5 years old today!](https://news.puppy-snuggles.com/115930697/5-weeks-to-5-years-sapphire-is-5-years-old-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
