@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m putting down my best friend tomorrow morning](https://news.puppy-snuggles.com/127536722/im-putting-down-my-best-friend-tomorrow-morning)
-- [Tripple](https://news.puppy-snuggles.com/123202993/tripple)
-- [In the shelter vs after 13 years with us. ❤️‍🩹 Love heals.](https://news.puppy-snuggles.com/119437149/in-the-shelter-vs-after-13-years-with-us-love-heals)
-- [My baby is 10. She&amp;#039;s literally so intelligent as a lab/blue heeler mix I enjoy her company so much.](https://news.puppy-snuggles.com/116054181/my-baby-is-10-shes-literally-so-intelligent-as-a-labblue-heeler-mix-i-enjoy-her-company-so-much)
-- [5 weeks to 5 years, Sapphire is 5 years old today!](https://news.puppy-snuggles.com/115930697/5-weeks-to-5-years-sapphire-is-5-years-old-today)
+- [Izzy bizzie, my soul, my heart, my life, my first born, my daughter. I miss you.](https://news.puppy-snuggles.com/128212688/izzy-bizzie-my-soul-my-heart-my-life-my-first-born-my-daughter-i-miss-you)
+- [Thought I’d share his ‘school picture day’ photo](https://news.puppy-snuggles.com/126691654/thought-id-share-his-school-picture-day-photo)
+- [My dog grew so fast! 😍](https://news.puppy-snuggles.com/123044479/my-dog-grew-so-fast)
+- [My mom took a picture of us sleeping 🥰](https://news.puppy-snuggles.com/122335101/my-mom-took-a-picture-of-us-sleeping)
+- [Happy 9th Birthday, Mittens!](https://news.puppy-snuggles.com/120339904/happy-9th-birthday-mittens)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
