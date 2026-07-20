@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Izzy bizzie, my soul, my heart, my life, my first born, my daughter. I miss you.](https://news.puppy-snuggles.com/128212688/izzy-bizzie-my-soul-my-heart-my-life-my-first-born-my-daughter-i-miss-you)
-- [Thought I’d share his ‘school picture day’ photo](https://news.puppy-snuggles.com/126691654/thought-id-share-his-school-picture-day-photo)
-- [My dog grew so fast! 😍](https://news.puppy-snuggles.com/123044479/my-dog-grew-so-fast)
-- [My mom took a picture of us sleeping 🥰](https://news.puppy-snuggles.com/122335101/my-mom-took-a-picture-of-us-sleeping)
-- [Happy 9th Birthday, Mittens!](https://news.puppy-snuggles.com/120339904/happy-9th-birthday-mittens)
+- [Guess the breed](https://news.puppy-snuggles.com/129956754/guess-the-breed)
+- [Almost 5 months has passed](https://news.puppy-snuggles.com/129232103/almost-5-months-has-passed)
+- [This is Eva hoping we’ll share our pizza crust &lpar;we did&rpar;.](https://news.puppy-snuggles.com/127929823/this-is-eva-hoping-well-share-our-pizza-crust-we-did)
+- [Good evening!](https://news.puppy-snuggles.com/127896229/good-evening)
+- [My angel - Gemma, looking into her eyes always makes me happy.](https://news.puppy-snuggles.com/127635233/my-angel-gemma-looking-into-her-eyes-always-makes-me-happy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
