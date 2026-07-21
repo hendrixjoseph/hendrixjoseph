@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Guess the breed](https://news.puppy-snuggles.com/129956754/guess-the-breed)
-- [Almost 5 months has passed](https://news.puppy-snuggles.com/129232103/almost-5-months-has-passed)
-- [This is Eva hoping we’ll share our pizza crust &lpar;we did&rpar;.](https://news.puppy-snuggles.com/127929823/this-is-eva-hoping-well-share-our-pizza-crust-we-did)
-- [Good evening!](https://news.puppy-snuggles.com/127896229/good-evening)
-- [My angel - Gemma, looking into her eyes always makes me happy.](https://news.puppy-snuggles.com/127635233/my-angel-gemma-looking-into-her-eyes-always-makes-me-happy)
+- [my boy benny](https://news.puppy-snuggles.com/130136587/my-boy-benny)
+- [Say hi to my dog](https://news.puppy-snuggles.com/129345439/say-hi-to-my-dog)
+- [Roadside Romeo](https://news.puppy-snuggles.com/126660514/roadside-romeo)
+- [Bonding with my rescue](https://news.puppy-snuggles.com/126099357/bonding-with-my-rescue)
+- [Saying goodbye to my best friend Izzy](https://news.puppy-snuggles.com/119287071/saying-goodbye-to-my-best-friend-izzy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
