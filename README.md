@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This chair for me?](https://news.puppy-snuggles.com/129381073/this-chair-for-me)
-- [Woooooooof](https://news.puppy-snuggles.com/124824121/woooooooof)
-- [Mi compañero Fiel Esponjita 🐕❤️](https://news.puppy-snuggles.com/124383733/mi-companero-fiel-esponjita)
-- [I heard a song today and thought about our time together](https://news.puppy-snuggles.com/123723927/i-heard-a-song-today-and-thought-about-our-time-together)
-- [My two babies attacking my dad](https://news.puppy-snuggles.com/123694361/my-two-babies-attacking-my-dad)
+- [I can&amp;#039;t believe she&amp;#039;s about to turn 10](https://news.puppy-snuggles.com/130221074/i-cant-believe-shes-about-to-turn-10)
+- [My girl Angel](https://news.puppy-snuggles.com/123925821/my-girl-angel)
+- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
+- [Such a pretty smile!](https://news.puppy-snuggles.com/100902163/such-a-pretty-smile)
+- [A masterpiece](https://news.puppy-snuggles.com/48822531/a-masterpiece)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
