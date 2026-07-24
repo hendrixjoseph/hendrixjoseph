@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can&amp;#039;t believe she&amp;#039;s about to turn 10](https://news.puppy-snuggles.com/130221074/i-cant-believe-shes-about-to-turn-10)
-- [My girl Angel](https://news.puppy-snuggles.com/123925821/my-girl-angel)
-- [Beau pupdate🩵](https://news.puppy-snuggles.com/122546111/beau-pupdate)
-- [Such a pretty smile!](https://news.puppy-snuggles.com/100902163/such-a-pretty-smile)
-- [A masterpiece](https://news.puppy-snuggles.com/48822531/a-masterpiece)
+- [This is Rejick. Yesterday he was tired, but he still wanted to be close to us.](https://news.puppy-snuggles.com/124757861/this-is-rejick-yesterday-he-was-tired-but-he-still-wanted-to-be-close-to-us)
+- [She knows you have treats](https://news.puppy-snuggles.com/122036596/she-knows-you-have-treats)
+- [Dog passes out of overwhelming joy while meeting the owner after 2 years.](https://news.puppy-snuggles.com/117449907/dog-passes-out-of-overwhelming-joy-while-meeting-the-owner-after-2-years)
+- [Can a dog be too handsome 🤔](https://news.puppy-snuggles.com/117418335/can-a-dog-be-too-handsome)
+- [Rescued this little guy from the shelter yesterday](https://news.puppy-snuggles.com/117327392/rescued-this-little-guy-from-the-shelter-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
