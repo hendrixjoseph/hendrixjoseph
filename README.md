@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Rejick. Yesterday he was tired, but he still wanted to be close to us.](https://news.puppy-snuggles.com/124757861/this-is-rejick-yesterday-he-was-tired-but-he-still-wanted-to-be-close-to-us)
-- [She knows you have treats](https://news.puppy-snuggles.com/122036596/she-knows-you-have-treats)
-- [Dog passes out of overwhelming joy while meeting the owner after 2 years.](https://news.puppy-snuggles.com/117449907/dog-passes-out-of-overwhelming-joy-while-meeting-the-owner-after-2-years)
-- [Can a dog be too handsome 🤔](https://news.puppy-snuggles.com/117418335/can-a-dog-be-too-handsome)
-- [Rescued this little guy from the shelter yesterday](https://news.puppy-snuggles.com/117327392/rescued-this-little-guy-from-the-shelter-yesterday)
+- [My childhood dog Odie passed away on Father’s Day](https://news.puppy-snuggles.com/127536731/my-childhood-dog-odie-passed-away-on-fathers-day)
+- [Pawty 🎉](https://news.puppy-snuggles.com/122156491/pawty)
+- [Daisy](https://news.puppy-snuggles.com/119888962/daisy)
+- [Milly](https://news.puppy-snuggles.com/119039278/milly)
+- [Puppy really likes going for runs :&rpar;](https://news.puppy-snuggles.com/109963510/puppy-really-likes-going-for-runs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
