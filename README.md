@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My childhood dog Odie passed away on Father’s Day](https://news.puppy-snuggles.com/127536731/my-childhood-dog-odie-passed-away-on-fathers-day)
-- [Pawty 🎉](https://news.puppy-snuggles.com/122156491/pawty)
-- [Daisy](https://news.puppy-snuggles.com/119888962/daisy)
-- [Milly](https://news.puppy-snuggles.com/119039278/milly)
-- [Puppy really likes going for runs :&rpar;](https://news.puppy-snuggles.com/109963510/puppy-really-likes-going-for-runs)
+- [Teddy](https://news.puppy-snuggles.com/130447385/teddy)
+- [Fern](https://news.puppy-snuggles.com/129872574/fern)
+- [goodbye Psycho. until we meet again old man ❤️](https://news.puppy-snuggles.com/129420323/goodbye-psycho-until-we-meet-again-old-man)
+- [Updates on parvo puppy](https://news.puppy-snuggles.com/128592443/updates-on-parvo-puppy)
+- [If I fits I sits, but if I don&amp;#039;t fits I also sits](https://news.puppy-snuggles.com/126432021/if-i-fits-i-sits-but-if-i-dont-fits-i-also-sits)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
