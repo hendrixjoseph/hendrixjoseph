@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Teddy](https://news.puppy-snuggles.com/130447385/teddy)
-- [Fern](https://news.puppy-snuggles.com/129872574/fern)
-- [goodbye Psycho. until we meet again old man ❤️](https://news.puppy-snuggles.com/129420323/goodbye-psycho-until-we-meet-again-old-man)
-- [Updates on parvo puppy](https://news.puppy-snuggles.com/128592443/updates-on-parvo-puppy)
-- [If I fits I sits, but if I don&amp;#039;t fits I also sits](https://news.puppy-snuggles.com/126432021/if-i-fits-i-sits-but-if-i-dont-fits-i-also-sits)
+- [I can’t believe it’s been a year.](https://news.puppy-snuggles.com/128976859/i-cant-believe-its-been-a-year)
+- [This is the funniest photo to ever exist imo 😂😂](https://news.puppy-snuggles.com/127602061/this-is-the-funniest-photo-to-ever-exist-imo)
+- [My little land seal taking her job seriously as my bathroom guard 🦭](https://news.puppy-snuggles.com/126959769/my-little-land-seal-taking-her-job-seriously-as-my-bathroom-guard)
+- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
+- [Bonding with my rescue](https://news.puppy-snuggles.com/126099357/bonding-with-my-rescue)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
