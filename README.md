@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can’t believe it’s been a year.](https://news.puppy-snuggles.com/128976859/i-cant-believe-its-been-a-year)
-- [This is the funniest photo to ever exist imo 😂😂](https://news.puppy-snuggles.com/127602061/this-is-the-funniest-photo-to-ever-exist-imo)
-- [My little land seal taking her job seriously as my bathroom guard 🦭](https://news.puppy-snuggles.com/126959769/my-little-land-seal-taking-her-job-seriously-as-my-bathroom-guard)
-- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
-- [Bonding with my rescue](https://news.puppy-snuggles.com/126099357/bonding-with-my-rescue)
+- [Love his smile.](https://news.puppy-snuggles.com/129580879/love-his-smile)
+- [Happy Canada Day! We road-tripped with our dog Bowie in The Maritime Provinces. Here are our favourite photos.](https://news.puppy-snuggles.com/128481331/happy-canada-day-we-road-tripped-with-our-dog-bowie-in-the-maritime-provinces-here-are-our-favourite-photos)
+- [Petunia can become invisible at will. Apologies for the picture of random twigs and snow. There is actually a puppy in there.](https://news.puppy-snuggles.com/117090951/petunia-can-become-invisible-at-will-apologies-for-the-picture-of-random-twigs-and-snow-there-is-actually-a-puppy-in-there)
+- [When an 18-year-old dog enjoyed the sunshine...](https://news.puppy-snuggles.com/116397474/when-an-18-year-old-dog-enjoyed-the-sunshine)
+- [Rainbow girl 🌈](https://news.puppy-snuggles.com/116366680/rainbow-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
