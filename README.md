@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Love his smile.](https://news.puppy-snuggles.com/129580879/love-his-smile)
-- [Happy Canada Day! We road-tripped with our dog Bowie in The Maritime Provinces. Here are our favourite photos.](https://news.puppy-snuggles.com/128481331/happy-canada-day-we-road-tripped-with-our-dog-bowie-in-the-maritime-provinces-here-are-our-favourite-photos)
-- [Petunia can become invisible at will. Apologies for the picture of random twigs and snow. There is actually a puppy in there.](https://news.puppy-snuggles.com/117090951/petunia-can-become-invisible-at-will-apologies-for-the-picture-of-random-twigs-and-snow-there-is-actually-a-puppy-in-there)
-- [When an 18-year-old dog enjoyed the sunshine...](https://news.puppy-snuggles.com/116397474/when-an-18-year-old-dog-enjoyed-the-sunshine)
-- [Rainbow girl 🌈](https://news.puppy-snuggles.com/116366680/rainbow-girl)
+- [From being an unplanned rescue to being my best mate for over six years!](https://news.puppy-snuggles.com/126297992/from-being-an-unplanned-rescue-to-being-my-best-mate-for-over-six-years)
+- [Waitin for momma to get her coffee :&rpar;](https://news.puppy-snuggles.com/118915385/waitin-for-momma-to-get-her-coffee)
+- [Marni, my 8wo bluetick coonhound pup, on her first day with me &lpar;today&rpar;](https://news.puppy-snuggles.com/118885032/marni-my-8wo-bluetick-coonhound-pup-on-her-first-day-with-me-today)
+- [A poem for Stevie - RIP beautiful boy](https://news.puppy-snuggles.com/118255289/a-poem-for-stevie-rip-beautiful-boy)
+- [Nothing makes his wiggly butt happier than hiking thru nature](https://news.puppy-snuggles.com/116845772/nothing-makes-his-wiggly-butt-happier-than-hiking-thru-nature)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
