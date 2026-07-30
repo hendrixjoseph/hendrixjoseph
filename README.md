@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [From being an unplanned rescue to being my best mate for over six years!](https://news.puppy-snuggles.com/126297992/from-being-an-unplanned-rescue-to-being-my-best-mate-for-over-six-years)
-- [Waitin for momma to get her coffee :&rpar;](https://news.puppy-snuggles.com/118915385/waitin-for-momma-to-get-her-coffee)
-- [Marni, my 8wo bluetick coonhound pup, on her first day with me &lpar;today&rpar;](https://news.puppy-snuggles.com/118885032/marni-my-8wo-bluetick-coonhound-pup-on-her-first-day-with-me-today)
-- [A poem for Stevie - RIP beautiful boy](https://news.puppy-snuggles.com/118255289/a-poem-for-stevie-rip-beautiful-boy)
-- [Nothing makes his wiggly butt happier than hiking thru nature](https://news.puppy-snuggles.com/116845772/nothing-makes-his-wiggly-butt-happier-than-hiking-thru-nature)
+- [New puppy coming home next weekend ❤️](https://news.puppy-snuggles.com/129500410/new-puppy-coming-home-next-weekend)
+- [One last visit to the waterfall today.](https://news.puppy-snuggles.com/128365306/one-last-visit-to-the-waterfall-today)
+- [family 💘](https://news.puppy-snuggles.com/125851622/family)
+- [Potentially getting this cute girl tomorrow. Name suggestions??](https://news.puppy-snuggles.com/125026269/potentially-getting-this-cute-girl-tomorrow-name-suggestions)
+- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
