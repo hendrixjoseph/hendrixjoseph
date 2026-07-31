@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New puppy coming home next weekend ❤️](https://news.puppy-snuggles.com/129500410/new-puppy-coming-home-next-weekend)
-- [One last visit to the waterfall today.](https://news.puppy-snuggles.com/128365306/one-last-visit-to-the-waterfall-today)
-- [family 💘](https://news.puppy-snuggles.com/125851622/family)
-- [Potentially getting this cute girl tomorrow. Name suggestions??](https://news.puppy-snuggles.com/125026269/potentially-getting-this-cute-girl-tomorrow-name-suggestions)
-- [Happy stick fluffer](https://news.puppy-snuggles.com/124284171/happy-stick-fluffer)
+- [They are very playful by the way.](https://news.puppy-snuggles.com/130930130/they-are-very-playful-by-the-way)
+- [This is Bowzer, he’s my little old man. He’s 16.](https://news.puppy-snuggles.com/130807663/this-is-bowzer-hes-my-little-old-man-hes-16)
+- [Let me introduce you to the most spoiled one in the house.](https://news.puppy-snuggles.com/129786989/let-me-introduce-you-to-the-most-spoiled-one-in-the-house)
+- [My photogenic girl, Olive](https://news.puppy-snuggles.com/126660504/my-photogenic-girl-olive)
+- [Felt like I was being watched lol](https://news.puppy-snuggles.com/126022738/felt-like-i-was-being-watched-lol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
