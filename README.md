@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [They are very playful by the way.](https://news.puppy-snuggles.com/130930130/they-are-very-playful-by-the-way)
-- [This is Bowzer, he’s my little old man. He’s 16.](https://news.puppy-snuggles.com/130807663/this-is-bowzer-hes-my-little-old-man-hes-16)
-- [Let me introduce you to the most spoiled one in the house.](https://news.puppy-snuggles.com/129786989/let-me-introduce-you-to-the-most-spoiled-one-in-the-house)
-- [My photogenic girl, Olive](https://news.puppy-snuggles.com/126660504/my-photogenic-girl-olive)
-- [Felt like I was being watched lol](https://news.puppy-snuggles.com/126022738/felt-like-i-was-being-watched-lol)
+- [cold plunge!](https://news.puppy-snuggles.com/131210889/cold-plunge)
+- [Sock Thief](https://news.puppy-snuggles.com/129701886/sock-thief)
+- [Only 2 weeks in😀](https://news.puppy-snuggles.com/127272309/only-2-weeks-in)
+- [Bro hit a metal park bench at full speed and knocked his tooth clean out - Look at the size of this thing!](https://news.puppy-snuggles.com/125335970/bro-hit-a-metal-park-bench-at-full-speed-and-knocked-his-tooth-clean-out-look-at-the-size-of-this-thing)
+- [His name is Coffee](https://news.puppy-snuggles.com/124723622/his-name-is-coffee)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
