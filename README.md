@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [cold plunge!](https://news.puppy-snuggles.com/131210889/cold-plunge)
-- [Sock Thief](https://news.puppy-snuggles.com/129701886/sock-thief)
-- [Only 2 weeks in😀](https://news.puppy-snuggles.com/127272309/only-2-weeks-in)
-- [Bro hit a metal park bench at full speed and knocked his tooth clean out - Look at the size of this thing!](https://news.puppy-snuggles.com/125335970/bro-hit-a-metal-park-bench-at-full-speed-and-knocked-his-tooth-clean-out-look-at-the-size-of-this-thing)
-- [His name is Coffee](https://news.puppy-snuggles.com/124723622/his-name-is-coffee)
+- [Coco likes her new treats](https://news.puppy-snuggles.com/131411905/coco-likes-her-new-treats)
+- [Need good name suggestions](https://news.puppy-snuggles.com/131346144/need-good-name-suggestions)
+- [My best bud, Indy.](https://news.puppy-snuggles.com/130181760/my-best-bud-indy)
+- [Throwback to when Bruno was waiting patiently for his presents on Christmas Day](https://news.puppy-snuggles.com/126691652/throwback-to-when-bruno-was-waiting-patiently-for-his-presents-on-christmas-day)
+- [family 💘](https://news.puppy-snuggles.com/125851622/family)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
