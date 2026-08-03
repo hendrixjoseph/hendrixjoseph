@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Coco likes her new treats](https://news.puppy-snuggles.com/131411905/coco-likes-her-new-treats)
-- [Need good name suggestions](https://news.puppy-snuggles.com/131346144/need-good-name-suggestions)
-- [My best bud, Indy.](https://news.puppy-snuggles.com/130181760/my-best-bud-indy)
-- [Throwback to when Bruno was waiting patiently for his presents on Christmas Day](https://news.puppy-snuggles.com/126691652/throwback-to-when-bruno-was-waiting-patiently-for-his-presents-on-christmas-day)
-- [family 💘](https://news.puppy-snuggles.com/125851622/family)
+- [Silly Scarlett](https://news.puppy-snuggles.com/131900378/silly-scarlett)
+- [Loved his pup cup of ice cream.](https://news.puppy-snuggles.com/131900382/loved-his-pup-cup-of-ice-cream)
+- [The reason i wake up every day 🤞🏻](https://news.puppy-snuggles.com/126533490/the-reason-i-wake-up-every-day)
+- [Currently passing a kidney stone, send me your dog pics for some much-needed distraction](https://news.puppy-snuggles.com/122808294/currently-passing-a-kidney-stone-send-me-your-dog-pics-for-some-much-needed-distraction)
+- [I was trying to take a picture of my dog &lpar;⁠ ⁠◜⁠‿⁠◝⁠ ⁠&rpar;⁠♡](https://news.puppy-snuggles.com/120132548/i-was-trying-to-take-a-picture-of-my-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
