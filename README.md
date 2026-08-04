@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Silly Scarlett](https://news.puppy-snuggles.com/131900378/silly-scarlett)
-- [Loved his pup cup of ice cream.](https://news.puppy-snuggles.com/131900382/loved-his-pup-cup-of-ice-cream)
-- [The reason i wake up every day 🤞🏻](https://news.puppy-snuggles.com/126533490/the-reason-i-wake-up-every-day)
-- [Currently passing a kidney stone, send me your dog pics for some much-needed distraction](https://news.puppy-snuggles.com/122808294/currently-passing-a-kidney-stone-send-me-your-dog-pics-for-some-much-needed-distraction)
-- [I was trying to take a picture of my dog &lpar;⁠ ⁠◜⁠‿⁠◝⁠ ⁠&rpar;⁠♡](https://news.puppy-snuggles.com/120132548/i-was-trying-to-take-a-picture-of-my-dog)
+- [My Lola Bear.](https://news.puppy-snuggles.com/130888172/my-lola-bear)
+- [Just eating water melon with my dogs](https://news.puppy-snuggles.com/124558640/just-eating-water-melon-with-my-dogs)
+- [My dog fell asleep with her tongue sticking out](https://news.puppy-snuggles.com/123861038/my-dog-fell-asleep-with-her-tongue-sticking-out)
+- [Meet Pearl - French bulldog](https://news.puppy-snuggles.com/120696243/meet-pearl-french-bulldog)
+- [Bad maple 👎](https://news.puppy-snuggles.com/117729530/bad-maple)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
