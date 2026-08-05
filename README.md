@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Lola Bear.](https://news.puppy-snuggles.com/130888172/my-lola-bear)
-- [Just eating water melon with my dogs](https://news.puppy-snuggles.com/124558640/just-eating-water-melon-with-my-dogs)
-- [My dog fell asleep with her tongue sticking out](https://news.puppy-snuggles.com/123861038/my-dog-fell-asleep-with-her-tongue-sticking-out)
-- [Meet Pearl - French bulldog](https://news.puppy-snuggles.com/120696243/meet-pearl-french-bulldog)
-- [Bad maple 👎](https://news.puppy-snuggles.com/117729530/bad-maple)
+- [This is Leo aka The Lump aka Dumb Dog aka Smelly Dog aka Best Dog](https://news.puppy-snuggles.com/123381237/this-is-leo-aka-the-lump-aka-dumb-dog-aka-smelly-dog-aka-best-dog)
+- [Marty got a new haircut](https://news.puppy-snuggles.com/120482602/marty-got-a-new-haircut)
+- [A poem for Stevie - RIP beautiful boy](https://news.puppy-snuggles.com/118255289/a-poem-for-stevie-rip-beautiful-boy)
+- [Shared Luna, so I thought I’d give Astrid some attention, too](https://news.puppy-snuggles.com/116693698/shared-luna-so-i-thought-id-give-astrid-some-attention-too)
+- [We had to unexpectedly say goodbye to our girl last night - thank you Roxie for 15 great years with your spunky little attitude](https://news.puppy-snuggles.com/114056642/we-had-to-unexpectedly-say-goodbye-to-our-girl-last-night-thank-you-roxie-for-15-great-years-with-your-spunky-little-attitude)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
