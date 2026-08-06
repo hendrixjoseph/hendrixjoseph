@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is Leo aka The Lump aka Dumb Dog aka Smelly Dog aka Best Dog](https://news.puppy-snuggles.com/123381237/this-is-leo-aka-the-lump-aka-dumb-dog-aka-smelly-dog-aka-best-dog)
-- [Marty got a new haircut](https://news.puppy-snuggles.com/120482602/marty-got-a-new-haircut)
-- [A poem for Stevie - RIP beautiful boy](https://news.puppy-snuggles.com/118255289/a-poem-for-stevie-rip-beautiful-boy)
-- [Shared Luna, so I thought I’d give Astrid some attention, too](https://news.puppy-snuggles.com/116693698/shared-luna-so-i-thought-id-give-astrid-some-attention-too)
-- [We had to unexpectedly say goodbye to our girl last night - thank you Roxie for 15 great years with your spunky little attitude](https://news.puppy-snuggles.com/114056642/we-had-to-unexpectedly-say-goodbye-to-our-girl-last-night-thank-you-roxie-for-15-great-years-with-your-spunky-little-attitude)
+- [Everytime I visit my friend this is how I am greeted](https://news.puppy-snuggles.com/130728193/everytime-i-visit-my-friend-this-is-how-i-am-greeted)
+- [Casper](https://news.puppy-snuggles.com/127504793/casper)
+- [A decade of unconditional love, joy, and friendship. Happy birthday Haka-bear. We love you 🥲](https://news.puppy-snuggles.com/126691657/a-decade-of-unconditional-love-joy-and-friendship-happy-birthday-haka-bear-we-love-you)
+- [Today we said goodbye to our almost 20 year old beagle “Chance”](https://news.puppy-snuggles.com/125300699/today-we-said-goodbye-to-our-almost-20-year-old-beagle-chance)
+- [Pretty girls](https://news.puppy-snuggles.com/124155574/pretty-girls)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
