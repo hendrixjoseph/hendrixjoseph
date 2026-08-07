@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Everytime I visit my friend this is how I am greeted](https://news.puppy-snuggles.com/130728193/everytime-i-visit-my-friend-this-is-how-i-am-greeted)
-- [Casper](https://news.puppy-snuggles.com/127504793/casper)
-- [A decade of unconditional love, joy, and friendship. Happy birthday Haka-bear. We love you 🥲](https://news.puppy-snuggles.com/126691657/a-decade-of-unconditional-love-joy-and-friendship-happy-birthday-haka-bear-we-love-you)
-- [Today we said goodbye to our almost 20 year old beagle “Chance”](https://news.puppy-snuggles.com/125300699/today-we-said-goodbye-to-our-almost-20-year-old-beagle-chance)
-- [Pretty girls](https://news.puppy-snuggles.com/124155574/pretty-girls)
+- [Rescued](https://news.puppy-snuggles.com/131900375/rescued)
+- [Lenny](https://news.puppy-snuggles.com/131792836/lenny)
+- [Almost full grown](https://news.puppy-snuggles.com/129160719/almost-full-grown)
+- [Lou!](https://news.puppy-snuggles.com/128481337/lou)
+- [MAX!!!](https://news.puppy-snuggles.com/128481341/max)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
