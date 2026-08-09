@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [You loved Timmy&amp;#039;s holiday snaps so he wanted to share some photos of his &amp;#039;normal&amp;#039; life over the last week. Yes, every day is a holiday for him &lpar;and a boot camp for me!! 😂😂&rpar;.](https://news.puppy-snuggles.com/130530854/you-loved-timmys-holiday-snaps-so-he-wanted-to-share-some-photos-of-his-normal-life-over-the-last-week-yes-every-day-is-a-holiday-for-him-and-a-boot-camp-for-me)
-- [My boys](https://news.puppy-snuggles.com/130403184/my-boys)
-- [I used to work at a dog rescue and this is my favorite photo of dogs playing in the play yard](https://news.puppy-snuggles.com/130403177/i-used-to-work-at-a-dog-rescue-and-this-is-my-favorite-photo-of-dogs-playing-in-the-play-yard)
-- [Happy 9th gotcha day my fabulous Presley](https://news.puppy-snuggles.com/130181756/happy-9th-gotcha-day-my-fabulous-presley)
-- [Goodbye my friend.](https://news.puppy-snuggles.com/130001596/goodbye-my-friend)
+- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
+- [Nice pic of my mom’s dog in Arizona](https://news.puppy-snuggles.com/129087776/nice-pic-of-my-moms-dog-in-arizona)
+- [Have a good one🐶](https://news.puppy-snuggles.com/127602056/have-a-good-one)
+- [Show me your big dog and their emotional support little dog!](https://news.puppy-snuggles.com/123534819/show-me-your-big-dog-and-their-emotional-support-little-dog)
+- [So cute](https://news.puppy-snuggles.com/122546103/so-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
