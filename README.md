@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
-- [Nice pic of my mom’s dog in Arizona](https://news.puppy-snuggles.com/129087776/nice-pic-of-my-moms-dog-in-arizona)
-- [Have a good one🐶](https://news.puppy-snuggles.com/127602056/have-a-good-one)
-- [Show me your big dog and their emotional support little dog!](https://news.puppy-snuggles.com/123534819/show-me-your-big-dog-and-their-emotional-support-little-dog)
-- [So cute](https://news.puppy-snuggles.com/122546103/so-cute)
+- [His favorite spot](https://news.puppy-snuggles.com/132211692/his-favorite-spot)
+- [Pup had complications with anesthesia but is alive and well!](https://news.puppy-snuggles.com/128519018/pup-had-complications-with-anesthesia-but-is-alive-and-well)
+- [A great friend](https://news.puppy-snuggles.com/127272312/a-great-friend)
+- [Ava &lpar;also know as Ava la Roo&rpar; please say hi!](https://news.puppy-snuggles.com/127146934/ava-also-know-as-ava-la-roo-please-say-hi)
+- [My GSD](https://news.puppy-snuggles.com/126660509/my-gsd)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
