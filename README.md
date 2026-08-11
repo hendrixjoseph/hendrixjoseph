@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His favorite spot](https://news.puppy-snuggles.com/132211692/his-favorite-spot)
-- [Pup had complications with anesthesia but is alive and well!](https://news.puppy-snuggles.com/128519018/pup-had-complications-with-anesthesia-but-is-alive-and-well)
-- [A great friend](https://news.puppy-snuggles.com/127272312/a-great-friend)
-- [Ava &lpar;also know as Ava la Roo&rpar; please say hi!](https://news.puppy-snuggles.com/127146934/ava-also-know-as-ava-la-roo-please-say-hi)
-- [My GSD](https://news.puppy-snuggles.com/126660509/my-gsd)
+- [I’m Cleo! I have to be walked at 4 am because I’m hyper reactive to people and pets!](https://news.puppy-snuggles.com/132375296/im-cleo-i-have-to-be-walked-at-4-am-because-im-hyper-reactive-to-people-and-pets)
+- [My dog has her own room under my bed c:](https://news.puppy-snuggles.com/132179205/my-dog-has-her-own-room-under-my-bed-c)
+- [Waldo💗](https://news.puppy-snuggles.com/123625233/waldo)
+- [She is the cutest sweetheart. Meet Kiko!](https://news.puppy-snuggles.com/120723846/she-is-the-cutest-sweetheart-meet-kiko)
+- [I don’t think he likes his new raincoat](https://news.puppy-snuggles.com/120545441/i-dont-think-he-likes-his-new-raincoat)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
