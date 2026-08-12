@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’m Cleo! I have to be walked at 4 am because I’m hyper reactive to people and pets!](https://news.puppy-snuggles.com/132375296/im-cleo-i-have-to-be-walked-at-4-am-because-im-hyper-reactive-to-people-and-pets)
-- [My dog has her own room under my bed c:](https://news.puppy-snuggles.com/132179205/my-dog-has-her-own-room-under-my-bed-c)
-- [Waldo💗](https://news.puppy-snuggles.com/123625233/waldo)
-- [She is the cutest sweetheart. Meet Kiko!](https://news.puppy-snuggles.com/120723846/she-is-the-cutest-sweetheart-meet-kiko)
-- [I don’t think he likes his new raincoat](https://news.puppy-snuggles.com/120545441/i-dont-think-he-likes-his-new-raincoat)
+- [Model shots of my new baby Molly! &lpar;Taken by me&rpar;](https://news.puppy-snuggles.com/132747560/model-shots-of-my-new-baby-molly-taken-by-me)
+- [Lenny](https://news.puppy-snuggles.com/131792836/lenny)
+- [Eddie hopes your having a great Saturday](https://news.puppy-snuggles.com/131756329/eddie-hopes-your-having-a-great-saturday)
+- [Scotch is pleased to announce he has exceeded his treat targets for Q2 :&rpar;](https://news.puppy-snuggles.com/129196820/scotch-is-pleased-to-announce-he-has-exceeded-his-treat-targets-for-q2)
+- [Teddy’s summer vacation 🐶🌊❤️](https://news.puppy-snuggles.com/128100709/teddys-summer-vacation)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
