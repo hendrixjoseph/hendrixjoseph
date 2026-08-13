@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Model shots of my new baby Molly! &lpar;Taken by me&rpar;](https://news.puppy-snuggles.com/132747560/model-shots-of-my-new-baby-molly-taken-by-me)
-- [Lenny](https://news.puppy-snuggles.com/131792836/lenny)
-- [Eddie hopes your having a great Saturday](https://news.puppy-snuggles.com/131756329/eddie-hopes-your-having-a-great-saturday)
-- [Scotch is pleased to announce he has exceeded his treat targets for Q2 :&rpar;](https://news.puppy-snuggles.com/129196820/scotch-is-pleased-to-announce-he-has-exceeded-his-treat-targets-for-q2)
-- [Teddy’s summer vacation 🐶🌊❤️](https://news.puppy-snuggles.com/128100709/teddys-summer-vacation)
+- [Straight cheesing like it’s picture day](https://news.puppy-snuggles.com/132886571/straight-cheesing-like-its-picture-day)
+- [Almost ten years](https://news.puppy-snuggles.com/132886580/almost-ten-years)
+- [Sunday nap.](https://news.puppy-snuggles.com/132782900/sunday-nap)
+- [She likes to think long and hard after an ice cold dip in the water…](https://news.puppy-snuggles.com/132543207/she-likes-to-think-long-and-hard-after-an-ice-cold-dip-in-the-water)
+- [She’s a special one!](https://news.puppy-snuggles.com/128403736/shes-a-special-one)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
