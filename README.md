@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Straight cheesing like it’s picture day](https://news.puppy-snuggles.com/132886571/straight-cheesing-like-its-picture-day)
-- [Almost ten years](https://news.puppy-snuggles.com/132886580/almost-ten-years)
-- [Sunday nap.](https://news.puppy-snuggles.com/132782900/sunday-nap)
-- [She likes to think long and hard after an ice cold dip in the water…](https://news.puppy-snuggles.com/132543207/she-likes-to-think-long-and-hard-after-an-ice-cold-dip-in-the-water)
-- [She’s a special one!](https://news.puppy-snuggles.com/128403736/shes-a-special-one)
+- [Welcome home Budgie girl🦜🐾](https://news.puppy-snuggles.com/122894649/welcome-home-budgie-girl)
+- [The pack came to visit me in the workshop.](https://news.puppy-snuggles.com/120696239/the-pack-came-to-visit-me-in-the-workshop)
+- [Enjoying the Sun](https://news.puppy-snuggles.com/114545513/enjoying-the-sun)
+- [Anyone care to guess the breed? Her embark DNA results were certainly a surprise!](https://news.puppy-snuggles.com/107428993/anyone-care-to-guess-the-breed-her-embark-dna-results-were-certainly-a-surprise)
+- [Hope everyone has a good day! 🥰](https://news.puppy-snuggles.com/104397406/hope-everyone-has-a-good-day)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
