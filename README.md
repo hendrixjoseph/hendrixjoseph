@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Welcome home Budgie girl🦜🐾](https://news.puppy-snuggles.com/122894649/welcome-home-budgie-girl)
-- [The pack came to visit me in the workshop.](https://news.puppy-snuggles.com/120696239/the-pack-came-to-visit-me-in-the-workshop)
-- [Enjoying the Sun](https://news.puppy-snuggles.com/114545513/enjoying-the-sun)
-- [Anyone care to guess the breed? Her embark DNA results were certainly a surprise!](https://news.puppy-snuggles.com/107428993/anyone-care-to-guess-the-breed-her-embark-dna-results-were-certainly-a-surprise)
-- [Hope everyone has a good day! 🥰](https://news.puppy-snuggles.com/104397406/hope-everyone-has-a-good-day)
+- [Meet Bhondu](https://news.puppy-snuggles.com/133453836/meet-bhondu)
+- [Mei Lin ran out of charge](https://news.puppy-snuggles.com/133301895/mei-lin-ran-out-of-charge)
+- [SHE IS VERY EXCItE!!!!!!](https://news.puppy-snuggles.com/133263613/she-is-very-excite)
+- [My sweet Pippin](https://news.puppy-snuggles.com/133053259/my-sweet-pippin)
+- [Suns out, dogs out! ☀️](https://news.puppy-snuggles.com/133053254/suns-out-dogs-out)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
