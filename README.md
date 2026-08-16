@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Bhondu](https://news.puppy-snuggles.com/133453836/meet-bhondu)
-- [Mei Lin ran out of charge](https://news.puppy-snuggles.com/133301895/mei-lin-ran-out-of-charge)
-- [SHE IS VERY EXCItE!!!!!!](https://news.puppy-snuggles.com/133263613/she-is-very-excite)
-- [My sweet Pippin](https://news.puppy-snuggles.com/133053259/my-sweet-pippin)
-- [Suns out, dogs out! ☀️](https://news.puppy-snuggles.com/133053254/suns-out-dogs-out)
+- [It’s my baby Mira’s 6th Birthday!!](https://news.puppy-snuggles.com/132643531/its-my-baby-miras-6th-birthday)
+- [Good news about the boy](https://news.puppy-snuggles.com/131513660/good-news-about-the-boy)
+- [My dog is a psychotic good girl](https://news.puppy-snuggles.com/130530853/my-dog-is-a-psychotic-good-girl)
+- [I can&amp;#039;t believe she&amp;#039;s about to turn 10](https://news.puppy-snuggles.com/130221074/i-cant-believe-shes-about-to-turn-10)
+- [My pup mislaid her spleen](https://news.puppy-snuggles.com/128899837/my-pup-mislaid-her-spleen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
