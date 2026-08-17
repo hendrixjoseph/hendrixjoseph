@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [It’s my baby Mira’s 6th Birthday!!](https://news.puppy-snuggles.com/132643531/its-my-baby-miras-6th-birthday)
-- [Good news about the boy](https://news.puppy-snuggles.com/131513660/good-news-about-the-boy)
-- [My dog is a psychotic good girl](https://news.puppy-snuggles.com/130530853/my-dog-is-a-psychotic-good-girl)
-- [I can&amp;#039;t believe she&amp;#039;s about to turn 10](https://news.puppy-snuggles.com/130221074/i-cant-believe-shes-about-to-turn-10)
-- [My pup mislaid her spleen](https://news.puppy-snuggles.com/128899837/my-pup-mislaid-her-spleen)
+- [My new wallpaper with my dog](https://news.puppy-snuggles.com/133225893/my-new-wallpaper-with-my-dog)
+- [Another Happy Dog Picture!](https://news.puppy-snuggles.com/113441460/another-happy-dog-picture)
+- [What breed is it?](https://news.puppy-snuggles.com/104637719/what-breed-is-it)
+- [This is Ruthie](https://news.puppy-snuggles.com/85853732/this-is-ruthie)
+- [Before and after grooming](https://news.puppy-snuggles.com/74789034/before-and-after-grooming)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
