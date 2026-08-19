@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Squirtle the no eyed dog](https://news.puppy-snuggles.com/122955869/squirtle-the-no-eyed-dog)
-- [The day we picked him up from the shelter](https://news.puppy-snuggles.com/120961244/the-day-we-picked-him-up-from-the-shelter)
-- [How much of this raw bone should I let my puppy eat? Can they eat the entire thing. Im used to dogs having raw hide . This is my first time letting a dog have a raw bone](https://news.puppy-snuggles.com/120874937/how-much-of-this-raw-bone-should-i-let-my-puppy-eat-can-they-eat-the-entire-thing-im-used-to-dogs-having-raw-hide-this-is-my-first-time-letting-a-dog-have-a-raw-bone)
-- [She gets all the loveins](https://news.puppy-snuggles.com/115581575/she-gets-all-the-loveins)
-- [Image of a dog found on a negative from 1903.](https://news.puppy-snuggles.com/114276834/image-of-a-dog-found-on-a-negative-from-1903)
+- [My birthday boy, 5 today.](https://news.puppy-snuggles.com/133776489/my-birthday-boy-5-today)
+- [Photo Dump! 🐶 🐾](https://news.puppy-snuggles.com/133776484/photo-dump)
+- [Barney’s Birthday](https://news.puppy-snuggles.com/133531592/barneys-birthday)
+- [my sweet boy feelin a bit mopey on a car ride 😆❤️](https://news.puppy-snuggles.com/133415910/my-sweet-boy-feelin-a-bit-mopey-on-a-car-ride)
+- [Both my dogs; Tillman &lpar;Maltese-Chihuahua&rpar; &amp;amp; Wagner &lpar;Blue Pomeranian&rpar; Had their hairs cut](https://news.puppy-snuggles.com/131377414/both-my-dogs-tillman-maltese-chihuahua-wagner-blue-pomeranian-had-their-hairs-cut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
