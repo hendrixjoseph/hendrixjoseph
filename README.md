@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My birthday boy, 5 today.](https://news.puppy-snuggles.com/133776489/my-birthday-boy-5-today)
-- [Photo Dump! 🐶 🐾](https://news.puppy-snuggles.com/133776484/photo-dump)
-- [Barney’s Birthday](https://news.puppy-snuggles.com/133531592/barneys-birthday)
-- [my sweet boy feelin a bit mopey on a car ride 😆❤️](https://news.puppy-snuggles.com/133415910/my-sweet-boy-feelin-a-bit-mopey-on-a-car-ride)
-- [Both my dogs; Tillman &lpar;Maltese-Chihuahua&rpar; &amp;amp; Wagner &lpar;Blue Pomeranian&rpar; Had their hairs cut](https://news.puppy-snuggles.com/131377414/both-my-dogs-tillman-maltese-chihuahua-wagner-blue-pomeranian-had-their-hairs-cut)
+- [Bernie in the book nook](https://news.puppy-snuggles.com/133453840/bernie-in-the-book-nook)
+- [Today is his birthday](https://news.puppy-snuggles.com/132886569/today-is-his-birthday)
+- [Any ideas on what she might be? Rescued her 3 weeks ago. She’s the love of my life.](https://news.puppy-snuggles.com/130652180/any-ideas-on-what-she-might-be-rescued-her-3-weeks-ago-shes-the-love-of-my-life)
+- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
+- [Dakota says hi from Ukraine 🐶🇺🇦](https://news.puppy-snuggles.com/124352178/dakota-says-hi-from-ukraine)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
