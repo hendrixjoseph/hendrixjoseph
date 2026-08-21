@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Bernie in the book nook](https://news.puppy-snuggles.com/133453840/bernie-in-the-book-nook)
-- [Today is his birthday](https://news.puppy-snuggles.com/132886569/today-is-his-birthday)
-- [Any ideas on what she might be? Rescued her 3 weeks ago. She’s the love of my life.](https://news.puppy-snuggles.com/130652180/any-ideas-on-what-she-might-be-rescued-her-3-weeks-ago-shes-the-love-of-my-life)
-- [Thought I’d share this cute photo my neighbour took of my dog](https://news.puppy-snuggles.com/125056168/thought-id-share-this-cute-photo-my-neighbour-took-of-my-dog)
-- [Dakota says hi from Ukraine 🐶🇺🇦](https://news.puppy-snuggles.com/124352178/dakota-says-hi-from-ukraine)
+- [That confused face says it all 😂](https://news.puppy-snuggles.com/133650352/that-confused-face-says-it-all)
+- [Handsome old man](https://news.puppy-snuggles.com/132040014/handsome-old-man)
+- [Do not go gentle...](https://news.puppy-snuggles.com/130046519/do-not-go-gentle)
+- [Puppies Sleeping butt to butt](https://news.puppy-snuggles.com/128937229/puppies-sleeping-butt-to-butt)
+- [Faithful to the end. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/116214685/faithful-to-the-end-original-wet-charcoal-and-pastel-art-by-me)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
