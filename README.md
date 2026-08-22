@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [That confused face says it all 😂](https://news.puppy-snuggles.com/133650352/that-confused-face-says-it-all)
-- [Handsome old man](https://news.puppy-snuggles.com/132040014/handsome-old-man)
-- [Do not go gentle...](https://news.puppy-snuggles.com/130046519/do-not-go-gentle)
-- [Puppies Sleeping butt to butt](https://news.puppy-snuggles.com/128937229/puppies-sleeping-butt-to-butt)
-- [Faithful to the end. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/116214685/faithful-to-the-end-original-wet-charcoal-and-pastel-art-by-me)
+- [His face has been stuck on “loading…” for years, so I recreated it in wool](https://news.puppy-snuggles.com/134137287/his-face-has-been-stuck-on-loading-for-years-so-i-recreated-it-in-wool)
+- [My little dinosaur](https://news.puppy-snuggles.com/126022734/my-little-dinosaur)
+- [Anyone else cook for their love? Mine looks physically better.](https://news.puppy-snuggles.com/123694359/anyone-else-cook-for-their-love-mine-looks-physically-better)
+- [Let&amp;#039;s share pictures of our dogs pooing in beautiful places.](https://news.puppy-snuggles.com/113441462/lets-share-pictures-of-our-dogs-pooing-in-beautiful-places)
+- [Brought Ollie Home 3.5 weeks ago. He’s a ham.](https://news.puppy-snuggles.com/100312312/brought-ollie-home-35-weeks-ago-hes-a-ham)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
