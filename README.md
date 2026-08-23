@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [His face has been stuck on “loading…” for years, so I recreated it in wool](https://news.puppy-snuggles.com/134137287/his-face-has-been-stuck-on-loading-for-years-so-i-recreated-it-in-wool)
-- [My little dinosaur](https://news.puppy-snuggles.com/126022734/my-little-dinosaur)
-- [Anyone else cook for their love? Mine looks physically better.](https://news.puppy-snuggles.com/123694359/anyone-else-cook-for-their-love-mine-looks-physically-better)
-- [Let&amp;#039;s share pictures of our dogs pooing in beautiful places.](https://news.puppy-snuggles.com/113441462/lets-share-pictures-of-our-dogs-pooing-in-beautiful-places)
-- [Brought Ollie Home 3.5 weeks ago. He’s a ham.](https://news.puppy-snuggles.com/100312312/brought-ollie-home-35-weeks-ago-hes-a-ham)
+- [Is she smiling or judging me](https://news.puppy-snuggles.com/133225895/is-she-smiling-or-judging-me)
+- [The best friend I could’ve ever asked for.](https://news.puppy-snuggles.com/133087275/the-best-friend-i-couldve-ever-asked-for)
+- [This is how she smiles when someone speaks to her affectionately; she&amp;#039;s very cheerful and playful, and of course, spoiled ☺️](https://news.puppy-snuggles.com/132311067/this-is-how-she-smiles-when-someone-speaks-to-her-affectionately-shes-very-cheerful-and-playful-and-of-course-spoiled)
+- [My dog trying a piece of watermelon 😂😅](https://news.puppy-snuggles.com/131756325/my-dog-trying-a-piece-of-watermelon)
+- [Does your poodle also have a favorite “cute face” they always make? 😂](https://news.puppy-snuggles.com/130930125/does-your-poodle-also-have-a-favorite-cute-face-they-always-make)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
