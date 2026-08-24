@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Is she smiling or judging me](https://news.puppy-snuggles.com/133225895/is-she-smiling-or-judging-me)
-- [The best friend I could’ve ever asked for.](https://news.puppy-snuggles.com/133087275/the-best-friend-i-couldve-ever-asked-for)
-- [This is how she smiles when someone speaks to her affectionately; she&amp;#039;s very cheerful and playful, and of course, spoiled ☺️](https://news.puppy-snuggles.com/132311067/this-is-how-she-smiles-when-someone-speaks-to-her-affectionately-shes-very-cheerful-and-playful-and-of-course-spoiled)
-- [My dog trying a piece of watermelon 😂😅](https://news.puppy-snuggles.com/131756325/my-dog-trying-a-piece-of-watermelon)
-- [Does your poodle also have a favorite “cute face” they always make? 😂](https://news.puppy-snuggles.com/130930125/does-your-poodle-also-have-a-favorite-cute-face-they-always-make)
+- [She’s a sweet pupper](https://news.puppy-snuggles.com/134988406/shes-a-sweet-pupper)
+- [Still happy and healthy at 17](https://news.puppy-snuggles.com/134988404/still-happy-and-healthy-at-17)
+- [I posted about euthanizing Mr. Bear about 2 weeks ago and he has gone over the rainbow bridge today. I’m upset but he had a good life. I love you buddy ❤️](https://news.puppy-snuggles.com/132609283/i-posted-about-euthanizing-mr-bear-about-2-weeks-ago-and-he-has-gone-over-the-rainbow-bridge-today-im-upset-but-he-had-a-good-life-i-love-you-buddy)
+- [Remember Me](https://news.puppy-snuggles.com/130001602/remember-me)
+- [Losing his first teefs](https://news.puppy-snuggles.com/126397685/losing-his-first-teefs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
