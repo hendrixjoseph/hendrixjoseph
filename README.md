@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [She’s a sweet pupper](https://news.puppy-snuggles.com/134988406/shes-a-sweet-pupper)
-- [Still happy and healthy at 17](https://news.puppy-snuggles.com/134988404/still-happy-and-healthy-at-17)
-- [I posted about euthanizing Mr. Bear about 2 weeks ago and he has gone over the rainbow bridge today. I’m upset but he had a good life. I love you buddy ❤️](https://news.puppy-snuggles.com/132609283/i-posted-about-euthanizing-mr-bear-about-2-weeks-ago-and-he-has-gone-over-the-rainbow-bridge-today-im-upset-but-he-had-a-good-life-i-love-you-buddy)
-- [Remember Me](https://news.puppy-snuggles.com/130001602/remember-me)
-- [Losing his first teefs](https://news.puppy-snuggles.com/126397685/losing-his-first-teefs)
+- [Meet Maya](https://news.puppy-snuggles.com/135137114/meet-maya)
+- [Of course I&amp;#039;m biased but Im amazed at the beauty and personality of this dog every day.](https://news.puppy-snuggles.com/132342972/of-course-im-biased-but-im-amazed-at-the-beauty-and-personality-of-this-dog-every-day)
+- [Sunday Morning Coffee](https://news.puppy-snuggles.com/130930128/sunday-morning-coffee)
+- [Goodnight Jefferson](https://news.puppy-snuggles.com/130652179/goodnight-jefferson)
+- [Found this little girl crying in a puddle next to a trash can last Wednesday night.](https://news.puppy-snuggles.com/125921461/found-this-little-girl-crying-in-a-puddle-next-to-a-trash-can-last-wednesday-night)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
