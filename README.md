@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meet Maya](https://news.puppy-snuggles.com/135137114/meet-maya)
-- [Of course I&amp;#039;m biased but Im amazed at the beauty and personality of this dog every day.](https://news.puppy-snuggles.com/132342972/of-course-im-biased-but-im-amazed-at-the-beauty-and-personality-of-this-dog-every-day)
-- [Sunday Morning Coffee](https://news.puppy-snuggles.com/130930128/sunday-morning-coffee)
-- [Goodnight Jefferson](https://news.puppy-snuggles.com/130652179/goodnight-jefferson)
-- [Found this little girl crying in a puddle next to a trash can last Wednesday night.](https://news.puppy-snuggles.com/125921461/found-this-little-girl-crying-in-a-puddle-next-to-a-trash-can-last-wednesday-night)
+- [Smile smile smile](https://news.puppy-snuggles.com/134416261/smile-smile-smile)
+- [Border Collie](https://news.puppy-snuggles.com/132543209/border-collie)
+- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
+- [I catch them having secret meetings](https://news.puppy-snuggles.com/130488075/i-catch-them-having-secret-meetings)
+- [My dog Sunny is constantly making weird faces lmao](https://news.puppy-snuggles.com/130447374/my-dog-sunny-is-constantly-making-weird-faces-lmao)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
