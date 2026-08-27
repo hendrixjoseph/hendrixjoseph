@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Smile smile smile](https://news.puppy-snuggles.com/134416261/smile-smile-smile)
-- [Border Collie](https://news.puppy-snuggles.com/132543209/border-collie)
-- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
-- [I catch them having secret meetings](https://news.puppy-snuggles.com/130488075/i-catch-them-having-secret-meetings)
-- [My dog Sunny is constantly making weird faces lmao](https://news.puppy-snuggles.com/130447374/my-dog-sunny-is-constantly-making-weird-faces-lmao)
+- [i pushed her away after she dropped a wet ball in my lap](https://news.puppy-snuggles.com/134735004/i-pushed-her-away-after-she-dropped-a-wet-ball-in-my-lap)
+- [Too many?](https://news.puppy-snuggles.com/133858848/too-many)
+- [lost my best buddy 5 months ago, still think of you every day Finn](https://news.puppy-snuggles.com/131311525/lost-my-best-buddy-5-months-ago-still-think-of-you-every-day-finn)
+- [Elsa 7 months old.](https://news.puppy-snuggles.com/130612223/elsa-7-months-old)
+- [My Shiba-Goldendoodle, Jeanie](https://news.puppy-snuggles.com/129744565/my-shiba-goldendoodle-jeanie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
