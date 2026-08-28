@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [i pushed her away after she dropped a wet ball in my lap](https://news.puppy-snuggles.com/134735004/i-pushed-her-away-after-she-dropped-a-wet-ball-in-my-lap)
-- [Too many?](https://news.puppy-snuggles.com/133858848/too-many)
-- [lost my best buddy 5 months ago, still think of you every day Finn](https://news.puppy-snuggles.com/131311525/lost-my-best-buddy-5-months-ago-still-think-of-you-every-day-finn)
-- [Elsa 7 months old.](https://news.puppy-snuggles.com/130612223/elsa-7-months-old)
-- [My Shiba-Goldendoodle, Jeanie](https://news.puppy-snuggles.com/129744565/my-shiba-goldendoodle-jeanie)
+- [My Spikey has crossed the rainbow bridge](https://news.puppy-snuggles.com/132921205/my-spikey-has-crossed-the-rainbow-bridge)
+- [Rate my dog](https://news.puppy-snuggles.com/132342971/rate-my-dog)
+- [Finnegan turns one today!](https://news.puppy-snuggles.com/130966844/finnegan-turns-one-today)
+- [Pup had complications with anesthesia but is alive and well!](https://news.puppy-snuggles.com/128519018/pup-had-complications-with-anesthesia-but-is-alive-and-well)
+- [The hydrangea needed to die](https://news.puppy-snuggles.com/126900257/the-hydrangea-needed-to-die)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
