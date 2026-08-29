@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Spikey has crossed the rainbow bridge](https://news.puppy-snuggles.com/132921205/my-spikey-has-crossed-the-rainbow-bridge)
-- [Rate my dog](https://news.puppy-snuggles.com/132342971/rate-my-dog)
-- [Finnegan turns one today!](https://news.puppy-snuggles.com/130966844/finnegan-turns-one-today)
-- [Pup had complications with anesthesia but is alive and well!](https://news.puppy-snuggles.com/128519018/pup-had-complications-with-anesthesia-but-is-alive-and-well)
-- [The hydrangea needed to die](https://news.puppy-snuggles.com/126900257/the-hydrangea-needed-to-die)
+- [He chased after the pickup that dumped him outside my office](https://news.puppy-snuggles.com/134988397/he-chased-after-the-pickup-that-dumped-him-outside-my-office)
+- [My dog was put down today.](https://news.puppy-snuggles.com/133087271/my-dog-was-put-down-today)
+- [I needed to share her with someone today 🩵](https://news.puppy-snuggles.com/132987305/i-needed-to-share-her-with-someone-today)
+- [My Little Tiger Shark is Crossing the Rainbow Bridge Today](https://news.puppy-snuggles.com/132954513/my-little-tiger-shark-is-crossing-the-rainbow-bridge-today)
+- [Kida Saurus Rex!](https://news.puppy-snuggles.com/132311071/kida-saurus-rex)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
