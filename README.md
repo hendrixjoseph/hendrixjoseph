@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on Why am I getting phone calls from phone numbers really close to mine?](https://www.reddit.com/r/ask/comments/1w0zwqj/why_am_i_getting_phone_calls_from_phone_numbers/p6of84p/)
+- [/u/joehx on Whats an infamous, pin-drop moment that happened at your job?](https://www.reddit.com/r/AskMen/comments/1w18ajo/whats_an_infamous_pindrop_moment_that_happened_at/p6o9ove/)
 - [/u/joehx on What is a myth that is completely incorrect but still accepted?](https://www.reddit.com/r/AskReddit/comments/1vnr64j/what_is_a_myth_that_is_completely_incorrect_but/p43rm7x/)
 - [/u/joehx on [Marvel] If I am worthy, but also have muscular dystrophy and can&#39;t normally lift anything heavier than a sandwich, would I still be able to lift Thor&#39;s hammer?](https://www.reddit.com/r/AskScienceFiction/comments/1voi4g3/marvel_if_i_am_worthy_but_also_have_muscular/p3pylaf/)
 - [/u/joehx on Star Trek: Strange New Worlds | 4x04 &quot;A Case of Chiaroscuro&quot; Reaction Thread](https://www.reddit.com/r/DaystromInstitute/comments/1vmw1s0/star_trek_strange_new_worlds_4x04_a_case_of/p3ildtx/)
-- [/u/joehx on Getting sick of the AI slop beavers](https://www.reddit.com/r/dayton/comments/1vfedt7/getting_sick_of_the_ai_slop_beavers/p1pbczj/)
-- [/u/joehx on what is a &quot;secret&quot; test a woman put you through that backfired on her completely?](https://www.reddit.com/r/AskMen/comments/1uq8lmo/what_is_a_secret_test_a_woman_put_you_through/ow6dgs0/)
 <!-- REDDIT:END -->
