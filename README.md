@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He chased after the pickup that dumped him outside my office](https://news.puppy-snuggles.com/134988397/he-chased-after-the-pickup-that-dumped-him-outside-my-office)
-- [My dog was put down today.](https://news.puppy-snuggles.com/133087271/my-dog-was-put-down-today)
-- [I needed to share her with someone today 🩵](https://news.puppy-snuggles.com/132987305/i-needed-to-share-her-with-someone-today)
-- [My Little Tiger Shark is Crossing the Rainbow Bridge Today](https://news.puppy-snuggles.com/132954513/my-little-tiger-shark-is-crossing-the-rainbow-bridge-today)
-- [Kida Saurus Rex!](https://news.puppy-snuggles.com/132311071/kida-saurus-rex)
+- [Hubert turned 8 months old, today.](https://news.puppy-snuggles.com/134694610/hubert-turned-8-months-old-today)
+- [The best spokesmodel for a jewelry line!](https://news.puppy-snuggles.com/133978028/the-best-spokesmodel-for-a-jewelry-line)
+- [I miss my Ladies](https://news.puppy-snuggles.com/132278252/i-miss-my-ladies)
+- [Just saved this girl from the shelter today! My first dog! Her name is Kerrigan &lpar;like StarCraft&rpar;](https://news.puppy-snuggles.com/129196816/just-saved-this-girl-from-the-shelter-today-my-first-dog-her-name-is-kerrigan-like-starcraft)
+- [She is speed](https://news.puppy-snuggles.com/129160720/she-is-speed)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
