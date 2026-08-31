@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hubert turned 8 months old, today.](https://news.puppy-snuggles.com/134694610/hubert-turned-8-months-old-today)
-- [The best spokesmodel for a jewelry line!](https://news.puppy-snuggles.com/133978028/the-best-spokesmodel-for-a-jewelry-line)
-- [I miss my Ladies](https://news.puppy-snuggles.com/132278252/i-miss-my-ladies)
-- [Just saved this girl from the shelter today! My first dog! Her name is Kerrigan &lpar;like StarCraft&rpar;](https://news.puppy-snuggles.com/129196816/just-saved-this-girl-from-the-shelter-today-my-first-dog-her-name-is-kerrigan-like-starcraft)
-- [She is speed](https://news.puppy-snuggles.com/129160720/she-is-speed)
+- [I love my baby girl](https://news.puppy-snuggles.com/134499407/i-love-my-baby-girl)
+- [deranged puppy](https://news.puppy-snuggles.com/133120003/deranged-puppy)
+- [Aw, I love rat terriers](https://news.puppy-snuggles.com/132677947/aw-i-love-rat-terriers)
+- [Happy boy🐶](https://news.puppy-snuggles.com/131142953/happy-boy)
+- [My 3 legged Miracle Dog, Stitch](https://news.puppy-snuggles.com/128519020/my-3-legged-miracle-dog-stitch)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
