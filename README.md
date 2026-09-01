@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I love my baby girl](https://news.puppy-snuggles.com/134499407/i-love-my-baby-girl)
-- [deranged puppy](https://news.puppy-snuggles.com/133120003/deranged-puppy)
-- [Aw, I love rat terriers](https://news.puppy-snuggles.com/132677947/aw-i-love-rat-terriers)
-- [Happy boy🐶](https://news.puppy-snuggles.com/131142953/happy-boy)
-- [My 3 legged Miracle Dog, Stitch](https://news.puppy-snuggles.com/128519020/my-3-legged-miracle-dog-stitch)
+- [Goodbye Sweetie](https://news.puppy-snuggles.com/135721067/goodbye-sweetie)
+- [Had to put this guy down today. 14 years.](https://news.puppy-snuggles.com/135284403/had-to-put-this-guy-down-today-14-years)
+- [My new wallpaper with my dog](https://news.puppy-snuggles.com/133225893/my-new-wallpaper-with-my-dog)
+- [Periscope nose](https://news.puppy-snuggles.com/132311066/periscope-nose)
+- [I miss my baby so much. He was 13 &amp;amp; a half](https://news.puppy-snuggles.com/131582920/i-miss-my-baby-so-much-he-was-13-a-half)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
