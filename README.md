@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Goodbye Sweetie](https://news.puppy-snuggles.com/135721067/goodbye-sweetie)
-- [Had to put this guy down today. 14 years.](https://news.puppy-snuggles.com/135284403/had-to-put-this-guy-down-today-14-years)
-- [My new wallpaper with my dog](https://news.puppy-snuggles.com/133225893/my-new-wallpaper-with-my-dog)
-- [Periscope nose](https://news.puppy-snuggles.com/132311066/periscope-nose)
-- [I miss my baby so much. He was 13 &amp;amp; a half](https://news.puppy-snuggles.com/131582920/i-miss-my-baby-so-much-he-was-13-a-half)
+- [My dog is obsessed with my GF](https://news.puppy-snuggles.com/135678620/my-dog-is-obsessed-with-my-gf)
+- [1 year old daschund/shihtzu mix &lpar;&lpar;i think&rpar;&rpar;](https://news.puppy-snuggles.com/135637253/1-year-old-daschundshihtzu-mix-i-think)
+- [Say hi to Cheese!](https://news.puppy-snuggles.com/132747552/say-hi-to-cheese)
+- [My baby is gone.](https://news.puppy-snuggles.com/132443042/my-baby-is-gone)
+- [Cleo after anesthesia](https://news.puppy-snuggles.com/129662233/cleo-after-anesthesia)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
