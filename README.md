@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog is obsessed with my GF](https://news.puppy-snuggles.com/135678620/my-dog-is-obsessed-with-my-gf)
-- [1 year old daschund/shihtzu mix &lpar;&lpar;i think&rpar;&rpar;](https://news.puppy-snuggles.com/135637253/1-year-old-daschundshihtzu-mix-i-think)
-- [Say hi to Cheese!](https://news.puppy-snuggles.com/132747552/say-hi-to-cheese)
-- [My baby is gone.](https://news.puppy-snuggles.com/132443042/my-baby-is-gone)
-- [Cleo after anesthesia](https://news.puppy-snuggles.com/129662233/cleo-after-anesthesia)
+- [My parents dog visiting my moms grave for the first time](https://news.puppy-snuggles.com/136076362/my-parents-dog-visiting-my-moms-grave-for-the-first-time)
+- [This is Gidget. A very beautiful old lady. Identify her?](https://news.puppy-snuggles.com/133776483/this-is-gidget-a-very-beautiful-old-lady-identify-her)
+- [Moona after a week post surgery](https://news.puppy-snuggles.com/131077126/moona-after-a-week-post-surgery)
+- [The local rescue is having a wet dog picture contest. Here are my entries.](https://news.puppy-snuggles.com/130530846/the-local-rescue-is-having-a-wet-dog-picture-contest-here-are-my-entries)
+- [Hope news](https://news.puppy-snuggles.com/123500712/hope-news)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
