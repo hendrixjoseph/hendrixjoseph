@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My parents dog visiting my moms grave for the first time](https://news.puppy-snuggles.com/136076362/my-parents-dog-visiting-my-moms-grave-for-the-first-time)
-- [This is Gidget. A very beautiful old lady. Identify her?](https://news.puppy-snuggles.com/133776483/this-is-gidget-a-very-beautiful-old-lady-identify-her)
-- [Moona after a week post surgery](https://news.puppy-snuggles.com/131077126/moona-after-a-week-post-surgery)
-- [The local rescue is having a wet dog picture contest. Here are my entries.](https://news.puppy-snuggles.com/130530846/the-local-rescue-is-having-a-wet-dog-picture-contest-here-are-my-entries)
-- [Hope news](https://news.puppy-snuggles.com/123500712/hope-news)
+- [i pushed her away after she dropped a wet ball in my lap](https://news.puppy-snuggles.com/134735004/i-pushed-her-away-after-she-dropped-a-wet-ball-in-my-lap)
+- [R.I.P my sweet girl](https://news.puppy-snuggles.com/129872572/rip-my-sweet-girl)
+- [All our girls: past and present](https://news.puppy-snuggles.com/126533493/all-our-girls-past-and-present)
+- [Today we said goodbye to our almost 20 year old beagle “Chance”](https://news.puppy-snuggles.com/125300699/today-we-said-goodbye-to-our-almost-20-year-old-beagle-chance)
+- [This is my dog Fynn, who likes to be dramatic when I start moving away from the door.](https://news.puppy-snuggles.com/125232460/this-is-my-dog-fynn-who-likes-to-be-dramatic-when-i-start-moving-away-from-the-door)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
