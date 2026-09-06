@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Luise checks for errors.](https://news.puppy-snuggles.com/136524804/luise-checks-for-errors)
-- [I present to you: Daisy](https://news.puppy-snuggles.com/135172105/i-present-to-you-daisy)
-- [My old man on a sunny afternoon](https://news.puppy-snuggles.com/128749304/my-old-man-on-a-sunny-afternoon)
-- [I just love this girl](https://news.puppy-snuggles.com/127697623/i-just-love-this-girl)
-- [goodbye Billy. Angels are watching over you ❤️🕊](https://news.puppy-snuggles.com/127272305/goodbye-billy-angels-are-watching-over-you)
+- [Here’s my dog, can I see yours?](https://news.puppy-snuggles.com/132443038/heres-my-dog-can-i-see-yours)
+- [Say cheese 😁](https://news.puppy-snuggles.com/131721279/say-cheese)
+- [I think my dog thinks she&amp;#039;s a cat](https://news.puppy-snuggles.com/130845843/i-think-my-dog-thinks-shes-a-cat)
+- [It’s Daisy’s first birthday! I hid chicken nuggets in a bush for her to find on her walk](https://news.puppy-snuggles.com/129872573/its-daisys-first-birthday-i-hid-chicken-nuggets-in-a-bush-for-her-to-find-on-her-walk)
+- [Losing a pet for the first time](https://news.puppy-snuggles.com/129196823/losing-a-pet-for-the-first-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
