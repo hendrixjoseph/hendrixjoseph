@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Here’s my dog, can I see yours?](https://news.puppy-snuggles.com/132443038/heres-my-dog-can-i-see-yours)
-- [Say cheese 😁](https://news.puppy-snuggles.com/131721279/say-cheese)
-- [I think my dog thinks she&amp;#039;s a cat](https://news.puppy-snuggles.com/130845843/i-think-my-dog-thinks-shes-a-cat)
-- [It’s Daisy’s first birthday! I hid chicken nuggets in a bush for her to find on her walk](https://news.puppy-snuggles.com/129872573/its-daisys-first-birthday-i-hid-chicken-nuggets-in-a-bush-for-her-to-find-on-her-walk)
-- [Losing a pet for the first time](https://news.puppy-snuggles.com/129196823/losing-a-pet-for-the-first-time)
+- [I’ve had my girl for two months now](https://news.puppy-snuggles.com/136444237/ive-had-my-girl-for-two-months-now)
+- [Please wish Miss Kitty Happy 12th Birthday!](https://news.puppy-snuggles.com/136403743/please-wish-miss-kitty-happy-12th-birthday)
+- [Coming to tell me he&amp;#039;s ready for his walk](https://news.puppy-snuggles.com/135209382/coming-to-tell-me-hes-ready-for-his-walk)
+- [A lovely walk with my handsome boi.](https://news.puppy-snuggles.com/131311527/a-lovely-walk-with-my-handsome-boi)
+- [Snapped a photo of him this morning and he looked so human 🤣](https://news.puppy-snuggles.com/130488083/snapped-a-photo-of-him-this-morning-and-he-looked-so-human)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
