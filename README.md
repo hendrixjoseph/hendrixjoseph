@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I’ve had my girl for two months now](https://news.puppy-snuggles.com/136444237/ive-had-my-girl-for-two-months-now)
-- [Please wish Miss Kitty Happy 12th Birthday!](https://news.puppy-snuggles.com/136403743/please-wish-miss-kitty-happy-12th-birthday)
-- [Coming to tell me he&amp;#039;s ready for his walk](https://news.puppy-snuggles.com/135209382/coming-to-tell-me-hes-ready-for-his-walk)
-- [A lovely walk with my handsome boi.](https://news.puppy-snuggles.com/131311527/a-lovely-walk-with-my-handsome-boi)
-- [Snapped a photo of him this morning and he looked so human 🤣](https://news.puppy-snuggles.com/130488083/snapped-a-photo-of-him-this-morning-and-he-looked-so-human)
+- [The face of someone who stole my KFC popcorn chicken. Butter wouldn&amp;#039;t melt](https://news.puppy-snuggles.com/136732110/the-face-of-someone-who-stole-my-kfc-popcorn-chicken-butter-wouldnt-melt)
+- [We went for a walk and he wanted to shop at a garage sale. He carried his purchase home.](https://news.puppy-snuggles.com/133531585/we-went-for-a-walk-and-he-wanted-to-shop-at-a-garage-sale-he-carried-his-purchase-home)
+- [First time meeting my girlfriend’s dog](https://news.puppy-snuggles.com/132342977/first-time-meeting-my-girlfriends-dog)
+- [Did someone order a brown package?](https://news.puppy-snuggles.com/128061184/did-someone-order-a-brown-package)
+- [It&amp;#039;s looking like another perfect weekend for lake shenanigans!](https://news.puppy-snuggles.com/125026266/its-looking-like-another-perfect-weekend-for-lake-shenanigans)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
