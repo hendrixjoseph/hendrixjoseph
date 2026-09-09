@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The face of someone who stole my KFC popcorn chicken. Butter wouldn&amp;#039;t melt](https://news.puppy-snuggles.com/136732110/the-face-of-someone-who-stole-my-kfc-popcorn-chicken-butter-wouldnt-melt)
-- [We went for a walk and he wanted to shop at a garage sale. He carried his purchase home.](https://news.puppy-snuggles.com/133531585/we-went-for-a-walk-and-he-wanted-to-shop-at-a-garage-sale-he-carried-his-purchase-home)
-- [First time meeting my girlfriend’s dog](https://news.puppy-snuggles.com/132342977/first-time-meeting-my-girlfriends-dog)
-- [Did someone order a brown package?](https://news.puppy-snuggles.com/128061184/did-someone-order-a-brown-package)
-- [It&amp;#039;s looking like another perfect weekend for lake shenanigans!](https://news.puppy-snuggles.com/125026266/its-looking-like-another-perfect-weekend-for-lake-shenanigans)
+- [My parents’ new rescue. You think she’s comfortable yet?](https://news.puppy-snuggles.com/136978262/my-parents-new-rescue-you-think-shes-comfortable-yet)
+- [Thinking about adopting this dog. Read txt below](https://news.puppy-snuggles.com/136894700/thinking-about-adopting-this-dog-read-txt-below)
+- [Meet Boba.](https://news.puppy-snuggles.com/134859275/meet-boba)
+- [Petunia in the morning sun.](https://news.puppy-snuggles.com/126691649/petunia-in-the-morning-sun)
+- [Dougie. ❤️](https://news.puppy-snuggles.com/126464360/dougie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
