@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My parents’ new rescue. You think she’s comfortable yet?](https://news.puppy-snuggles.com/136978262/my-parents-new-rescue-you-think-shes-comfortable-yet)
-- [Thinking about adopting this dog. Read txt below](https://news.puppy-snuggles.com/136894700/thinking-about-adopting-this-dog-read-txt-below)
-- [Meet Boba.](https://news.puppy-snuggles.com/134859275/meet-boba)
-- [Petunia in the morning sun.](https://news.puppy-snuggles.com/126691649/petunia-in-the-morning-sun)
-- [Dougie. ❤️](https://news.puppy-snuggles.com/126464360/dougie)
+- [Roo was told to sit](https://news.puppy-snuggles.com/137621174/roo-was-told-to-sit)
+- [I took some pictures of my dog 🐾](https://news.puppy-snuggles.com/135556793/i-took-some-pictures-of-my-dog)
+- [Morton and Stevie 💕](https://news.puppy-snuggles.com/134177771/morton-and-stevie)
+- [We got Pepè from a kill shelter 11 years ago. He’s 12 now. He’s the sweetest boy ever!](https://news.puppy-snuggles.com/133341212/we-got-pepe-from-a-kill-shelter-11-years-ago-hes-12-now-hes-the-sweetest-boy-ever)
+- [Shiloh&amp;#039;s incredible transformation from cruelty case survivor to sweet &amp;amp; fluffy boy who finally feels safe &amp;amp; loved. Available for adoption at Montgomery County Animal Shelter in Conroe, Texas.](https://news.puppy-snuggles.com/132278242/shilohs-incredible-transformation-from-cruelty-case-survivor-to-sweet-fluffy-boy-who-finally-feels-safe-loved-available-for-adoption-at-montgomery-county-animal-shelter-in-conroe-texas)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
