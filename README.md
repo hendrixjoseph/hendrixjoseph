@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Roo was told to sit](https://news.puppy-snuggles.com/137621174/roo-was-told-to-sit)
-- [I took some pictures of my dog 🐾](https://news.puppy-snuggles.com/135556793/i-took-some-pictures-of-my-dog)
-- [Morton and Stevie 💕](https://news.puppy-snuggles.com/134177771/morton-and-stevie)
-- [We got Pepè from a kill shelter 11 years ago. He’s 12 now. He’s the sweetest boy ever!](https://news.puppy-snuggles.com/133341212/we-got-pepe-from-a-kill-shelter-11-years-ago-hes-12-now-hes-the-sweetest-boy-ever)
-- [Shiloh&amp;#039;s incredible transformation from cruelty case survivor to sweet &amp;amp; fluffy boy who finally feels safe &amp;amp; loved. Available for adoption at Montgomery County Animal Shelter in Conroe, Texas.](https://news.puppy-snuggles.com/132278242/shilohs-incredible-transformation-from-cruelty-case-survivor-to-sweet-fluffy-boy-who-finally-feels-safe-loved-available-for-adoption-at-montgomery-county-animal-shelter-in-conroe-texas)
+- [Mi Teresa les desea a todos un Feliz Día 😍⭐✨](https://news.puppy-snuggles.com/134944601/mi-teresa-les-desea-a-todos-un-feliz-dia)
+- [Alguien está muy Feliz hoy 😍les presento a snoopy 💙](https://news.puppy-snuggles.com/134055640/alguien-esta-muy-feliz-hoy-les-presento-a-snoopy)
+- [Zeus is such a handsome old man.](https://news.puppy-snuggles.com/133087270/zeus-is-such-a-handsome-old-man)
+- [My baby boy.](https://news.puppy-snuggles.com/131077123/my-baby-boy)
+- [Held her for the last time today](https://news.puppy-snuggles.com/126810420/held-her-for-the-last-time-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
