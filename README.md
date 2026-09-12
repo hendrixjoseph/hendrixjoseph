@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mi Teresa les desea a todos un Feliz Día 😍⭐✨](https://news.puppy-snuggles.com/134944601/mi-teresa-les-desea-a-todos-un-feliz-dia)
+- [A little shelter dog appreciation](https://news.puppy-snuggles.com/137402030/a-little-shelter-dog-appreciation)
+- [Serving up some serious teef 🦷😂, I swear he’s smiling ☺️](https://news.puppy-snuggles.com/136162729/serving-up-some-serious-teef-i-swear-hes-smiling)
+- [Two years since adoption of my little street dog.](https://news.puppy-snuggles.com/135246148/two-years-since-adoption-of-my-little-street-dog)
+- [I am sad. Took my dog to the office. I am less sad.](https://news.puppy-snuggles.com/134137281/i-am-sad-took-my-dog-to-the-office-i-am-less-sad)
 - [Alguien está muy Feliz hoy 😍les presento a snoopy 💙](https://news.puppy-snuggles.com/134055640/alguien-esta-muy-feliz-hoy-les-presento-a-snoopy)
-- [Zeus is such a handsome old man.](https://news.puppy-snuggles.com/133087270/zeus-is-such-a-handsome-old-man)
-- [My baby boy.](https://news.puppy-snuggles.com/131077123/my-baby-boy)
-- [Held her for the last time today](https://news.puppy-snuggles.com/126810420/held-her-for-the-last-time-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
