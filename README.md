@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [A little shelter dog appreciation](https://news.puppy-snuggles.com/137402030/a-little-shelter-dog-appreciation)
-- [Serving up some serious teef 🦷😂, I swear he’s smiling ☺️](https://news.puppy-snuggles.com/136162729/serving-up-some-serious-teef-i-swear-hes-smiling)
-- [Two years since adoption of my little street dog.](https://news.puppy-snuggles.com/135246148/two-years-since-adoption-of-my-little-street-dog)
-- [I am sad. Took my dog to the office. I am less sad.](https://news.puppy-snuggles.com/134137281/i-am-sad-took-my-dog-to-the-office-i-am-less-sad)
-- [Alguien está muy Feliz hoy 😍les presento a snoopy 💙](https://news.puppy-snuggles.com/134055640/alguien-esta-muy-feliz-hoy-les-presento-a-snoopy)
+- [Our sweet boy Sterling with dwarfism ☺️](https://news.puppy-snuggles.com/137696385/our-sweet-boy-sterling-with-dwarfism)
+- [The girl I lost a month ago and the girl I adopted a week ago](https://news.puppy-snuggles.com/134457419/the-girl-i-lost-a-month-ago-and-the-girl-i-adopted-a-week-ago)
+- [Pls wish him a happy birthday](https://news.puppy-snuggles.com/129786992/pls-wish-him-a-happy-birthday)
+- [New hat 🤠](https://news.puppy-snuggles.com/127796796/new-hat)
+- [The happiest pup](https://news.puppy-snuggles.com/127471993/the-happiest-pup)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
