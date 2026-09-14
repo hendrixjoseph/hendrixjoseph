@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What products are unnecessarily thrown away because one $5–$50 component fails?](https://www.reddit.com/r/AskReddit/comments/1wetvlz/what_products_are_unnecessarily_thrown_away/p9jjwq7/)
 - [/u/joehx on What are some crimes that were common in our generation that aren&#39;t a problem anymore?](https://www.reddit.com/r/Millennials/comments/1wdvce5/what_are_some_crimes_that_were_common_in_our/p99qfma/)
 - [/u/joehx on Has anyone else noticed what I am calling the “Dayton outer left pass”?](https://www.reddit.com/r/dayton/comments/1wdfhhw/has_anyone_else_noticed_what_i_am_calling_the/p96g87y/)
 - [/u/joehx on meirl](https://www.reddit.com/r/meirl/comments/1w8438c/meirl/p827enc/)
 - [/u/joehx on meirl](https://www.reddit.com/r/meirl/comments/1w8438c/meirl/p816ggz/)
-- [/u/joehx on Why am I getting phone calls from phone numbers really close to mine?](https://www.reddit.com/r/ask/comments/1w0zwqj/why_am_i_getting_phone_calls_from_phone_numbers/p6of84p/)
 <!-- REDDIT:END -->
