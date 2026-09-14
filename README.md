@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Our sweet boy Sterling with dwarfism ☺️](https://news.puppy-snuggles.com/137696385/our-sweet-boy-sterling-with-dwarfism)
-- [The girl I lost a month ago and the girl I adopted a week ago](https://news.puppy-snuggles.com/134457419/the-girl-i-lost-a-month-ago-and-the-girl-i-adopted-a-week-ago)
-- [Pls wish him a happy birthday](https://news.puppy-snuggles.com/129786992/pls-wish-him-a-happy-birthday)
-- [New hat 🤠](https://news.puppy-snuggles.com/127796796/new-hat)
-- [The happiest pup](https://news.puppy-snuggles.com/127471993/the-happiest-pup)
+- [Just a dog appreciation post.](https://news.puppy-snuggles.com/135025254/just-a-dog-appreciation-post)
+- [My dog is a pine cone maniac!!](https://news.puppy-snuggles.com/131513656/my-dog-is-a-pine-cone-maniac)
+- [Akira crossed the rainbow bridge today.](https://news.puppy-snuggles.com/130357210/akira-crossed-the-rainbow-bridge-today)
+- [A collection of Harry carrying things](https://news.puppy-snuggles.com/119287074/a-collection-of-harry-carrying-things)
+- [Saying goodbye to my best friend Izzy](https://news.puppy-snuggles.com/119287071/saying-goodbye-to-my-best-friend-izzy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
