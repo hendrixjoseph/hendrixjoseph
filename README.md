@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just a dog appreciation post.](https://news.puppy-snuggles.com/135025254/just-a-dog-appreciation-post)
-- [My dog is a pine cone maniac!!](https://news.puppy-snuggles.com/131513656/my-dog-is-a-pine-cone-maniac)
-- [Akira crossed the rainbow bridge today.](https://news.puppy-snuggles.com/130357210/akira-crossed-the-rainbow-bridge-today)
-- [A collection of Harry carrying things](https://news.puppy-snuggles.com/119287074/a-collection-of-harry-carrying-things)
-- [Saying goodbye to my best friend Izzy](https://news.puppy-snuggles.com/119287071/saying-goodbye-to-my-best-friend-izzy)
+- [Don’t forget to stretch your ears, everyone](https://news.puppy-snuggles.com/136894698/dont-forget-to-stretch-your-ears-everyone)
+- [Tate at the lake](https://news.puppy-snuggles.com/125300702/tate-at-the-lake)
+- [So happy to visit new places](https://news.puppy-snuggles.com/125199937/so-happy-to-visit-new-places)
+- [zoomies go nyoooom](https://news.puppy-snuggles.com/124954889/zoomies-go-nyoooom)
+- [Baby Beau🩵](https://news.puppy-snuggles.com/120844279/baby-beau)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
