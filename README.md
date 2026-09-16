@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Don’t forget to stretch your ears, everyone](https://news.puppy-snuggles.com/136894698/dont-forget-to-stretch-your-ears-everyone)
-- [Tate at the lake](https://news.puppy-snuggles.com/125300702/tate-at-the-lake)
-- [So happy to visit new places](https://news.puppy-snuggles.com/125199937/so-happy-to-visit-new-places)
-- [zoomies go nyoooom](https://news.puppy-snuggles.com/124954889/zoomies-go-nyoooom)
-- [Baby Beau🩵](https://news.puppy-snuggles.com/120844279/baby-beau)
+- [Convinced my parents to put him on a diet, best decision ever](https://news.puppy-snuggles.com/137919891/convinced-my-parents-to-put-him-on-a-diet-best-decision-ever)
+- [Italian greyhounds 99% of the time](https://news.puppy-snuggles.com/136076371/italian-greyhounds-99-of-the-time)
+- [I am 31 years old and have never gone a single day without owning a dog](https://news.puppy-snuggles.com/135987932/i-am-31-years-old-and-have-never-gone-a-single-day-without-owning-a-dog)
+- [A few months older, but still professional at melting hearts with this smile. Snoopy💙](https://news.puppy-snuggles.com/135320943/a-few-months-older-but-still-professional-at-melting-hearts-with-this-smile-snoopy)
+- [Mi Teresa les desea a todos un Feliz Día 😍⭐✨](https://news.puppy-snuggles.com/134944601/mi-teresa-les-desea-a-todos-un-feliz-dia)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
