@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Convinced my parents to put him on a diet, best decision ever](https://news.puppy-snuggles.com/137919891/convinced-my-parents-to-put-him-on-a-diet-best-decision-ever)
-- [Italian greyhounds 99% of the time](https://news.puppy-snuggles.com/136076371/italian-greyhounds-99-of-the-time)
-- [I am 31 years old and have never gone a single day without owning a dog](https://news.puppy-snuggles.com/135987932/i-am-31-years-old-and-have-never-gone-a-single-day-without-owning-a-dog)
-- [A few months older, but still professional at melting hearts with this smile. Snoopy💙](https://news.puppy-snuggles.com/135320943/a-few-months-older-but-still-professional-at-melting-hearts-with-this-smile-snoopy)
-- [Mi Teresa les desea a todos un Feliz Día 😍⭐✨](https://news.puppy-snuggles.com/134944601/mi-teresa-les-desea-a-todos-un-feliz-dia)
+- [My dog has a doppelganger!](https://news.puppy-snuggles.com/132243471/my-dog-has-a-doppelganger)
+- [More silly faces from my boy Otis &lpar;Oatmeal, Oatman, Oaty&rpar; 🤪](https://news.puppy-snuggles.com/131721283/more-silly-faces-from-my-boy-otis-oatmeal-oatman-oaty)
+- [My babies Pippa &lpar;Boxer F 11&rpar; and Biscuit &lpar;Dachshund M 1&rpar;](https://news.puppy-snuggles.com/129345437/my-babies-pippa-boxer-f-11-and-biscuit-dachshund-m-1)
+- [Our Norman passed 5 weeks ago Sunday](https://news.puppy-snuggles.com/128330833/our-norman-passed-5-weeks-ago-sunday)
+- [Derpy girl.](https://news.puppy-snuggles.com/127437937/derpy-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
