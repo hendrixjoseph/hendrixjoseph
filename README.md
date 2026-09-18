@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dog has a doppelganger!](https://news.puppy-snuggles.com/132243471/my-dog-has-a-doppelganger)
-- [More silly faces from my boy Otis &lpar;Oatmeal, Oatman, Oaty&rpar; 🤪](https://news.puppy-snuggles.com/131721283/more-silly-faces-from-my-boy-otis-oatmeal-oatman-oaty)
-- [My babies Pippa &lpar;Boxer F 11&rpar; and Biscuit &lpar;Dachshund M 1&rpar;](https://news.puppy-snuggles.com/129345437/my-babies-pippa-boxer-f-11-and-biscuit-dachshund-m-1)
-- [Our Norman passed 5 weeks ago Sunday](https://news.puppy-snuggles.com/128330833/our-norman-passed-5-weeks-ago-sunday)
-- [Derpy girl.](https://news.puppy-snuggles.com/127437937/derpy-girl)
+- [Paddington 3 months old wondering what new things he will discover on today’s Adventure](https://news.puppy-snuggles.com/133492479/paddington-3-months-old-wondering-what-new-things-he-will-discover-on-todays-adventure)
+- [my stepdad found a dog outside today](https://news.puppy-snuggles.com/131864643/my-stepdad-found-a-dog-outside-today)
+- [Passenger Prince](https://news.puppy-snuggles.com/122926737/passenger-prince)
+- [My beautiful girl Chocolate crossed over the Rainbow Bridge Yesterday, she was 14](https://news.puppy-snuggles.com/122455792/my-beautiful-girl-chocolate-crossed-over-the-rainbow-bridge-yesterday-she-was-14)
+- [This sweet dog isn’t here anymore, so I tried to bring her back through art 💜](https://news.puppy-snuggles.com/119008649/this-sweet-dog-isnt-here-anymore-so-i-tried-to-bring-her-back-through-art)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
