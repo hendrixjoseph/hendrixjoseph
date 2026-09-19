@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Paddington 3 months old wondering what new things he will discover on today’s Adventure](https://news.puppy-snuggles.com/133492479/paddington-3-months-old-wondering-what-new-things-he-will-discover-on-todays-adventure)
-- [my stepdad found a dog outside today](https://news.puppy-snuggles.com/131864643/my-stepdad-found-a-dog-outside-today)
-- [Passenger Prince](https://news.puppy-snuggles.com/122926737/passenger-prince)
-- [My beautiful girl Chocolate crossed over the Rainbow Bridge Yesterday, she was 14](https://news.puppy-snuggles.com/122455792/my-beautiful-girl-chocolate-crossed-over-the-rainbow-bridge-yesterday-she-was-14)
-- [This sweet dog isn’t here anymore, so I tried to bring her back through art 💜](https://news.puppy-snuggles.com/119008649/this-sweet-dog-isnt-here-anymore-so-i-tried-to-bring-her-back-through-art)
+- [Say hi, teddy!](https://news.puppy-snuggles.com/132712409/say-hi-teddy)
+- [My favorite Girl](https://news.puppy-snuggles.com/128248994/my-favorite-girl)
+- [Hubert is 5 months old](https://news.puppy-snuggles.com/126691646/hubert-is-5-months-old)
+- [6 pounds of pure danger](https://news.puppy-snuggles.com/126195511/6-pounds-of-pure-danger)
+- [little cutie baby!!! ♡♡♡♡ his name is Puck, do u think it suits him??](https://news.puppy-snuggles.com/125610434/little-cutie-baby-his-name-is-puck-do-u-think-it-suits-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
