@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Say hi, teddy!](https://news.puppy-snuggles.com/132712409/say-hi-teddy)
-- [My favorite Girl](https://news.puppy-snuggles.com/128248994/my-favorite-girl)
-- [Hubert is 5 months old](https://news.puppy-snuggles.com/126691646/hubert-is-5-months-old)
-- [6 pounds of pure danger](https://news.puppy-snuggles.com/126195511/6-pounds-of-pure-danger)
-- [little cutie baby!!! ♡♡♡♡ his name is Puck, do u think it suits him??](https://news.puppy-snuggles.com/125610434/little-cutie-baby-his-name-is-puck-do-u-think-it-suits-him)
+- [Picked up Pearl 1 year ago. This was her adoption photo.](https://news.puppy-snuggles.com/127796788/picked-up-pearl-1-year-ago-this-was-her-adoption-photo)
+- [Goofy lady 💜](https://news.puppy-snuggles.com/127796797/goofy-lady)
+- [My boy when I got him aged 5 &lpar;right&rpar; vs today aged 10 &lpar;left&rpar;](https://news.puppy-snuggles.com/127114499/my-boy-when-i-got-him-aged-5-right-vs-today-aged-10-left)
+- [Please let me draw silly pictures of your dogs!](https://news.puppy-snuggles.com/112906697/please-let-me-draw-silly-pictures-of-your-dogs)
+- [My best friend in the whole world…](https://news.puppy-snuggles.com/107664479/my-best-friend-in-the-whole-world)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
