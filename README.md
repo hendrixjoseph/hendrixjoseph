@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Picked up Pearl 1 year ago. This was her adoption photo.](https://news.puppy-snuggles.com/127796788/picked-up-pearl-1-year-ago-this-was-her-adoption-photo)
-- [Goofy lady 💜](https://news.puppy-snuggles.com/127796797/goofy-lady)
-- [My boy when I got him aged 5 &lpar;right&rpar; vs today aged 10 &lpar;left&rpar;](https://news.puppy-snuggles.com/127114499/my-boy-when-i-got-him-aged-5-right-vs-today-aged-10-left)
-- [Please let me draw silly pictures of your dogs!](https://news.puppy-snuggles.com/112906697/please-let-me-draw-silly-pictures-of-your-dogs)
-- [My best friend in the whole world…](https://news.puppy-snuggles.com/107664479/my-best-friend-in-the-whole-world)
+- [Lola checking house perimeter for bone thieves](https://news.puppy-snuggles.com/134776394/lola-checking-house-perimeter-for-bone-thieves)
+- [My sweet girl on her 1st gotcha day with us.](https://news.puppy-snuggles.com/133898724/my-sweet-girl-on-her-1st-gotcha-day-with-us)
+- [We loss Georgia this year she was 17. She died last month. 🕊](https://news.puppy-snuggles.com/129270453/we-loss-georgia-this-year-she-was-17-she-died-last-month)
+- [This is my little peanut I wanted to share her with you ☺️](https://news.puppy-snuggles.com/128061185/this-is-my-little-peanut-i-wanted-to-share-her-with-you)
+- [Good evening!](https://news.puppy-snuggles.com/127896229/good-evening)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
