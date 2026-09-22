@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lola checking house perimeter for bone thieves](https://news.puppy-snuggles.com/134776394/lola-checking-house-perimeter-for-bone-thieves)
-- [My sweet girl on her 1st gotcha day with us.](https://news.puppy-snuggles.com/133898724/my-sweet-girl-on-her-1st-gotcha-day-with-us)
-- [We loss Georgia this year she was 17. She died last month. 🕊](https://news.puppy-snuggles.com/129270453/we-loss-georgia-this-year-she-was-17-she-died-last-month)
-- [This is my little peanut I wanted to share her with you ☺️](https://news.puppy-snuggles.com/128061185/this-is-my-little-peanut-i-wanted-to-share-her-with-you)
-- [Good evening!](https://news.puppy-snuggles.com/127896229/good-evening)
+- [Lulu the goodest girl turned 14 today!](https://news.puppy-snuggles.com/139103303/lulu-the-goodest-girl-turned-14-today)
+- [A look at my Doberman Odysseus as a puppy vs now at 1.5 years old](https://news.puppy-snuggles.com/129500405/a-look-at-my-doberman-odysseus-as-a-puppy-vs-now-at-15-years-old)
+- [He is stinky.](https://news.puppy-snuggles.com/123723932/he-is-stinky)
+- [He swears it isn’t him](https://news.puppy-snuggles.com/122243895/he-swears-it-isnt-him)
+- [Posted during the week about our rescue dog being transported 1300 miles. Last night wife and I drove 4 hours to meet the driver and we now have our precious Polo ❤️](https://news.puppy-snuggles.com/113051114/posted-during-the-week-about-our-rescue-dog-being-transported-1300-miles-last-night-wife-and-i-drove-4-hours-to-meet-the-driver-and-we-now-have-our-precious-polo)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
