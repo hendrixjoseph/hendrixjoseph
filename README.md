@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Lulu the goodest girl turned 14 today!](https://news.puppy-snuggles.com/139103303/lulu-the-goodest-girl-turned-14-today)
-- [A look at my Doberman Odysseus as a puppy vs now at 1.5 years old](https://news.puppy-snuggles.com/129500405/a-look-at-my-doberman-odysseus-as-a-puppy-vs-now-at-15-years-old)
-- [He is stinky.](https://news.puppy-snuggles.com/123723932/he-is-stinky)
-- [He swears it isn’t him](https://news.puppy-snuggles.com/122243895/he-swears-it-isnt-him)
-- [Posted during the week about our rescue dog being transported 1300 miles. Last night wife and I drove 4 hours to meet the driver and we now have our precious Polo ❤️](https://news.puppy-snuggles.com/113051114/posted-during-the-week-about-our-rescue-dog-being-transported-1300-miles-last-night-wife-and-i-drove-4-hours-to-meet-the-driver-and-we-now-have-our-precious-polo)
+- [He&amp;#039;s expecting a snack, should i reward him?](https://news.puppy-snuggles.com/139686172/hes-expecting-a-snack-should-i-reward-him)
+- [Hello, meet Bambi!](https://news.puppy-snuggles.com/139686170/hello-meet-bambi)
+- [Look at this pretty boy](https://news.puppy-snuggles.com/139686180/look-at-this-pretty-boy)
+- [Nala the bear](https://news.puppy-snuggles.com/139686176/nala-the-bear)
+- [Eddie Spaghetti is ready for the fall season](https://news.puppy-snuggles.com/139686171/eddie-spaghetti-is-ready-for-the-fall-season)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
