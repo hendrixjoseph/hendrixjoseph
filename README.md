@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He&amp;#039;s expecting a snack, should i reward him?](https://news.puppy-snuggles.com/139686172/hes-expecting-a-snack-should-i-reward-him)
-- [Hello, meet Bambi!](https://news.puppy-snuggles.com/139686170/hello-meet-bambi)
-- [Look at this pretty boy](https://news.puppy-snuggles.com/139686180/look-at-this-pretty-boy)
-- [Nala the bear](https://news.puppy-snuggles.com/139686176/nala-the-bear)
-- [Eddie Spaghetti is ready for the fall season](https://news.puppy-snuggles.com/139686171/eddie-spaghetti-is-ready-for-the-fall-season)
+- [These are all the cute dogs that I immortalized in this rare style that is called Ballpoint pen ❤️✍️](https://news.puppy-snuggles.com/139211806/these-are-all-the-cute-dogs-that-i-immortalized-in-this-rare-style-that-is-called-ballpoint-pen)
+- [The eyes Chico, they never lie](https://news.puppy-snuggles.com/139137345/the-eyes-chico-they-never-lie)
+- [Happy Friday. 🩷](https://news.puppy-snuggles.com/135721075/happy-friday)
+- [Don’t have a cow, man](https://news.puppy-snuggles.com/134457426/dont-have-a-cow-man)
+- [He&amp;#039;s so perfect](https://news.puppy-snuggles.com/133263616/hes-so-perfect)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
