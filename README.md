@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [These are all the cute dogs that I immortalized in this rare style that is called Ballpoint pen ❤️✍️](https://news.puppy-snuggles.com/139211806/these-are-all-the-cute-dogs-that-i-immortalized-in-this-rare-style-that-is-called-ballpoint-pen)
-- [The eyes Chico, they never lie](https://news.puppy-snuggles.com/139137345/the-eyes-chico-they-never-lie)
-- [Happy Friday. 🩷](https://news.puppy-snuggles.com/135721075/happy-friday)
-- [Don’t have a cow, man](https://news.puppy-snuggles.com/134457426/dont-have-a-cow-man)
-- [He&amp;#039;s so perfect](https://news.puppy-snuggles.com/133263616/hes-so-perfect)
+- [Guys, meet my son. 🐶](https://news.puppy-snuggles.com/139970763/guys-meet-my-son)
+- [The happiest patient in the waiting room](https://news.puppy-snuggles.com/139970757/the-happiest-patient-in-the-waiting-room)
+- [Tomorrow I have a 7 hour bus ride. I’ll be sketching some dogs to pass the time! Comment with yours :&rpar;](https://news.puppy-snuggles.com/139970758/tomorrow-i-have-a-7-hour-bus-ride-ill-be-sketching-some-dogs-to-pass-the-time-comment-with-yours)
+- [Enrichment?](https://news.puppy-snuggles.com/139970764/enrichment)
+- [Can I help you, good sir?](https://news.puppy-snuggles.com/139970762/can-i-help-you-good-sir)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
