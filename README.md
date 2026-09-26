@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Guys, meet my son. 🐶](https://news.puppy-snuggles.com/139970763/guys-meet-my-son)
-- [The happiest patient in the waiting room](https://news.puppy-snuggles.com/139970757/the-happiest-patient-in-the-waiting-room)
-- [Tomorrow I have a 7 hour bus ride. I’ll be sketching some dogs to pass the time! Comment with yours :&rpar;](https://news.puppy-snuggles.com/139970758/tomorrow-i-have-a-7-hour-bus-ride-ill-be-sketching-some-dogs-to-pass-the-time-comment-with-yours)
-- [Enrichment?](https://news.puppy-snuggles.com/139970764/enrichment)
-- [Can I help you, good sir?](https://news.puppy-snuggles.com/139970762/can-i-help-you-good-sir)
+- [Friday vibes](https://news.puppy-snuggles.com/140112960/friday-vibes)
+- [Pot of Golden at the end of the rainbow](https://news.puppy-snuggles.com/140112952/pot-of-golden-at-the-end-of-the-rainbow)
+- [It’s Hopper’s Birthday!](https://news.puppy-snuggles.com/140112955/its-hoppers-birthday)
+- [When I leave to go to the store. 👀](https://news.puppy-snuggles.com/140112958/when-i-leave-to-go-to-the-store)
+- [This face. 😭](https://news.puppy-snuggles.com/139103302/this-face)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
