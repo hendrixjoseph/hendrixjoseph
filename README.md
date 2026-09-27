@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Friday vibes](https://news.puppy-snuggles.com/140112960/friday-vibes)
-- [Pot of Golden at the end of the rainbow](https://news.puppy-snuggles.com/140112952/pot-of-golden-at-the-end-of-the-rainbow)
-- [It’s Hopper’s Birthday!](https://news.puppy-snuggles.com/140112955/its-hoppers-birthday)
-- [When I leave to go to the store. 👀](https://news.puppy-snuggles.com/140112958/when-i-leave-to-go-to-the-store)
-- [This face. 😭](https://news.puppy-snuggles.com/139103302/this-face)
+- [He is the last romantic on earth.](https://news.puppy-snuggles.com/137769311/he-is-the-last-romantic-on-earth)
+- [My favorite Girl](https://news.puppy-snuggles.com/128248994/my-favorite-girl)
+- [When a dog adopt himself to us](https://news.puppy-snuggles.com/125300708/when-a-dog-adopt-himself-to-us)
+- [Rachel’s built like a potato. Dressed like a pro athlete](https://news.puppy-snuggles.com/123861036/rachels-built-like-a-potato-dressed-like-a-pro-athlete)
+- [My beautiful girl](https://news.puppy-snuggles.com/122926742/my-beautiful-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
