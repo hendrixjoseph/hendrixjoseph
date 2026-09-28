@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He is the last romantic on earth.](https://news.puppy-snuggles.com/137769311/he-is-the-last-romantic-on-earth)
-- [My favorite Girl](https://news.puppy-snuggles.com/128248994/my-favorite-girl)
-- [When a dog adopt himself to us](https://news.puppy-snuggles.com/125300708/when-a-dog-adopt-himself-to-us)
-- [Rachel’s built like a potato. Dressed like a pro athlete](https://news.puppy-snuggles.com/123861036/rachels-built-like-a-potato-dressed-like-a-pro-athlete)
-- [My beautiful girl](https://news.puppy-snuggles.com/122926742/my-beautiful-girl)
+- [My new little pup Mollie :&rpar;](https://news.puppy-snuggles.com/140413662/my-new-little-pup-mollie)
+- [Hennessy life too short](https://news.puppy-snuggles.com/140413657/hennessy-life-too-short)
+- [Can anyone guess what mix of breeds this baby is?](https://news.puppy-snuggles.com/140413658/can-anyone-guess-what-mix-of-breeds-this-baby-is)
+- [so neglected](https://news.puppy-snuggles.com/140413660/so-neglected)
+- [My sweet girl on her 1st gotcha day with us.](https://news.puppy-snuggles.com/133898724/my-sweet-girl-on-her-1st-gotcha-day-with-us)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
