@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My new little pup Mollie :&rpar;](https://news.puppy-snuggles.com/140413662/my-new-little-pup-mollie)
-- [Hennessy life too short](https://news.puppy-snuggles.com/140413657/hennessy-life-too-short)
-- [Can anyone guess what mix of breeds this baby is?](https://news.puppy-snuggles.com/140413658/can-anyone-guess-what-mix-of-breeds-this-baby-is)
-- [so neglected](https://news.puppy-snuggles.com/140413660/so-neglected)
-- [My sweet girl on her 1st gotcha day with us.](https://news.puppy-snuggles.com/133898724/my-sweet-girl-on-her-1st-gotcha-day-with-us)
+- [Hey everyone! Curious if my sister’s dog has dwarfism? Also what breed do we think she is?](https://news.puppy-snuggles.com/128786279/hey-everyone-curious-if-my-sisters-dog-has-dwarfism-also-what-breed-do-we-think-she-is)
+- [Saying good bye to milo today and i can’t stop feeling bad for it](https://news.puppy-snuggles.com/122808293/saying-good-bye-to-milo-today-and-i-cant-stop-feeling-bad-for-it)
+- [At least he got his fish.](https://news.puppy-snuggles.com/122722476/at-least-he-got-his-fish)
+- [Mommy, I has a boo-boo on my paw!](https://news.puppy-snuggles.com/122187384/mommy-i-has-a-boo-boo-on-my-paw)
+- [My bestie from my local shelter 🐾](https://news.puppy-snuggles.com/121406733/my-bestie-from-my-local-shelter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
