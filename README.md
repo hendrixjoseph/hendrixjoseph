@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Hey everyone! Curious if my sister’s dog has dwarfism? Also what breed do we think she is?](https://news.puppy-snuggles.com/128786279/hey-everyone-curious-if-my-sisters-dog-has-dwarfism-also-what-breed-do-we-think-she-is)
-- [Saying good bye to milo today and i can’t stop feeling bad for it](https://news.puppy-snuggles.com/122808293/saying-good-bye-to-milo-today-and-i-cant-stop-feeling-bad-for-it)
-- [At least he got his fish.](https://news.puppy-snuggles.com/122722476/at-least-he-got-his-fish)
-- [Mommy, I has a boo-boo on my paw!](https://news.puppy-snuggles.com/122187384/mommy-i-has-a-boo-boo-on-my-paw)
-- [My bestie from my local shelter 🐾](https://news.puppy-snuggles.com/121406733/my-bestie-from-my-local-shelter)
+- [My dog look like a meme on this picture](https://news.puppy-snuggles.com/140297913/my-dog-look-like-a-meme-on-this-picture)
+- [Two of my Favorite of Gizmo](https://news.puppy-snuggles.com/130930129/two-of-my-favorite-of-gizmo)
+- [I’m drunk and I just want everyone to know I love my dog so much and everyone needs to see her](https://news.puppy-snuggles.com/129701883/im-drunk-and-i-just-want-everyone-to-know-i-love-my-dog-so-much-and-everyone-needs-to-see-her)
+- [Ranger says hi](https://news.puppy-snuggles.com/124024807/ranger-says-hi)
+- [Our Beautiful Deva Died Today.](https://news.puppy-snuggles.com/121592477/our-beautiful-deva-died-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
