@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Meatball&amp;#039;s first time at the dog beach](https://news.puppy-snuggles.com/130357209/meatballs-first-time-at-the-dog-beach)
-- [Rescue dog 🐶 only comes out at night or when we are not home](https://news.puppy-snuggles.com/126838508/rescue-dog-only-comes-out-at-night-or-when-we-are-not-home)
-- [Saturday we said goodbye to Sarge after 12 fantastic years](https://news.puppy-snuggles.com/125992985/saturday-we-said-goodbye-to-sarge-after-12-fantastic-years)
-- [little cutie baby!!! ♡♡♡♡ his name is Puck, do u think it suits him??](https://news.puppy-snuggles.com/125610434/little-cutie-baby-his-name-is-puck-do-u-think-it-suits-him)
-- [Soft clouds for you, Nika, my beloved girl &lpar;17.10.2013-10.04.2026&rpar;](https://news.puppy-snuggles.com/125572302/soft-clouds-for-you-nika-my-beloved-girl-17102013-10042026)
+- [My favorite hiking buddeee..](https://news.puppy-snuggles.com/138068187/my-favorite-hiking-buddeee)
+- [Happy Wednesday ☁️](https://news.puppy-snuggles.com/134256408/happy-wednesday)
+- [Smile of the day :D](https://news.puppy-snuggles.com/129462929/smile-of-the-day-d)
+- [How do you even BEGIN to honour the lives of those who view you as their whole lives?! Their stories become part of yours.](https://news.puppy-snuggles.com/129345438/how-do-you-even-begin-to-honour-the-lives-of-those-who-view-you-as-their-whole-lives-their-stories-become-part-of-yours)
+- [My rescue dogs. You can’t tell that one was thrown from a moving vehicle and the other tied to a pole at the shelter during the night because now they’re loved and spoiled 24/7. 💕](https://news.puppy-snuggles.com/128899828/my-rescue-dogs-you-cant-tell-that-one-was-thrown-from-a-moving-vehicle-and-the-other-tied-to-a-pole-at-the-shelter-during-the-night-because-now-theyre-loved-and-spoiled-247)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
