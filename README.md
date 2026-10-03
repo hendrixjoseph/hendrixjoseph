@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My favorite hiking buddeee..](https://news.puppy-snuggles.com/138068187/my-favorite-hiking-buddeee)
-- [Happy Wednesday ☁️](https://news.puppy-snuggles.com/134256408/happy-wednesday)
-- [Smile of the day :D](https://news.puppy-snuggles.com/129462929/smile-of-the-day-d)
-- [How do you even BEGIN to honour the lives of those who view you as their whole lives?! Their stories become part of yours.](https://news.puppy-snuggles.com/129345438/how-do-you-even-begin-to-honour-the-lives-of-those-who-view-you-as-their-whole-lives-their-stories-become-part-of-yours)
-- [My rescue dogs. You can’t tell that one was thrown from a moving vehicle and the other tied to a pole at the shelter during the night because now they’re loved and spoiled 24/7. 💕](https://news.puppy-snuggles.com/128899828/my-rescue-dogs-you-cant-tell-that-one-was-thrown-from-a-moving-vehicle-and-the-other-tied-to-a-pole-at-the-shelter-during-the-night-because-now-theyre-loved-and-spoiled-247)
+- [Sweet Moisely](https://news.puppy-snuggles.com/139755785/sweet-moisely)
+- [Show me your dog and their name!!! This is Bogey](https://news.puppy-snuggles.com/130767693/show-me-your-dog-and-their-name-this-is-bogey)
+- [Random dog showed up at my sister&amp;#039;s house](https://news.puppy-snuggles.com/130692577/random-dog-showed-up-at-my-sisters-house)
+- [Dakota 😍](https://news.puppy-snuggles.com/130403178/dakota)
+- [He&amp;#039;s as happy as can be](https://news.puppy-snuggles.com/129540102/hes-as-happy-as-can-be)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
