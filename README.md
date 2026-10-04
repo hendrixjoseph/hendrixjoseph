@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sweet Moisely](https://news.puppy-snuggles.com/139755785/sweet-moisely)
-- [Show me your dog and their name!!! This is Bogey](https://news.puppy-snuggles.com/130767693/show-me-your-dog-and-their-name-this-is-bogey)
-- [Random dog showed up at my sister&amp;#039;s house](https://news.puppy-snuggles.com/130692577/random-dog-showed-up-at-my-sisters-house)
-- [Dakota 😍](https://news.puppy-snuggles.com/130403178/dakota)
-- [He&amp;#039;s as happy as can be](https://news.puppy-snuggles.com/129540102/hes-as-happy-as-can-be)
+- [Inquiring minds want to know.](https://news.puppy-snuggles.com/141267588/inquiring-minds-want-to-know)
+- [My mom says I’m nothing more than a sweet honey badger — do you agree?](https://news.puppy-snuggles.com/134615788/my-mom-says-im-nothing-more-than-a-sweet-honey-badger-do-you-agree)
+- [Morning ROOOOOOOO!!](https://news.puppy-snuggles.com/131175607/morning-roooooooo)
+- [Happy boy🐶](https://news.puppy-snuggles.com/131142953/happy-boy)
+- [This is Gary. He is 1 next month. He is half French bulldog half Jack Russell and 100% cute](https://news.puppy-snuggles.com/130136584/this-is-gary-he-is-1-next-month-he-is-half-french-bulldog-half-jack-russell-and-100-cute)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
