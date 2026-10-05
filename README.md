@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Inquiring minds want to know.](https://news.puppy-snuggles.com/141267588/inquiring-minds-want-to-know)
-- [My mom says I’m nothing more than a sweet honey badger — do you agree?](https://news.puppy-snuggles.com/134615788/my-mom-says-im-nothing-more-than-a-sweet-honey-badger-do-you-agree)
-- [Morning ROOOOOOOO!!](https://news.puppy-snuggles.com/131175607/morning-roooooooo)
-- [Happy boy🐶](https://news.puppy-snuggles.com/131142953/happy-boy)
-- [This is Gary. He is 1 next month. He is half French bulldog half Jack Russell and 100% cute](https://news.puppy-snuggles.com/130136584/this-is-gary-he-is-1-next-month-he-is-half-french-bulldog-half-jack-russell-and-100-cute)
+- [Mya is full-time blep since her surgery](https://news.puppy-snuggles.com/141421649/mya-is-full-time-blep-since-her-surgery)
+- [This is complete and total happiness](https://news.puppy-snuggles.com/135517682/this-is-complete-and-total-happiness)
+- [Happiest boy 🥹](https://news.puppy-snuggles.com/131175606/happiest-boy)
+- [Losing a pet for the first time](https://news.puppy-snuggles.com/129196823/losing-a-pet-for-the-first-time)
+- [As an adult and as a baby](https://news.puppy-snuggles.com/126748637/as-an-adult-and-as-a-baby)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
