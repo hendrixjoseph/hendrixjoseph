@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Mya is full-time blep since her surgery](https://news.puppy-snuggles.com/141421649/mya-is-full-time-blep-since-her-surgery)
-- [This is complete and total happiness](https://news.puppy-snuggles.com/135517682/this-is-complete-and-total-happiness)
-- [Happiest boy 🥹](https://news.puppy-snuggles.com/131175606/happiest-boy)
-- [Losing a pet for the first time](https://news.puppy-snuggles.com/129196823/losing-a-pet-for-the-first-time)
-- [As an adult and as a baby](https://news.puppy-snuggles.com/126748637/as-an-adult-and-as-a-baby)
+- [The face Nash makes after destroying a toy](https://news.puppy-snuggles.com/135284408/the-face-nash-makes-after-destroying-a-toy)
+- [Goofy girls!](https://news.puppy-snuggles.com/133053260/goofy-girls)
+- [What does it mean if my dog ​​sits down during a walk and looks at me?](https://news.puppy-snuggles.com/132409155/what-does-it-mean-if-my-dog-sits-down-during-a-walk-and-looks-at-me)
+- [Gonna have to put my old boy down soon :&lpar;](https://news.puppy-snuggles.com/131042118/gonna-have-to-put-my-old-boy-down-soon)
+- [What the dog doing?](https://news.puppy-snuggles.com/129014317/what-the-dog-doing)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
