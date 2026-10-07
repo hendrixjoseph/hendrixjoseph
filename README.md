@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The face Nash makes after destroying a toy](https://news.puppy-snuggles.com/135284408/the-face-nash-makes-after-destroying-a-toy)
-- [Goofy girls!](https://news.puppy-snuggles.com/133053260/goofy-girls)
-- [What does it mean if my dog ​​sits down during a walk and looks at me?](https://news.puppy-snuggles.com/132409155/what-does-it-mean-if-my-dog-sits-down-during-a-walk-and-looks-at-me)
-- [Gonna have to put my old boy down soon :&lpar;](https://news.puppy-snuggles.com/131042118/gonna-have-to-put-my-old-boy-down-soon)
-- [What the dog doing?](https://news.puppy-snuggles.com/129014317/what-the-dog-doing)
+- [RIP Roger, you were the goodest boy.](https://news.puppy-snuggles.com/141729029/rip-roger-you-were-the-goodest-boy)
+- [Rescued a &amp;quot;retriever mix&amp;quot;, uh not. Half Rottie/half St. Bernard 😳](https://news.puppy-snuggles.com/141729024/rescued-a-retriever-mix-uh-not-half-rottiehalf-st-bernard)
+- [She’ll just come and lay her head on my thigh and look up at me like this ❤️❤️](https://news.puppy-snuggles.com/141729025/shell-just-come-and-lay-her-head-on-my-thigh-and-look-up-at-me-like-this)
+- [Thought someone might like to see a 6 week old puppy getting their first tummy rub.](https://news.puppy-snuggles.com/141729031/thought-someone-might-like-to-see-a-6-week-old-puppy-getting-their-first-tummy-rub)
+- [Meet Pockets.](https://news.puppy-snuggles.com/141729035/meet-pockets)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
