@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [RIP Roger, you were the goodest boy.](https://news.puppy-snuggles.com/141729029/rip-roger-you-were-the-goodest-boy)
-- [Rescued a &amp;quot;retriever mix&amp;quot;, uh not. Half Rottie/half St. Bernard 😳](https://news.puppy-snuggles.com/141729024/rescued-a-retriever-mix-uh-not-half-rottiehalf-st-bernard)
-- [She’ll just come and lay her head on my thigh and look up at me like this ❤️❤️](https://news.puppy-snuggles.com/141729025/shell-just-come-and-lay-her-head-on-my-thigh-and-look-up-at-me-like-this)
-- [Thought someone might like to see a 6 week old puppy getting their first tummy rub.](https://news.puppy-snuggles.com/141729031/thought-someone-might-like-to-see-a-6-week-old-puppy-getting-their-first-tummy-rub)
-- [Meet Pockets.](https://news.puppy-snuggles.com/141729035/meet-pockets)
+- [Homer The Dog is 14. The Very Goodest boi.](https://news.puppy-snuggles.com/130136585/homer-the-dog-is-14-the-very-goodest-boi)
+- [Miss you. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/128632927/miss-you-original-wet-charcoal-and-pastel-art-by-me)
+- [This is Bean, he loves naps](https://news.puppy-snuggles.com/127697621/this-is-bean-he-loves-naps)
+- [She really wants my danish](https://news.puppy-snuggles.com/124625062/she-really-wants-my-danish)
+- [365 Days of Pepperoni &amp;amp; Her Toys. Day 8](https://news.puppy-snuggles.com/111036736/365-days-of-pepperoni-her-toys-day-8)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
