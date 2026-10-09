@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Homer The Dog is 14. The Very Goodest boi.](https://news.puppy-snuggles.com/130136585/homer-the-dog-is-14-the-very-goodest-boi)
-- [Miss you. Original wet charcoal and pastel art by me.](https://news.puppy-snuggles.com/128632927/miss-you-original-wet-charcoal-and-pastel-art-by-me)
-- [This is Bean, he loves naps](https://news.puppy-snuggles.com/127697621/this-is-bean-he-loves-naps)
-- [She really wants my danish](https://news.puppy-snuggles.com/124625062/she-really-wants-my-danish)
-- [365 Days of Pepperoni &amp;amp; Her Toys. Day 8](https://news.puppy-snuggles.com/111036736/365-days-of-pepperoni-her-toys-day-8)
+- [Dog appreciation post: my favorite photos I’ve taken at work 🖤](https://news.puppy-snuggles.com/129270446/dog-appreciation-post-my-favorite-photos-ive-taken-at-work)
+- [I finally earned the trust of my roommate’s rescue dog!!](https://news.puppy-snuggles.com/128554941/i-finally-earned-the-trust-of-my-roommates-rescue-dog)
+- [Electra being so comfy/lazy she doesn&amp;#039;t want to move](https://news.puppy-snuggles.com/126567263/electra-being-so-comfylazy-she-doesnt-want-to-move)
+- [Our newest addition..Murphy. He is the sweetest most rotten puppy around.](https://news.puppy-snuggles.com/125713649/our-newest-additionmurphy-he-is-the-sweetest-most-rotten-puppy-around)
+- [This girl is probably the sweetest dog I have ever met. Roxie &lpar;7&rpar;, Adopted from the shelter 3 years ago.](https://news.puppy-snuggles.com/125540928/this-girl-is-probably-the-sweetest-dog-i-have-ever-met-roxie-7-adopted-from-the-shelter-3-years-ago)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
