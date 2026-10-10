@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Dog appreciation post: my favorite photos I’ve taken at work 🖤](https://news.puppy-snuggles.com/129270446/dog-appreciation-post-my-favorite-photos-ive-taken-at-work)
-- [I finally earned the trust of my roommate’s rescue dog!!](https://news.puppy-snuggles.com/128554941/i-finally-earned-the-trust-of-my-roommates-rescue-dog)
-- [Electra being so comfy/lazy she doesn&amp;#039;t want to move](https://news.puppy-snuggles.com/126567263/electra-being-so-comfylazy-she-doesnt-want-to-move)
-- [Our newest addition..Murphy. He is the sweetest most rotten puppy around.](https://news.puppy-snuggles.com/125713649/our-newest-additionmurphy-he-is-the-sweetest-most-rotten-puppy-around)
-- [This girl is probably the sweetest dog I have ever met. Roxie &lpar;7&rpar;, Adopted from the shelter 3 years ago.](https://news.puppy-snuggles.com/125540928/this-girl-is-probably-the-sweetest-dog-i-have-ever-met-roxie-7-adopted-from-the-shelter-3-years-ago)
+- [Yankee graduated puppy school 🥹](https://news.puppy-snuggles.com/140221550/yankee-graduated-puppy-school)
+- [When can we go to the Beach?](https://news.puppy-snuggles.com/135209383/when-can-we-go-to-the-beach)
+- [I’m Cleo! I have to be walked at 4 am because I’m hyper reactive to people and pets!](https://news.puppy-snuggles.com/132375296/im-cleo-i-have-to-be-walked-at-4-am-because-im-hyper-reactive-to-people-and-pets)
+- [Osa, my beautiful angel is gone](https://news.puppy-snuggles.com/131721274/osa-my-beautiful-angel-is-gone)
+- [The cutest pupper!](https://news.puppy-snuggles.com/127022352/the-cutest-pupper)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
