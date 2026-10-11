@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Yankee graduated puppy school 🥹](https://news.puppy-snuggles.com/140221550/yankee-graduated-puppy-school)
-- [When can we go to the Beach?](https://news.puppy-snuggles.com/135209383/when-can-we-go-to-the-beach)
-- [I’m Cleo! I have to be walked at 4 am because I’m hyper reactive to people and pets!](https://news.puppy-snuggles.com/132375296/im-cleo-i-have-to-be-walked-at-4-am-because-im-hyper-reactive-to-people-and-pets)
-- [Osa, my beautiful angel is gone](https://news.puppy-snuggles.com/131721274/osa-my-beautiful-angel-is-gone)
-- [The cutest pupper!](https://news.puppy-snuggles.com/127022352/the-cutest-pupper)
+- [The evolution of my dog over 14 years](https://news.puppy-snuggles.com/136284480/the-evolution-of-my-dog-over-14-years)
+- [This is how she smiles when someone speaks to her affectionately; she&amp;#039;s very cheerful and playful, and of course, spoiled ☺️](https://news.puppy-snuggles.com/132311067/this-is-how-she-smiles-when-someone-speaks-to-her-affectionately-shes-very-cheerful-and-playful-and-of-course-spoiled)
+- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
+- [Excuse me sir, I’d like to order some Cheese](https://news.puppy-snuggles.com/130888175/excuse-me-sir-id-like-to-order-some-cheese)
+- [Our boy basking in the sun ☀️](https://news.puppy-snuggles.com/129912935/our-boy-basking-in-the-sun)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
