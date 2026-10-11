@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on ELI5 why is a number divided by 0 not infinity?](https://www.reddit.com/r/explainlikeimfive/comments/1x2441h/eli5_why_is_a_number_divided_by_0_not_infinity/pf33dbs/)
 - [/u/joehx on What&#39;s something that has an official &quot;proper&quot; way to do it that most people do differently?](https://www.reddit.com/r/AskReddit/comments/1wyhoo0/whats_something_that_has_an_official_proper_way/perd4k2/)
 - [/u/joehx on What products are unnecessarily thrown away because one $5–$50 component fails?](https://www.reddit.com/r/AskReddit/comments/1wetvlz/what_products_are_unnecessarily_thrown_away/p9jjwq7/)
 - [/u/joehx on What are some crimes that were common in our generation that aren&#39;t a problem anymore?](https://www.reddit.com/r/Millennials/comments/1wdvce5/what_are_some_crimes_that_were_common_in_our/p99qfma/)
 - [/u/joehx on Has anyone else noticed what I am calling the “Dayton outer left pass”?](https://www.reddit.com/r/dayton/comments/1wdfhhw/has_anyone_else_noticed_what_i_am_calling_the/p96g87y/)
-- [/u/joehx on meirl](https://www.reddit.com/r/meirl/comments/1w8438c/meirl/p827enc/)
 <!-- REDDIT:END -->
