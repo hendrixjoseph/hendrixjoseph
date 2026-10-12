@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The evolution of my dog over 14 years](https://news.puppy-snuggles.com/136284480/the-evolution-of-my-dog-over-14-years)
-- [This is how she smiles when someone speaks to her affectionately; she&amp;#039;s very cheerful and playful, and of course, spoiled ☺️](https://news.puppy-snuggles.com/132311067/this-is-how-she-smiles-when-someone-speaks-to-her-affectionately-shes-very-cheerful-and-playful-and-of-course-spoiled)
-- [Boop this!](https://news.puppy-snuggles.com/132005493/boop-this)
-- [Excuse me sir, I’d like to order some Cheese](https://news.puppy-snuggles.com/130888175/excuse-me-sir-id-like-to-order-some-cheese)
-- [Our boy basking in the sun ☀️](https://news.puppy-snuggles.com/129912935/our-boy-basking-in-the-sun)
+- [The happiest little face ever](https://news.puppy-snuggles.com/142045378/the-happiest-little-face-ever)
+- [Fun toys/games for high energy dogs?](https://news.puppy-snuggles.com/137402038/fun-toysgames-for-high-energy-dogs)
+- [Baxter likes to have it his way](https://news.puppy-snuggles.com/136120337/baxter-likes-to-have-it-his-way)
+- [Meet our girl, Joey!](https://news.puppy-snuggles.com/131864640/meet-our-girl-joey)
+- [Tell her she’s a good girl.](https://news.puppy-snuggles.com/130807674/tell-her-shes-a-good-girl)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
