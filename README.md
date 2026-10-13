@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The happiest little face ever](https://news.puppy-snuggles.com/142045378/the-happiest-little-face-ever)
-- [Fun toys/games for high energy dogs?](https://news.puppy-snuggles.com/137402038/fun-toysgames-for-high-energy-dogs)
-- [Baxter likes to have it his way](https://news.puppy-snuggles.com/136120337/baxter-likes-to-have-it-his-way)
-- [Meet our girl, Joey!](https://news.puppy-snuggles.com/131864640/meet-our-girl-joey)
-- [Tell her she’s a good girl.](https://news.puppy-snuggles.com/130807674/tell-her-shes-a-good-girl)
+- [I Have a Friend - His name is... Biggus Stickus](https://news.puppy-snuggles.com/134776389/i-have-a-friend-his-name-is-biggus-stickus)
+- [Jennifer](https://news.puppy-snuggles.com/133570361/jennifer)
+- [My new wallpaper with my dog](https://news.puppy-snuggles.com/133225893/my-new-wallpaper-with-my-dog)
+- [Lost my sweet girl on Friday](https://news.puppy-snuggles.com/132886574/lost-my-sweet-girl-on-friday)
+- [I miss my boy so much.](https://news.puppy-snuggles.com/132818871/i-miss-my-boy-so-much)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
