@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I Have a Friend - His name is... Biggus Stickus](https://news.puppy-snuggles.com/134776389/i-have-a-friend-his-name-is-biggus-stickus)
-- [Jennifer](https://news.puppy-snuggles.com/133570361/jennifer)
-- [My new wallpaper with my dog](https://news.puppy-snuggles.com/133225893/my-new-wallpaper-with-my-dog)
-- [Lost my sweet girl on Friday](https://news.puppy-snuggles.com/132886574/lost-my-sweet-girl-on-friday)
-- [I miss my boy so much.](https://news.puppy-snuggles.com/132818871/i-miss-my-boy-so-much)
+- [Vet took some teeth, but his gummy smile is still worth a million bucks](https://news.puppy-snuggles.com/139544002/vet-took-some-teeth-but-his-gummy-smile-is-still-worth-a-million-bucks)
+- [Foster dog adopted me automatically so I adopted her...](https://news.puppy-snuggles.com/133225887/foster-dog-adopted-me-automatically-so-i-adopted-her)
+- [My first rescue baby.](https://news.puppy-snuggles.com/132609286/my-first-rescue-baby)
+- [My Baby Girl was Diagnosed with a Degenerative Brain Disorder Today](https://news.puppy-snuggles.com/129307806/my-baby-girl-was-diagnosed-with-a-degenerative-brain-disorder-today)
+- [My 17-year-old Jack Russell then and now](https://news.puppy-snuggles.com/128976857/my-17-year-old-jack-russell-then-and-now)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
