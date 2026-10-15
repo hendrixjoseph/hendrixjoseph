@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Vet took some teeth, but his gummy smile is still worth a million bucks](https://news.puppy-snuggles.com/139544002/vet-took-some-teeth-but-his-gummy-smile-is-still-worth-a-million-bucks)
-- [Foster dog adopted me automatically so I adopted her...](https://news.puppy-snuggles.com/133225887/foster-dog-adopted-me-automatically-so-i-adopted-her)
-- [My first rescue baby.](https://news.puppy-snuggles.com/132609286/my-first-rescue-baby)
-- [My Baby Girl was Diagnosed with a Degenerative Brain Disorder Today](https://news.puppy-snuggles.com/129307806/my-baby-girl-was-diagnosed-with-a-degenerative-brain-disorder-today)
-- [My 17-year-old Jack Russell then and now](https://news.puppy-snuggles.com/128976857/my-17-year-old-jack-russell-then-and-now)
+- [Wylie](https://news.puppy-snuggles.com/142848344/wylie)
+- [A lucky photo](https://news.puppy-snuggles.com/131864641/a-lucky-photo)
+- [My happy old dog](https://news.puppy-snuggles.com/130572910/my-happy-old-dog)
+- [Just found out this sub existed!!! This is my smiliest boy 🐶🥎🫠](https://news.puppy-snuggles.com/130046521/just-found-out-this-sub-existed-this-is-my-smiliest-boy)
+- [My sleepy cuddle queen](https://news.puppy-snuggles.com/121228275/my-sleepy-cuddle-queen)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
