@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Wylie](https://news.puppy-snuggles.com/142848344/wylie)
-- [A lucky photo](https://news.puppy-snuggles.com/131864641/a-lucky-photo)
-- [My happy old dog](https://news.puppy-snuggles.com/130572910/my-happy-old-dog)
-- [Just found out this sub existed!!! This is my smiliest boy 🐶🥎🫠](https://news.puppy-snuggles.com/130046521/just-found-out-this-sub-existed-this-is-my-smiliest-boy)
-- [My sleepy cuddle queen](https://news.puppy-snuggles.com/121228275/my-sleepy-cuddle-queen)
+- [This is complete and total happiness](https://news.puppy-snuggles.com/135517682/this-is-complete-and-total-happiness)
+- [good morning from my son!!](https://news.puppy-snuggles.com/132677945/good-morning-from-my-son)
+- [These are my dogs.](https://news.puppy-snuggles.com/129050660/these-are-my-dogs)
+- [Rest in Peace Jack🖤🐾🌈🐶](https://news.puppy-snuggles.com/127667279/rest-in-peace-jack)
+- [went to beach today found this lady ,she is a stray, sleeps at beach and get fed by life-guard.](https://news.puppy-snuggles.com/126397687/went-to-beach-today-found-this-lady-she-is-a-stray-sleeps-at-beach-and-get-fed-by-life-guard)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
