@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [This is complete and total happiness](https://news.puppy-snuggles.com/135517682/this-is-complete-and-total-happiness)
-- [good morning from my son!!](https://news.puppy-snuggles.com/132677945/good-morning-from-my-son)
-- [These are my dogs.](https://news.puppy-snuggles.com/129050660/these-are-my-dogs)
-- [Rest in Peace Jack🖤🐾🌈🐶](https://news.puppy-snuggles.com/127667279/rest-in-peace-jack)
-- [went to beach today found this lady ,she is a stray, sleeps at beach and get fed by life-guard.](https://news.puppy-snuggles.com/126397687/went-to-beach-today-found-this-lady-she-is-a-stray-sleeps-at-beach-and-get-fed-by-life-guard)
+- [The face of a boy who whined and whined to go outside, just to dig](https://news.puppy-snuggles.com/132954520/the-face-of-a-boy-who-whined-and-whined-to-go-outside-just-to-dig)
+- [Poppy, Age 6 &amp;amp; Age 12](https://news.puppy-snuggles.com/131077131/poppy-age-6-age-12)
+- [Off to the dreamworld](https://news.puppy-snuggles.com/129744559/off-to-the-dreamworld)
+- [Been watching too many vampire shows...](https://news.puppy-snuggles.com/128365310/been-watching-too-many-vampire-shows)
+- [Secret summer headquarters](https://news.puppy-snuggles.com/125163428/secret-summer-headquarters)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
