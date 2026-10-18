@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The face of a boy who whined and whined to go outside, just to dig](https://news.puppy-snuggles.com/132954520/the-face-of-a-boy-who-whined-and-whined-to-go-outside-just-to-dig)
-- [Poppy, Age 6 &amp;amp; Age 12](https://news.puppy-snuggles.com/131077131/poppy-age-6-age-12)
-- [Off to the dreamworld](https://news.puppy-snuggles.com/129744559/off-to-the-dreamworld)
-- [Been watching too many vampire shows...](https://news.puppy-snuggles.com/128365310/been-watching-too-many-vampire-shows)
-- [Secret summer headquarters](https://news.puppy-snuggles.com/125163428/secret-summer-headquarters)
+- [Samoyed smiles 😁](https://news.puppy-snuggles.com/129786988/samoyed-smiles)
+- [He’s plotting his revenge 🫣](https://news.puppy-snuggles.com/124854170/hes-plotting-his-revenge)
+- [I got my favorite photograph of my dog made into a canvas print. Best money I’ve ever spent](https://news.puppy-snuggles.com/124488165/i-got-my-favorite-photograph-of-my-dog-made-into-a-canvas-print-best-money-ive-ever-spent)
+- [Very happy 🥰🐶❤️](https://news.puppy-snuggles.com/124352182/very-happy)
+- [My spicy fiesta potato](https://news.puppy-snuggles.com/124284172/my-spicy-fiesta-potato)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
