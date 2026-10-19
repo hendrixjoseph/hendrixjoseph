@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Samoyed smiles 😁](https://news.puppy-snuggles.com/129786988/samoyed-smiles)
-- [He’s plotting his revenge 🫣](https://news.puppy-snuggles.com/124854170/hes-plotting-his-revenge)
-- [I got my favorite photograph of my dog made into a canvas print. Best money I’ve ever spent](https://news.puppy-snuggles.com/124488165/i-got-my-favorite-photograph-of-my-dog-made-into-a-canvas-print-best-money-ive-ever-spent)
-- [Very happy 🥰🐶❤️](https://news.puppy-snuggles.com/124352182/very-happy)
-- [My spicy fiesta potato](https://news.puppy-snuggles.com/124284172/my-spicy-fiesta-potato)
+- [Let’s go, Monday](https://news.puppy-snuggles.com/143448810/lets-go-monday)
+- [Just completed this custom needle felted dog replica. So excited to share with you 🐾](https://news.puppy-snuggles.com/140147979/just-completed-this-custom-needle-felted-dog-replica-so-excited-to-share-with-you)
+- [The happiest little guy!](https://news.puppy-snuggles.com/138106441/the-happiest-little-guy)
+- [10 years of unconditional love 🐕❤️🎂🎉](https://news.puppy-snuggles.com/129462927/10-years-of-unconditional-love)
+- [New puppy!](https://news.puppy-snuggles.com/124187873/new-puppy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
