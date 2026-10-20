@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Let’s go, Monday](https://news.puppy-snuggles.com/143448810/lets-go-monday)
-- [Just completed this custom needle felted dog replica. So excited to share with you 🐾](https://news.puppy-snuggles.com/140147979/just-completed-this-custom-needle-felted-dog-replica-so-excited-to-share-with-you)
-- [The happiest little guy!](https://news.puppy-snuggles.com/138106441/the-happiest-little-guy)
-- [10 years of unconditional love 🐕❤️🎂🎉](https://news.puppy-snuggles.com/129462927/10-years-of-unconditional-love)
-- [New puppy!](https://news.puppy-snuggles.com/124187873/new-puppy)
+- [So, we have this dope window film. What yall think of Whibley in the light?](https://news.puppy-snuggles.com/140517629/so-we-have-this-dope-window-film-what-yall-think-of-whibley-in-the-light)
+- [Tilda &lpar;12&rpar; and Mollie &lpar;3&rpar;](https://news.puppy-snuggles.com/140517621/tilda-12-and-mollie-3)
+- [She graduated basic obedience! Now, on to K9 Good Citizen!](https://news.puppy-snuggles.com/140517624/she-graduated-basic-obedience-now-on-to-k9-good-citizen)
+- [He&amp;#039;s just the most handsome man of all time](https://news.puppy-snuggles.com/140517627/hes-just-the-most-handsome-man-of-all-time)
+- [Good morning](https://news.puppy-snuggles.com/140517626/good-morning)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
