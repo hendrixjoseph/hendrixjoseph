@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So, we have this dope window film. What yall think of Whibley in the light?](https://news.puppy-snuggles.com/140517629/so-we-have-this-dope-window-film-what-yall-think-of-whibley-in-the-light)
-- [Tilda &lpar;12&rpar; and Mollie &lpar;3&rpar;](https://news.puppy-snuggles.com/140517621/tilda-12-and-mollie-3)
-- [She graduated basic obedience! Now, on to K9 Good Citizen!](https://news.puppy-snuggles.com/140517624/she-graduated-basic-obedience-now-on-to-k9-good-citizen)
-- [He&amp;#039;s just the most handsome man of all time](https://news.puppy-snuggles.com/140517627/hes-just-the-most-handsome-man-of-all-time)
-- [Good morning](https://news.puppy-snuggles.com/140517626/good-morning)
+- [Ryukyu Ken ~400 left in the world](https://news.puppy-snuggles.com/138954112/ryukyu-ken-400-left-in-the-world)
+- [My old girl. Adapted her from the shelter as a puppy, she turns 17 this month!](https://news.puppy-snuggles.com/132005489/my-old-girl-adapted-her-from-the-shelter-as-a-puppy-she-turns-17-this-month)
+- [My girls...](https://news.puppy-snuggles.com/127053671/my-girls)
+- [My girl Reese. Craigslist &amp;quot;Goldendoodle&amp;quot; that turned out to be a supermutt and an amazing friend.](https://news.puppy-snuggles.com/125646253/my-girl-reese-craigslist-goldendoodle-that-turned-out-to-be-a-supermutt-and-an-amazing-friend)
+- [I&amp;#039;m happy with her haircut](https://news.puppy-snuggles.com/122838474/im-happy-with-her-haircut)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
