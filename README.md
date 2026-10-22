@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ryukyu Ken ~400 left in the world](https://news.puppy-snuggles.com/138954112/ryukyu-ken-400-left-in-the-world)
-- [My old girl. Adapted her from the shelter as a puppy, she turns 17 this month!](https://news.puppy-snuggles.com/132005489/my-old-girl-adapted-her-from-the-shelter-as-a-puppy-she-turns-17-this-month)
-- [My girls...](https://news.puppy-snuggles.com/127053671/my-girls)
-- [My girl Reese. Craigslist &amp;quot;Goldendoodle&amp;quot; that turned out to be a supermutt and an amazing friend.](https://news.puppy-snuggles.com/125646253/my-girl-reese-craigslist-goldendoodle-that-turned-out-to-be-a-supermutt-and-an-amazing-friend)
-- [I&amp;#039;m happy with her haircut](https://news.puppy-snuggles.com/122838474/im-happy-with-her-haircut)
+- [New outfit](https://news.puppy-snuggles.com/143564091/new-outfit)
+- [Meet our newest family member, Hank!](https://news.puppy-snuggles.com/142743221/meet-our-newest-family-member-hank)
+- [Rescue Update](https://news.puppy-snuggles.com/140005135/rescue-update)
+- [my beautiful baby](https://news.puppy-snuggles.com/139791948/my-beautiful-baby)
+- [My rescue Aussie-Eskimo loves adventures and is happy to be involved in everything](https://news.puppy-snuggles.com/132073314/my-rescue-aussie-eskimo-loves-adventures-and-is-happy-to-be-involved-in-everything)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
