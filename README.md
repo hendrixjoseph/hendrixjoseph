@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [New outfit](https://news.puppy-snuggles.com/143564091/new-outfit)
-- [Meet our newest family member, Hank!](https://news.puppy-snuggles.com/142743221/meet-our-newest-family-member-hank)
-- [Rescue Update](https://news.puppy-snuggles.com/140005135/rescue-update)
-- [my beautiful baby](https://news.puppy-snuggles.com/139791948/my-beautiful-baby)
-- [My rescue Aussie-Eskimo loves adventures and is happy to be involved in everything](https://news.puppy-snuggles.com/132073314/my-rescue-aussie-eskimo-loves-adventures-and-is-happy-to-be-involved-in-everything)
+- [I can&amp;#039;t believe she&amp;#039;s gone](https://news.puppy-snuggles.com/137733477/i-cant-believe-shes-gone)
+- [Quien no se pone contento si toma sol? 🌞](https://news.puppy-snuggles.com/135397954/quien-no-se-pone-contento-si-toma-sol)
+- [Headline: Dangerously cute pit bull rolls in grass. 32 blades of grass injured.](https://news.puppy-snuggles.com/132712408/headline-dangerously-cute-pit-bull-rolls-in-grass-32-blades-of-grass-injured)
+- [My best buddy Willie Nelson.](https://news.puppy-snuggles.com/130845836/my-best-buddy-willie-nelson)
+- [Elsa 7 months old.](https://news.puppy-snuggles.com/130612223/elsa-7-months-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
