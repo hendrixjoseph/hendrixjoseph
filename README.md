@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [I can&amp;#039;t believe she&amp;#039;s gone](https://news.puppy-snuggles.com/137733477/i-cant-believe-shes-gone)
-- [Quien no se pone contento si toma sol? 🌞](https://news.puppy-snuggles.com/135397954/quien-no-se-pone-contento-si-toma-sol)
-- [Headline: Dangerously cute pit bull rolls in grass. 32 blades of grass injured.](https://news.puppy-snuggles.com/132712408/headline-dangerously-cute-pit-bull-rolls-in-grass-32-blades-of-grass-injured)
-- [My best buddy Willie Nelson.](https://news.puppy-snuggles.com/130845836/my-best-buddy-willie-nelson)
-- [Elsa 7 months old.](https://news.puppy-snuggles.com/130612223/elsa-7-months-old)
+- [Tomorrow I have a 7 hour bus ride. I’ll be sketching some dogs to pass the time! Comment with yours :&rpar;](https://news.puppy-snuggles.com/139970758/tomorrow-i-have-a-7-hour-bus-ride-ill-be-sketching-some-dogs-to-pass-the-time-comment-with-yours)
+- [AZ Humane Society&amp;#039;s cast of characters](https://news.puppy-snuggles.com/134901399/az-humane-societys-cast-of-characters)
+- [Updates on parvo puppy](https://news.puppy-snuggles.com/128592443/updates-on-parvo-puppy)
+- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
+- [It&amp;#039;s my grandma&amp;#039;s birthday and I miss her so much. Cheer me up with dogs please?](https://news.puppy-snuggles.com/124824117/its-my-grandmas-birthday-and-i-miss-her-so-much-cheer-me-up-with-dogs-please)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
