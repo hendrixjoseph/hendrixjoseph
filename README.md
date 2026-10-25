@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Tomorrow I have a 7 hour bus ride. I’ll be sketching some dogs to pass the time! Comment with yours :&rpar;](https://news.puppy-snuggles.com/139970758/tomorrow-i-have-a-7-hour-bus-ride-ill-be-sketching-some-dogs-to-pass-the-time-comment-with-yours)
-- [AZ Humane Society&amp;#039;s cast of characters](https://news.puppy-snuggles.com/134901399/az-humane-societys-cast-of-characters)
-- [Updates on parvo puppy](https://news.puppy-snuggles.com/128592443/updates-on-parvo-puppy)
-- [Rocco and his new hoodie 🐶❤️](https://news.puppy-snuggles.com/126228525/rocco-and-his-new-hoodie)
-- [It&amp;#039;s my grandma&amp;#039;s birthday and I miss her so much. Cheer me up with dogs please?](https://news.puppy-snuggles.com/124824117/its-my-grandmas-birthday-and-i-miss-her-so-much-cheer-me-up-with-dogs-please)
+- [Cheese!](https://news.puppy-snuggles.com/133225896/cheese)
+- [This is bronson hes very happy](https://news.puppy-snuggles.com/124124580/this-is-bronson-hes-very-happy)
+- [Friday Night Lights &lpar;Melbourne&rpar;.](https://news.puppy-snuggles.com/122126522/friday-night-lights-melbourne)
+- [This is my crew. What’s their band name?](https://news.puppy-snuggles.com/120813938/this-is-my-crew-whats-their-band-name)
+- [Lizard patrol](https://news.puppy-snuggles.com/119531068/lizard-patrol)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
