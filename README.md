@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Cheese!](https://news.puppy-snuggles.com/133225896/cheese)
-- [This is bronson hes very happy](https://news.puppy-snuggles.com/124124580/this-is-bronson-hes-very-happy)
-- [Friday Night Lights &lpar;Melbourne&rpar;.](https://news.puppy-snuggles.com/122126522/friday-night-lights-melbourne)
-- [This is my crew. What’s their band name?](https://news.puppy-snuggles.com/120813938/this-is-my-crew-whats-their-band-name)
-- [Lizard patrol](https://news.puppy-snuggles.com/119531068/lizard-patrol)
+- [My boy Sandor Clegane hates the rain.](https://news.puppy-snuggles.com/140697109/my-boy-sandor-clegane-hates-the-rain)
+- [My baby. A staffy mystery mix who is the smartest, goofiest, most perfect dog we&amp;#039;ve ever adopted.](https://news.puppy-snuggles.com/132375289/my-baby-a-staffy-mystery-mix-who-is-the-smartest-goofiest-most-perfect-dog-weve-ever-adopted)
+- [Beach Corgs](https://news.puppy-snuggles.com/130136589/beach-corgs)
+- [Dale&amp;#039;s favorite place.](https://news.puppy-snuggles.com/127896227/dales-favorite-place)
+- [Dog+Duck=Adorable](https://news.puppy-snuggles.com/127369568/dogduckadorable)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
