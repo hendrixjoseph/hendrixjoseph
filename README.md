@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My boy Sandor Clegane hates the rain.](https://news.puppy-snuggles.com/140697109/my-boy-sandor-clegane-hates-the-rain)
-- [My baby. A staffy mystery mix who is the smartest, goofiest, most perfect dog we&amp;#039;ve ever adopted.](https://news.puppy-snuggles.com/132375289/my-baby-a-staffy-mystery-mix-who-is-the-smartest-goofiest-most-perfect-dog-weve-ever-adopted)
-- [Beach Corgs](https://news.puppy-snuggles.com/130136589/beach-corgs)
-- [Dale&amp;#039;s favorite place.](https://news.puppy-snuggles.com/127896227/dales-favorite-place)
-- [Dog+Duck=Adorable](https://news.puppy-snuggles.com/127369568/dogduckadorable)
+- [Happy 3rd birthday to my sweetest baby girl Maple!](https://news.puppy-snuggles.com/142604265/happy-3rd-birthday-to-my-sweetest-baby-girl-maple)
+- [did someone say cheese](https://news.puppy-snuggles.com/125269476/did-someone-say-cheese)
+- [Pippin](https://news.puppy-snuggles.com/121199139/pippin)
+- [R.I.P to my furry friend Bruce❤️😩 you will be missed](https://news.puppy-snuggles.com/120040828/rip-to-my-furry-friend-bruce-you-will-be-missed)
+- [Missing Bonnie today](https://news.puppy-snuggles.com/117729533/missing-bonnie-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
