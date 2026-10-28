@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Happy 3rd birthday to my sweetest baby girl Maple!](https://news.puppy-snuggles.com/142604265/happy-3rd-birthday-to-my-sweetest-baby-girl-maple)
-- [did someone say cheese](https://news.puppy-snuggles.com/125269476/did-someone-say-cheese)
-- [Pippin](https://news.puppy-snuggles.com/121199139/pippin)
-- [R.I.P to my furry friend Bruce❤️😩 you will be missed](https://news.puppy-snuggles.com/120040828/rip-to-my-furry-friend-bruce-you-will-be-missed)
-- [Missing Bonnie today](https://news.puppy-snuggles.com/117729533/missing-bonnie-today)
+- [Both my dogs; Tillman &lpar;Maltese-Chihuahua&rpar; &amp;amp; Wagner &lpar;Blue Pomeranian&rpar; Had their hairs cut](https://news.puppy-snuggles.com/131377414/both-my-dogs-tillman-maltese-chihuahua-wagner-blue-pomeranian-had-their-hairs-cut)
+- [New toy](https://news.puppy-snuggles.com/128365312/new-toy)
+- [Blurry smiles](https://news.puppy-snuggles.com/124885530/blurry-smiles)
+- [spud playing with a strawberry and brussels sprout](https://news.puppy-snuggles.com/119376542/spud-playing-with-a-strawberry-and-brussels-sprout)
+- [Carlos the Pomeranian](https://news.puppy-snuggles.com/118643644/carlos-the-pomeranian)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
