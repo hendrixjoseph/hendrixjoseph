@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Both my dogs; Tillman &lpar;Maltese-Chihuahua&rpar; &amp;amp; Wagner &lpar;Blue Pomeranian&rpar; Had their hairs cut](https://news.puppy-snuggles.com/131377414/both-my-dogs-tillman-maltese-chihuahua-wagner-blue-pomeranian-had-their-hairs-cut)
-- [New toy](https://news.puppy-snuggles.com/128365312/new-toy)
-- [Blurry smiles](https://news.puppy-snuggles.com/124885530/blurry-smiles)
-- [spud playing with a strawberry and brussels sprout](https://news.puppy-snuggles.com/119376542/spud-playing-with-a-strawberry-and-brussels-sprout)
-- [Carlos the Pomeranian](https://news.puppy-snuggles.com/118643644/carlos-the-pomeranian)
+- [can&amp;#039;t say no to her 😭](https://news.puppy-snuggles.com/144492360/cant-say-no-to-her)
+- [My parent&amp;#039;s lost their baby girl last week to kidney failure](https://news.puppy-snuggles.com/137696383/my-parents-lost-their-baby-girl-last-week-to-kidney-failure)
+- [R.I.P.](https://news.puppy-snuggles.com/135284400/rip)
+- [In Loving Memory ❤️](https://news.puppy-snuggles.com/133378776/in-loving-memory)
+- [Soul of a lap dog](https://news.puppy-snuggles.com/133225891/soul-of-a-lap-dog)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
