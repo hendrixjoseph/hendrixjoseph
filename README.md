@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [can&amp;#039;t say no to her 😭](https://news.puppy-snuggles.com/144492360/cant-say-no-to-her)
-- [My parent&amp;#039;s lost their baby girl last week to kidney failure](https://news.puppy-snuggles.com/137696383/my-parents-lost-their-baby-girl-last-week-to-kidney-failure)
-- [R.I.P.](https://news.puppy-snuggles.com/135284400/rip)
-- [In Loving Memory ❤️](https://news.puppy-snuggles.com/133378776/in-loving-memory)
-- [Soul of a lap dog](https://news.puppy-snuggles.com/133225891/soul-of-a-lap-dog)
+- [Sometimes the like each other. I think](https://news.puppy-snuggles.com/142424365/sometimes-the-like-each-other-i-think)
+- [Man’s best friend](https://news.puppy-snuggles.com/141381955/mans-best-friend)
+- [My old girl. Adapted her from the shelter as a puppy, she turns 17 this month!](https://news.puppy-snuggles.com/132005489/my-old-girl-adapted-her-from-the-shelter-as-a-puppy-she-turns-17-this-month)
+- [My dog is broken](https://news.puppy-snuggles.com/127929824/my-dog-is-broken)
+- [Rest In Peace my Izzy Busy❤️](https://news.puppy-snuggles.com/127732003/rest-in-peace-my-izzy-busy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
