@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sometimes the like each other. I think](https://news.puppy-snuggles.com/142424365/sometimes-the-like-each-other-i-think)
-- [Man’s best friend](https://news.puppy-snuggles.com/141381955/mans-best-friend)
-- [My old girl. Adapted her from the shelter as a puppy, she turns 17 this month!](https://news.puppy-snuggles.com/132005489/my-old-girl-adapted-her-from-the-shelter-as-a-puppy-she-turns-17-this-month)
-- [My dog is broken](https://news.puppy-snuggles.com/127929824/my-dog-is-broken)
-- [Rest In Peace my Izzy Busy❤️](https://news.puppy-snuggles.com/127732003/rest-in-peace-my-izzy-busy)
+- [My Baby Is 12yo Today❤️](https://news.puppy-snuggles.com/144668673/my-baby-is-12yo-today)
+- [My handsome boy finally at peace](https://news.puppy-snuggles.com/132278245/my-handsome-boy-finally-at-peace)
+- [Anyone have pups with an eye similar to Birdie’s? I love her speckled eye 🥹🩷](https://news.puppy-snuggles.com/126126778/anyone-have-pups-with-an-eye-similar-to-birdies-i-love-her-speckled-eye)
+- [We met in the ladies&amp;#039; room](https://news.puppy-snuggles.com/125747273/we-met-in-the-ladies-room)
+- [Marni, my 8wo bluetick coonhound pup, on her first day with me &lpar;today&rpar;](https://news.puppy-snuggles.com/118885032/marni-my-8wo-bluetick-coonhound-pup-on-her-first-day-with-me-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
