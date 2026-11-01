@@ -78,9 +78,9 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## Reddit
 
 <!-- REDDIT:START -->
+- [/u/joehx on What&#39;s a word you always struggle to pronounce?](https://www.reddit.com/r/AskReddit/comments/1xkd33u/whats_a_word_you_always_struggle_to_pronounce/19rxpbhbks1oh/)
 - [/u/joehx on What is a coder&#39;s worst nightmare?](https://www.reddit.com/r/AskReddit/comments/1x5kd96/what_is_a_coders_worst_nightmare/ph7sxlx/)
 - [/u/joehx on What is a coder&#39;s worst nightmare?](https://www.reddit.com/r/AskReddit/comments/1x5kd96/what_is_a_coders_worst_nightmare/ph7s856/)
 - [/u/joehx on ELI5 why is a number divided by 0 not infinity?](https://www.reddit.com/r/explainlikeimfive/comments/1x2441h/eli5_why_is_a_number_divided_by_0_not_infinity/pf33dbs/)
 - [/u/joehx on What&#39;s something that has an official &quot;proper&quot; way to do it that most people do differently?](https://www.reddit.com/r/AskReddit/comments/1wyhoo0/whats_something_that_has_an_official_proper_way/perd4k2/)
-- [/u/joehx on What products are unnecessarily thrown away because one $5–$50 component fails?](https://www.reddit.com/r/AskReddit/comments/1wetvlz/what_products_are_unnecessarily_thrown_away/p9jjwq7/)
 <!-- REDDIT:END -->
