@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Miss my dog Brownie](https://news.puppy-snuggles.com/144003988/miss-my-dog-brownie)
-- [I spent $1700 at the 24 hour emergency vet and all I got was this lousy picture.](https://news.puppy-snuggles.com/131377405/i-spent-1700-at-the-24-hour-emergency-vet-and-all-i-got-was-this-lousy-picture)
-- [Snapped a photo of him this morning and he looked so human 🤣](https://news.puppy-snuggles.com/130488083/snapped-a-photo-of-him-this-morning-and-he-looked-so-human)
-- [13th birthday!](https://news.puppy-snuggles.com/129345435/13th-birthday)
-- [‘Ears to You](https://news.puppy-snuggles.com/129196824/ears-to-you)
+- [Golden Retriever in a Laundry Basket](https://news.puppy-snuggles.com/145095637/golden-retriever-in-a-laundry-basket)
+- [What breed of dog is he?](https://news.puppy-snuggles.com/140040998/what-breed-of-dog-is-he)
+- [Not A Thought In Those Heads Part 3 Grand Finale!!!!](https://news.puppy-snuggles.com/130966853/not-a-thought-in-those-heads-part-3-grand-finale)
+- [Goober loves his new bed](https://news.puppy-snuggles.com/127504799/goober-loves-his-new-bed)
+- [This happens every time he hears the sound of a package opening](https://news.puppy-snuggles.com/126601452/this-happens-every-time-he-hears-the-sound-of-a-package-opening)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
