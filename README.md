@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Golden Retriever in a Laundry Basket](https://news.puppy-snuggles.com/145095637/golden-retriever-in-a-laundry-basket)
-- [What breed of dog is he?](https://news.puppy-snuggles.com/140040998/what-breed-of-dog-is-he)
-- [Not A Thought In Those Heads Part 3 Grand Finale!!!!](https://news.puppy-snuggles.com/130966853/not-a-thought-in-those-heads-part-3-grand-finale)
-- [Goober loves his new bed](https://news.puppy-snuggles.com/127504799/goober-loves-his-new-bed)
-- [This happens every time he hears the sound of a package opening](https://news.puppy-snuggles.com/126601452/this-happens-every-time-he-hears-the-sound-of-a-package-opening)
+- [Pigeon Louise](https://news.puppy-snuggles.com/140447282/pigeon-louise)
+- [Coming to tell me he&amp;#039;s ready for his walk](https://news.puppy-snuggles.com/135209382/coming-to-tell-me-hes-ready-for-his-walk)
+- [Broke down arranging this. Rest in peace my baby Bella. I&amp;#039;ll love you always &amp;amp; forever. ♾️ 08-05-26.](https://news.puppy-snuggles.com/132851293/broke-down-arranging-this-rest-in-peace-my-baby-bella-ill-love-you-always-forever-08-05-26)
+- [I miss my boy so much.](https://news.puppy-snuggles.com/132818871/i-miss-my-boy-so-much)
+- [I posted about euthanizing Mr. Bear about 2 weeks ago and he has gone over the rainbow bridge today. I’m upset but he had a good life. I love you buddy ❤️](https://news.puppy-snuggles.com/132609283/i-posted-about-euthanizing-mr-bear-about-2-weeks-ago-and-he-has-gone-over-the-rainbow-bridge-today-im-upset-but-he-had-a-good-life-i-love-you-buddy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
