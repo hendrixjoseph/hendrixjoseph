@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Pigeon Louise](https://news.puppy-snuggles.com/140447282/pigeon-louise)
-- [Coming to tell me he&amp;#039;s ready for his walk](https://news.puppy-snuggles.com/135209382/coming-to-tell-me-hes-ready-for-his-walk)
-- [Broke down arranging this. Rest in peace my baby Bella. I&amp;#039;ll love you always &amp;amp; forever. ♾️ 08-05-26.](https://news.puppy-snuggles.com/132851293/broke-down-arranging-this-rest-in-peace-my-baby-bella-ill-love-you-always-forever-08-05-26)
-- [I miss my boy so much.](https://news.puppy-snuggles.com/132818871/i-miss-my-boy-so-much)
-- [I posted about euthanizing Mr. Bear about 2 weeks ago and he has gone over the rainbow bridge today. I’m upset but he had a good life. I love you buddy ❤️](https://news.puppy-snuggles.com/132609283/i-posted-about-euthanizing-mr-bear-about-2-weeks-ago-and-he-has-gone-over-the-rainbow-bridge-today-im-upset-but-he-had-a-good-life-i-love-you-buddy)
+- [In the comment section add your kiddos getting a Bath](https://news.puppy-snuggles.com/129786990/in-the-comment-section-add-your-kiddos-getting-a-bath)
+- [Miloh is always up for a ride in the car!](https://news.puppy-snuggles.com/129345434/miloh-is-always-up-for-a-ride-in-the-car)
+- [shadow&amp;#039;s all smiles! 😆](https://news.puppy-snuggles.com/128444847/shadows-all-smiles)
+- [Did someone order a brown package?](https://news.puppy-snuggles.com/128061184/did-someone-order-a-brown-package)
+- [A very distinguished gentleman.](https://news.puppy-snuggles.com/124954892/a-very-distinguished-gentleman)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
