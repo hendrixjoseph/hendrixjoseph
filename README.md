@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [In the comment section add your kiddos getting a Bath](https://news.puppy-snuggles.com/129786990/in-the-comment-section-add-your-kiddos-getting-a-bath)
-- [Miloh is always up for a ride in the car!](https://news.puppy-snuggles.com/129345434/miloh-is-always-up-for-a-ride-in-the-car)
-- [shadow&amp;#039;s all smiles! 😆](https://news.puppy-snuggles.com/128444847/shadows-all-smiles)
-- [Did someone order a brown package?](https://news.puppy-snuggles.com/128061184/did-someone-order-a-brown-package)
-- [A very distinguished gentleman.](https://news.puppy-snuggles.com/124954892/a-very-distinguished-gentleman)
+- [Them side eyes!](https://news.puppy-snuggles.com/134215640/them-side-eyes)
+- [This chair for me?](https://news.puppy-snuggles.com/129381073/this-chair-for-me)
+- [Sage is 8.5 months vs. 8 weeks 🥹 &lpar;it went by so fast&rpar;](https://news.puppy-snuggles.com/127667278/sage-is-85-months-vs-8-weeks-it-went-by-so-fast)
+- [my ugly oscar 🥰](https://news.puppy-snuggles.com/127471990/my-ugly-oscar)
+- [Jefferson turns 3 today 🎂🎁](https://news.puppy-snuggles.com/126265421/jefferson-turns-3-today)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
