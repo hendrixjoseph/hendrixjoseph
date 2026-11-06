@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Them side eyes!](https://news.puppy-snuggles.com/134215640/them-side-eyes)
-- [This chair for me?](https://news.puppy-snuggles.com/129381073/this-chair-for-me)
-- [Sage is 8.5 months vs. 8 weeks 🥹 &lpar;it went by so fast&rpar;](https://news.puppy-snuggles.com/127667278/sage-is-85-months-vs-8-weeks-it-went-by-so-fast)
-- [my ugly oscar 🥰](https://news.puppy-snuggles.com/127471990/my-ugly-oscar)
-- [Jefferson turns 3 today 🎂🎁](https://news.puppy-snuggles.com/126265421/jefferson-turns-3-today)
+- [Just wanted to share how sweet my big girl is 🥹❤️](https://news.puppy-snuggles.com/144111924/just-wanted-to-share-how-sweet-my-big-girl-is)
+- [“If I fits, I sits”](https://news.puppy-snuggles.com/143636428/if-i-fits-i-sits)
+- [Cora Jean enjoying a morning at the campground](https://news.puppy-snuggles.com/136243937/cora-jean-enjoying-a-morning-at-the-campground)
+- [I had almost 19 years with this sweetheart](https://news.puppy-snuggles.com/134017132/i-had-almost-19-years-with-this-sweetheart)
+- [My girls are together again 👼😞 My angels](https://news.puppy-snuggles.com/133858843/my-girls-are-together-again-my-angels)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
