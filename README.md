@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just wanted to share how sweet my big girl is 🥹❤️](https://news.puppy-snuggles.com/144111924/just-wanted-to-share-how-sweet-my-big-girl-is)
-- [“If I fits, I sits”](https://news.puppy-snuggles.com/143636428/if-i-fits-i-sits)
-- [Cora Jean enjoying a morning at the campground](https://news.puppy-snuggles.com/136243937/cora-jean-enjoying-a-morning-at-the-campground)
-- [I had almost 19 years with this sweetheart](https://news.puppy-snuggles.com/134017132/i-had-almost-19-years-with-this-sweetheart)
-- [My girls are together again 👼😞 My angels](https://news.puppy-snuggles.com/133858843/my-girls-are-together-again-my-angels)
+- [My 3 legged Miracle Dog, Stitch](https://news.puppy-snuggles.com/128519020/my-3-legged-miracle-dog-stitch)
+- [Is this normal? Asking for a friend](https://news.puppy-snuggles.com/116908277/is-this-normal-asking-for-a-friend)
+- [Meatball’s good side](https://news.puppy-snuggles.com/114758753/meatballs-good-side)
+- [Snow Day! The boys are loving it.](https://news.puppy-snuggles.com/113631984/snow-day-the-boys-are-loving-it)
+- [Ready for walkies](https://news.puppy-snuggles.com/108070073/ready-for-walkies)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
