@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My 3 legged Miracle Dog, Stitch](https://news.puppy-snuggles.com/128519020/my-3-legged-miracle-dog-stitch)
-- [Is this normal? Asking for a friend](https://news.puppy-snuggles.com/116908277/is-this-normal-asking-for-a-friend)
-- [Meatball’s good side](https://news.puppy-snuggles.com/114758753/meatballs-good-side)
-- [Snow Day! The boys are loving it.](https://news.puppy-snuggles.com/113631984/snow-day-the-boys-are-loving-it)
-- [Ready for walkies](https://news.puppy-snuggles.com/108070073/ready-for-walkies)
+- [My dawg](https://news.puppy-snuggles.com/146051564/my-dawg)
+- [Fall pictures with Sheila and Kevin](https://news.puppy-snuggles.com/145758114/fall-pictures-with-sheila-and-kevin)
+- [Lil Winnie :&rpar;](https://news.puppy-snuggles.com/139614554/lil-winnie)
+- [My dog was put down today.](https://news.puppy-snuggles.com/133087271/my-dog-was-put-down-today)
+- [I miss my baby so much. He was 13 &amp;amp; a half](https://news.puppy-snuggles.com/131582920/i-miss-my-baby-so-much-he-was-13-a-half)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
