@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dawg](https://news.puppy-snuggles.com/146051564/my-dawg)
-- [Fall pictures with Sheila and Kevin](https://news.puppy-snuggles.com/145758114/fall-pictures-with-sheila-and-kevin)
-- [Lil Winnie :&rpar;](https://news.puppy-snuggles.com/139614554/lil-winnie)
-- [My dog was put down today.](https://news.puppy-snuggles.com/133087271/my-dog-was-put-down-today)
-- [I miss my baby so much. He was 13 &amp;amp; a half](https://news.puppy-snuggles.com/131582920/i-miss-my-baby-so-much-he-was-13-a-half)
+- [Look at Waffles. He loves you](https://news.puppy-snuggles.com/142498536/look-at-waffles-he-loves-you)
+- [Elvis loves everybody](https://news.puppy-snuggles.com/135359578/elvis-loves-everybody)
+- [My neighbor&amp;#039;s dog moves the fence so she can get pets](https://news.puppy-snuggles.com/134017135/my-neighbors-dog-moves-the-fence-so-she-can-get-pets)
+- [Hey everyone! 👋✨ Today I want to introduce you to my new friend... 🐶🤍 Check it out, check it out guys! 🤩👀 This is Esponjita... Esponjita! ☁️🐾💖](https://news.puppy-snuggles.com/132311069/hey-everyone-today-i-want-to-introduce-you-to-my-new-friend-check-it-out-check-it-out-guys-this-is-esponjita-esponjita)
+- [Happiest boy 🥹](https://news.puppy-snuggles.com/131175606/happiest-boy)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
