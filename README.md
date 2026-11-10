@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Look at Waffles. He loves you](https://news.puppy-snuggles.com/142498536/look-at-waffles-he-loves-you)
-- [Elvis loves everybody](https://news.puppy-snuggles.com/135359578/elvis-loves-everybody)
-- [My neighbor&amp;#039;s dog moves the fence so she can get pets](https://news.puppy-snuggles.com/134017135/my-neighbors-dog-moves-the-fence-so-she-can-get-pets)
-- [Hey everyone! 👋✨ Today I want to introduce you to my new friend... 🐶🤍 Check it out, check it out guys! 🤩👀 This is Esponjita... Esponjita! ☁️🐾💖](https://news.puppy-snuggles.com/132311069/hey-everyone-today-i-want-to-introduce-you-to-my-new-friend-check-it-out-check-it-out-guys-this-is-esponjita-esponjita)
-- [Happiest boy 🥹](https://news.puppy-snuggles.com/131175606/happiest-boy)
+- [Sad pup after spaying](https://news.puppy-snuggles.com/134988402/sad-pup-after-spaying)
+- [My silly girl Myah Mae](https://news.puppy-snuggles.com/132643538/my-silly-girl-myah-mae)
+- [Goodbye my friend.](https://news.puppy-snuggles.com/130001596/goodbye-my-friend)
+- [I am Jimmy!](https://news.puppy-snuggles.com/123292744/i-am-jimmy)
+- [He swears it isn’t him](https://news.puppy-snuggles.com/122243895/he-swears-it-isnt-him)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
