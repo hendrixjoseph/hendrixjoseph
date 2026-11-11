@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Sad pup after spaying](https://news.puppy-snuggles.com/134988402/sad-pup-after-spaying)
-- [My silly girl Myah Mae](https://news.puppy-snuggles.com/132643538/my-silly-girl-myah-mae)
-- [Goodbye my friend.](https://news.puppy-snuggles.com/130001596/goodbye-my-friend)
-- [I am Jimmy!](https://news.puppy-snuggles.com/123292744/i-am-jimmy)
-- [He swears it isn’t him](https://news.puppy-snuggles.com/122243895/he-swears-it-isnt-him)
+- [missing my boy who passed away, i just want to share some photos of him.](https://news.puppy-snuggles.com/146124217/missing-my-boy-who-passed-away-i-just-want-to-share-some-photos-of-him)
+- [Batsy girl](https://news.puppy-snuggles.com/144451933/batsy-girl)
+- [Remi the Wonder Dog](https://news.puppy-snuggles.com/144186979/remi-the-wonder-dog)
+- [The cold mornings bring out the doggo babushkas in our house](https://news.puppy-snuggles.com/143564097/the-cold-mornings-bring-out-the-doggo-babushkas-in-our-house)
+- [He&amp;#039;s just the most handsome man of all time](https://news.puppy-snuggles.com/140517627/hes-just-the-most-handsome-man-of-all-time)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
