@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [missing my boy who passed away, i just want to share some photos of him.](https://news.puppy-snuggles.com/146124217/missing-my-boy-who-passed-away-i-just-want-to-share-some-photos-of-him)
-- [Batsy girl](https://news.puppy-snuggles.com/144451933/batsy-girl)
-- [Remi the Wonder Dog](https://news.puppy-snuggles.com/144186979/remi-the-wonder-dog)
-- [The cold mornings bring out the doggo babushkas in our house](https://news.puppy-snuggles.com/143564097/the-cold-mornings-bring-out-the-doggo-babushkas-in-our-house)
-- [He&amp;#039;s just the most handsome man of all time](https://news.puppy-snuggles.com/140517627/hes-just-the-most-handsome-man-of-all-time)
+- [My dawg](https://news.puppy-snuggles.com/146051564/my-dawg)
+- [Post pictures of your favorite Dogs that went over the Bridge.](https://news.puppy-snuggles.com/144988419/post-pictures-of-your-favorite-dogs-that-went-over-the-bridge)
+- [How it started vs how it’s going](https://news.puppy-snuggles.com/144951478/how-it-started-vs-how-its-going)
+- [My handsome baby passed today, his first Halloween Costume October 2012, 10 months old. 🎃🎃🐅🐅🐯🐯](https://news.puppy-snuggles.com/144917885/my-handsome-baby-passed-today-his-first-halloween-costume-october-2012-10-months-old)
+- [My new rescue. He’s 7 months old 🐾🐾](https://news.puppy-snuggles.com/144917888/my-new-rescue-hes-7-months-old)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
