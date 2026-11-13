@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My dawg](https://news.puppy-snuggles.com/146051564/my-dawg)
-- [Post pictures of your favorite Dogs that went over the Bridge.](https://news.puppy-snuggles.com/144988419/post-pictures-of-your-favorite-dogs-that-went-over-the-bridge)
-- [How it started vs how it’s going](https://news.puppy-snuggles.com/144951478/how-it-started-vs-how-its-going)
-- [My handsome baby passed today, his first Halloween Costume October 2012, 10 months old. 🎃🎃🐅🐅🐯🐯](https://news.puppy-snuggles.com/144917885/my-handsome-baby-passed-today-his-first-halloween-costume-october-2012-10-months-old)
-- [My new rescue. He’s 7 months old 🐾🐾](https://news.puppy-snuggles.com/144917888/my-new-rescue-hes-7-months-old)
+- [He Turned FIVE!!](https://news.puppy-snuggles.com/145276440/he-turned-five)
+- [My boy finally crossed the rainbow bridge](https://news.puppy-snuggles.com/132443034/my-boy-finally-crossed-the-rainbow-bridge)
+- [Found the magic scratchy spot that makes Riley go into God-Mode](https://news.puppy-snuggles.com/131346142/found-the-magic-scratchy-spot-that-makes-riley-go-into-god-mode)
+- [His first brand photoshoot. I’m a very proud mom.](https://news.puppy-snuggles.com/130728189/his-first-brand-photoshoot-im-a-very-proud-mom)
+- [My two girls](https://news.puppy-snuggles.com/130403185/my-two-girls)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
