@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [He Turned FIVE!!](https://news.puppy-snuggles.com/145276440/he-turned-five)
-- [My boy finally crossed the rainbow bridge](https://news.puppy-snuggles.com/132443034/my-boy-finally-crossed-the-rainbow-bridge)
-- [Found the magic scratchy spot that makes Riley go into God-Mode](https://news.puppy-snuggles.com/131346142/found-the-magic-scratchy-spot-that-makes-riley-go-into-god-mode)
-- [His first brand photoshoot. I’m a very proud mom.](https://news.puppy-snuggles.com/130728189/his-first-brand-photoshoot-im-a-very-proud-mom)
-- [My two girls](https://news.puppy-snuggles.com/130403185/my-two-girls)
+- [The neighborhood&amp;#039;s cutest welcome committee](https://news.puppy-snuggles.com/136076369/the-neighborhoods-cutest-welcome-committee)
+- [Throwback to when Bruno was waiting patiently for his presents on Christmas Day](https://news.puppy-snuggles.com/126691652/throwback-to-when-bruno-was-waiting-patiently-for-his-presents-on-christmas-day)
+- [My girl after a beach walk.](https://news.puppy-snuggles.com/124488170/my-girl-after-a-beach-walk)
+- [¿Qué creen que sea? Solo sé que es 50% algodón y 50% ternura](https://news.puppy-snuggles.com/121803195/que-creen-que-sea-solo-se-que-es-50-algodon-y-50-ternura)
+- [Happy smile a lot](https://news.puppy-snuggles.com/114276830/happy-smile-a-lot)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
