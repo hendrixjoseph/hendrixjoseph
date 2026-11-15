@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [The neighborhood&amp;#039;s cutest welcome committee](https://news.puppy-snuggles.com/136076369/the-neighborhoods-cutest-welcome-committee)
-- [Throwback to when Bruno was waiting patiently for his presents on Christmas Day](https://news.puppy-snuggles.com/126691652/throwback-to-when-bruno-was-waiting-patiently-for-his-presents-on-christmas-day)
-- [My girl after a beach walk.](https://news.puppy-snuggles.com/124488170/my-girl-after-a-beach-walk)
-- [¿Qué creen que sea? Solo sé que es 50% algodón y 50% ternura](https://news.puppy-snuggles.com/121803195/que-creen-que-sea-solo-se-que-es-50-algodon-y-50-ternura)
-- [Happy smile a lot](https://news.puppy-snuggles.com/114276830/happy-smile-a-lot)
+- [Snug as a bug](https://news.puppy-snuggles.com/130488085/snug-as-a-bug)
+- [Rest In Piece My long life friend, Ziggy🖤🕊️](https://news.puppy-snuggles.com/122009248/rest-in-piece-my-long-life-friend-ziggy)
+- [Boops for Ms Molly?](https://news.puppy-snuggles.com/107497298/boops-for-ms-molly)
+- [Show your pups who crossed the rainbow bridge 💛](https://news.puppy-snuggles.com/106253975/show-your-pups-who-crossed-the-rainbow-bridge)
+- [Dig-Sitting my grandson](https://news.puppy-snuggles.com/106187615/dig-sitting-my-grandson)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
