@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Snug as a bug](https://news.puppy-snuggles.com/130488085/snug-as-a-bug)
-- [Rest In Piece My long life friend, Ziggy🖤🕊️](https://news.puppy-snuggles.com/122009248/rest-in-piece-my-long-life-friend-ziggy)
-- [Boops for Ms Molly?](https://news.puppy-snuggles.com/107497298/boops-for-ms-molly)
-- [Show your pups who crossed the rainbow bridge 💛](https://news.puppy-snuggles.com/106253975/show-your-pups-who-crossed-the-rainbow-bridge)
-- [Dig-Sitting my grandson](https://news.puppy-snuggles.com/106187615/dig-sitting-my-grandson)
+- [My mom took him in as a foster… I found my new best friend ♥️](https://news.puppy-snuggles.com/134817832/my-mom-took-him-in-as-a-foster-i-found-my-new-best-friend)
+- [Almost full grown](https://news.puppy-snuggles.com/129160719/almost-full-grown)
+- [Mavis celebrated her 16th Independence Day with a 37-stair descent to the lake, quick swim, and sunny snooze. Despite weakening back legs, she has so much ambitious spark!](https://news.puppy-snuggles.com/128862653/mavis-celebrated-her-16th-independence-day-with-a-37-stair-descent-to-the-lake-quick-swim-and-sunny-snooze-despite-weakening-back-legs-she-has-so-much-ambitious-spark)
+- [A snowy beard equals a happy dog ❄️](https://news.puppy-snuggles.com/110588736/a-snowy-beard-equals-a-happy-dog)
+- [Show me your sleeping dogs](https://news.puppy-snuggles.com/95317296/show-me-your-sleeping-dogs)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
