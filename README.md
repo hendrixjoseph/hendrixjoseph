@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My mom took him in as a foster… I found my new best friend ♥️](https://news.puppy-snuggles.com/134817832/my-mom-took-him-in-as-a-foster-i-found-my-new-best-friend)
-- [Almost full grown](https://news.puppy-snuggles.com/129160719/almost-full-grown)
-- [Mavis celebrated her 16th Independence Day with a 37-stair descent to the lake, quick swim, and sunny snooze. Despite weakening back legs, she has so much ambitious spark!](https://news.puppy-snuggles.com/128862653/mavis-celebrated-her-16th-independence-day-with-a-37-stair-descent-to-the-lake-quick-swim-and-sunny-snooze-despite-weakening-back-legs-she-has-so-much-ambitious-spark)
-- [A snowy beard equals a happy dog ❄️](https://news.puppy-snuggles.com/110588736/a-snowy-beard-equals-a-happy-dog)
-- [Show me your sleeping dogs](https://news.puppy-snuggles.com/95317296/show-me-your-sleeping-dogs)
+- [Golden Retriever in a Laundry Basket](https://news.puppy-snuggles.com/145095637/golden-retriever-in-a-laundry-basket)
+- [Happpyyyyyyyy&lpar;her name&amp;#039;s Kyubi&rpar;](https://news.puppy-snuggles.com/145025828/happpyyyyyyyyher-names-kyubi)
+- [I finally managed to get a picture of my dog Selene’s doofus face. Show me your dog’s doofus faces!](https://news.puppy-snuggles.com/144951475/i-finally-managed-to-get-a-picture-of-my-dog-selenes-doofus-face-show-me-your-dogs-doofus-faces)
+- [My family ❤️](https://news.puppy-snuggles.com/144776640/my-family)
+- [Boba Fett passed away yesterday](https://news.puppy-snuggles.com/144776639/boba-fett-passed-away-yesterday)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
