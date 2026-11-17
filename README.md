@@ -38,11 +38,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## My Last Five Blog Posts
 
 <!-- JOEHXBLOG:START -->
+- [It&#39;s All Metaphors](https://www.joehxblog.com/its-all-metaphors/)
 - [Will Our Kids&#39; 529 Be Enough?](https://www.joehxblog.com/will-our-kids-529-be-enough/)
 - [De Optimization Techniques](https://www.joehxblog.com/de-optimization-techniques/)
 - [Asking ChatGPT a Legal Question](https://www.joehxblog.com/asking-chatgpt-a-legal-question/)
 - [Using Linear Regression to Analyze My Electric Bill](https://www.joehxblog.com/using-linear-regression-to-analyze-my-electric-bill/)
-- [MET Values for each Exercise in MapMyFitness](https://www.joehxblog.com/met-values-for-each-exercise-in-mapmyfitness/)
 <!-- JOEHXBLOG:END -->
 
 ## The Last Five Blog Posts on [Joe 4 Huber Heights](https://www.joe4huberheights.com/)
