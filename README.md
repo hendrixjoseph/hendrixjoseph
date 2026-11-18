@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Golden Retriever in a Laundry Basket](https://news.puppy-snuggles.com/145095637/golden-retriever-in-a-laundry-basket)
-- [Happpyyyyyyyy&lpar;her name&amp;#039;s Kyubi&rpar;](https://news.puppy-snuggles.com/145025828/happpyyyyyyyyher-names-kyubi)
-- [I finally managed to get a picture of my dog Selene’s doofus face. Show me your dog’s doofus faces!](https://news.puppy-snuggles.com/144951475/i-finally-managed-to-get-a-picture-of-my-dog-selenes-doofus-face-show-me-your-dogs-doofus-faces)
-- [My family ❤️](https://news.puppy-snuggles.com/144776640/my-family)
-- [Boba Fett passed away yesterday](https://news.puppy-snuggles.com/144776639/boba-fett-passed-away-yesterday)
+- [Nap time, mommy.](https://news.puppy-snuggles.com/135438631/nap-time-mommy)
+- [Human, why’d you stop scratchin’?!](https://news.puppy-snuggles.com/134944600/human-whyd-you-stop-scratchin)
+- [My 18 year old dog!](https://news.puppy-snuggles.com/126810428/my-18-year-old-dog)
+- [My main man Lando](https://news.puppy-snuggles.com/122156496/my-main-man-lando)
+- [Does the name Junie fit her? Name suggestions ending in “ee” sound? ie or y](https://news.puppy-snuggles.com/119346215/does-the-name-junie-fit-her-name-suggestions-ending-in-ee-sound-ie-or-y)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
