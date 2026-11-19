@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Nap time, mommy.](https://news.puppy-snuggles.com/135438631/nap-time-mommy)
-- [Human, why’d you stop scratchin’?!](https://news.puppy-snuggles.com/134944600/human-whyd-you-stop-scratchin)
-- [My 18 year old dog!](https://news.puppy-snuggles.com/126810428/my-18-year-old-dog)
-- [My main man Lando](https://news.puppy-snuggles.com/122156496/my-main-man-lando)
-- [Does the name Junie fit her? Name suggestions ending in “ee” sound? ie or y](https://news.puppy-snuggles.com/119346215/does-the-name-junie-fit-her-name-suggestions-ending-in-ee-sound-ie-or-y)
+- [Whatever. He’s adorable.](https://news.puppy-snuggles.com/144041176/whatever-hes-adorable)
+- [Peanut showing off his haircut!](https://news.puppy-snuggles.com/137733483/peanut-showing-off-his-haircut)
+- [My little ones](https://news.puppy-snuggles.com/131721278/my-little-ones)
+- [I catch them having secret meetings](https://news.puppy-snuggles.com/130488075/i-catch-them-having-secret-meetings)
+- [She won‘t go on a walk without her emotional support corn cob](https://news.puppy-snuggles.com/129744562/she-wont-go-on-a-walk-without-her-emotional-support-corn-cob)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
