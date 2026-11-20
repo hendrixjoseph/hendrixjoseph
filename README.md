@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Whatever. He’s adorable.](https://news.puppy-snuggles.com/144041176/whatever-hes-adorable)
-- [Peanut showing off his haircut!](https://news.puppy-snuggles.com/137733483/peanut-showing-off-his-haircut)
-- [My little ones](https://news.puppy-snuggles.com/131721278/my-little-ones)
-- [I catch them having secret meetings](https://news.puppy-snuggles.com/130488075/i-catch-them-having-secret-meetings)
-- [She won‘t go on a walk without her emotional support corn cob](https://news.puppy-snuggles.com/129744562/she-wont-go-on-a-walk-without-her-emotional-support-corn-cob)
+- [My Sammy boy passed this weekend](https://news.puppy-snuggles.com/142462186/my-sammy-boy-passed-this-weekend)
+- [Zoey is 15. We get out to do exciting things all the time.](https://news.puppy-snuggles.com/142384230/zoey-is-15-we-get-out-to-do-exciting-things-all-the-time)
+- [Had to put our sweet Eli down yesterday](https://news.puppy-snuggles.com/142304097/had-to-put-our-sweet-eli-down-yesterday)
+- [Crick said Goodbye to everyone this morning. ❤️](https://news.puppy-snuggles.com/142266366/crick-said-goodbye-to-everyone-this-morning)
+- [Unfortunately I just found out the dog I’ve grown up watching, Tucker, had passed away](https://news.puppy-snuggles.com/142189997/unfortunately-i-just-found-out-the-dog-ive-grown-up-watching-tucker-had-passed-away)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
