@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My Sammy boy passed this weekend](https://news.puppy-snuggles.com/142462186/my-sammy-boy-passed-this-weekend)
-- [Zoey is 15. We get out to do exciting things all the time.](https://news.puppy-snuggles.com/142384230/zoey-is-15-we-get-out-to-do-exciting-things-all-the-time)
-- [Had to put our sweet Eli down yesterday](https://news.puppy-snuggles.com/142304097/had-to-put-our-sweet-eli-down-yesterday)
-- [Crick said Goodbye to everyone this morning. ❤️](https://news.puppy-snuggles.com/142266366/crick-said-goodbye-to-everyone-this-morning)
-- [Unfortunately I just found out the dog I’ve grown up watching, Tucker, had passed away](https://news.puppy-snuggles.com/142189997/unfortunately-i-just-found-out-the-dog-ive-grown-up-watching-tucker-had-passed-away)
+- [So, we have this dope window film. What yall think of Whibley in the light?](https://news.puppy-snuggles.com/140517629/so-we-have-this-dope-window-film-what-yall-think-of-whibley-in-the-light)
+- [Not only a good girl so attentive](https://news.puppy-snuggles.com/135284401/not-only-a-good-girl-so-attentive)
+- [Happy 9th gotcha day my fabulous Presley](https://news.puppy-snuggles.com/130181756/happy-9th-gotcha-day-my-fabulous-presley)
+- [No bed, no blanket, just each other ❤️](https://news.puppy-snuggles.com/128976856/no-bed-no-blanket-just-each-other)
+- [My puppy every time I leave](https://news.puppy-snuggles.com/128862658/my-puppy-every-time-i-leave)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
