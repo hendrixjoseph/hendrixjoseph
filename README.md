@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [So, we have this dope window film. What yall think of Whibley in the light?](https://news.puppy-snuggles.com/140517629/so-we-have-this-dope-window-film-what-yall-think-of-whibley-in-the-light)
-- [Not only a good girl so attentive](https://news.puppy-snuggles.com/135284401/not-only-a-good-girl-so-attentive)
-- [Happy 9th gotcha day my fabulous Presley](https://news.puppy-snuggles.com/130181756/happy-9th-gotcha-day-my-fabulous-presley)
-- [No bed, no blanket, just each other ❤️](https://news.puppy-snuggles.com/128976856/no-bed-no-blanket-just-each-other)
-- [My puppy every time I leave](https://news.puppy-snuggles.com/128862658/my-puppy-every-time-i-leave)
+- [Ears! That is all](https://news.puppy-snuggles.com/126366476/ears-that-is-all)
+- [Shep had surgery](https://news.puppy-snuggles.com/116247150/shep-had-surgery)
+- [I Love You Whiting RIP 2009-2026](https://news.puppy-snuggles.com/111891785/i-love-you-whiting-rip-2009-2026)
+- [Novo is home from her cancer surgery!](https://news.puppy-snuggles.com/110939697/novo-is-home-from-her-cancer-surgery)
+- [Dog did this. Might die of cuteness](https://news.puppy-snuggles.com/108280195/dog-did-this-might-die-of-cuteness)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
