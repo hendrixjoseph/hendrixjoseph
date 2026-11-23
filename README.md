@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Ears! That is all](https://news.puppy-snuggles.com/126366476/ears-that-is-all)
-- [Shep had surgery](https://news.puppy-snuggles.com/116247150/shep-had-surgery)
-- [I Love You Whiting RIP 2009-2026](https://news.puppy-snuggles.com/111891785/i-love-you-whiting-rip-2009-2026)
-- [Novo is home from her cancer surgery!](https://news.puppy-snuggles.com/110939697/novo-is-home-from-her-cancer-surgery)
-- [Dog did this. Might die of cuteness](https://news.puppy-snuggles.com/108280195/dog-did-this-might-die-of-cuteness)
+- [My sweet boopable noot](https://news.puppy-snuggles.com/143930147/my-sweet-boopable-noot)
+- [Meet my gentle bear Chester!](https://news.puppy-snuggles.com/135637252/meet-my-gentle-bear-chester)
+- [When your rescue, rescues you ❤️](https://news.puppy-snuggles.com/133818012/when-your-rescue-rescues-you)
+- [My Girl&amp;#039;s Disney Face 🥰](https://news.puppy-snuggles.com/132508002/my-girls-disney-face)
+- [Pancake and Yukalai](https://news.puppy-snuggles.com/130888171/pancake-and-yukalai)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
