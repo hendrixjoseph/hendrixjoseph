@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [My sweet boopable noot](https://news.puppy-snuggles.com/143930147/my-sweet-boopable-noot)
-- [Meet my gentle bear Chester!](https://news.puppy-snuggles.com/135637252/meet-my-gentle-bear-chester)
-- [When your rescue, rescues you ❤️](https://news.puppy-snuggles.com/133818012/when-your-rescue-rescues-you)
-- [My Girl&amp;#039;s Disney Face 🥰](https://news.puppy-snuggles.com/132508002/my-girls-disney-face)
-- [Pancake and Yukalai](https://news.puppy-snuggles.com/130888171/pancake-and-yukalai)
+- [like mom, like pup🥹 those matching smiles are everything](https://news.puppy-snuggles.com/131513658/like-mom-like-pup-those-matching-smiles-are-everything)
+- [My boy Mocha has a resting &amp;quot;I am concerned&amp;quot; face](https://news.puppy-snuggles.com/130728192/my-boy-mocha-has-a-resting-i-am-concerned-face)
+- [I can’t believe it’s been a year.](https://news.puppy-snuggles.com/128976859/i-cant-believe-its-been-a-year)
+- [It&amp;#039;s been a long 4 year](https://news.puppy-snuggles.com/127240866/its-been-a-long-4-year)
+- [Happy Birthday Charlie!](https://news.puppy-snuggles.com/125540933/happy-birthday-charlie)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
