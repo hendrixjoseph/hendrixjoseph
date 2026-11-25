@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [like mom, like pup🥹 those matching smiles are everything](https://news.puppy-snuggles.com/131513658/like-mom-like-pup-those-matching-smiles-are-everything)
-- [My boy Mocha has a resting &amp;quot;I am concerned&amp;quot; face](https://news.puppy-snuggles.com/130728192/my-boy-mocha-has-a-resting-i-am-concerned-face)
-- [I can’t believe it’s been a year.](https://news.puppy-snuggles.com/128976859/i-cant-believe-its-been-a-year)
-- [It&amp;#039;s been a long 4 year](https://news.puppy-snuggles.com/127240866/its-been-a-long-4-year)
-- [Happy Birthday Charlie!](https://news.puppy-snuggles.com/125540933/happy-birthday-charlie)
+- [What do you all think his breed is?](https://news.puppy-snuggles.com/146012016/what-do-you-all-think-his-breed-is)
+- [Atticus, from my job; he was feeling real sweetie pie on his enrichment walk](https://news.puppy-snuggles.com/144411217/atticus-from-my-job-he-was-feeling-real-sweetie-pie-on-his-enrichment-walk)
+- [May I have a chin scratch, please?](https://news.puppy-snuggles.com/144186975/may-i-have-a-chin-scratch-please)
+- [My grandparents dog](https://news.puppy-snuggles.com/126195510/my-grandparents-dog)
+- [My boyfriend and I just rescued this little guy from an animal shelter](https://news.puppy-snuggles.com/125888732/my-boyfriend-and-i-just-rescued-this-little-guy-from-an-animal-shelter)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
