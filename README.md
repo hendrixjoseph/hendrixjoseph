@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [What do you all think his breed is?](https://news.puppy-snuggles.com/146012016/what-do-you-all-think-his-breed-is)
-- [Atticus, from my job; he was feeling real sweetie pie on his enrichment walk](https://news.puppy-snuggles.com/144411217/atticus-from-my-job-he-was-feeling-real-sweetie-pie-on-his-enrichment-walk)
-- [May I have a chin scratch, please?](https://news.puppy-snuggles.com/144186975/may-i-have-a-chin-scratch-please)
-- [My grandparents dog](https://news.puppy-snuggles.com/126195510/my-grandparents-dog)
-- [My boyfriend and I just rescued this little guy from an animal shelter](https://news.puppy-snuggles.com/125888732/my-boyfriend-and-i-just-rescued-this-little-guy-from-an-animal-shelter)
+- [Just out walking the dog. In New England. In October. It&amp;#039;s kinda nice.](https://news.puppy-snuggles.com/143407838/just-out-walking-the-dog-in-new-england-in-october-its-kinda-nice)
+- [Just wanted to share this adorable picture of bathtime with Ghost 🥰](https://news.puppy-snuggles.com/136120339/just-wanted-to-share-this-adorable-picture-of-bathtime-with-ghost)
+- [Velco dog](https://news.puppy-snuggles.com/134944608/velco-dog)
+- [your dog’s funniest/cutest sleeping poses](https://news.puppy-snuggles.com/122307046/your-dogs-funniestcutest-sleeping-poses)
+- [Our first hair cut! 😜 &lpar;With a smile of course!&rpar;](https://news.puppy-snuggles.com/121713529/our-first-hair-cut-with-a-smile-of-course)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
