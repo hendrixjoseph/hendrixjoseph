@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Just out walking the dog. In New England. In October. It&amp;#039;s kinda nice.](https://news.puppy-snuggles.com/143407838/just-out-walking-the-dog-in-new-england-in-october-its-kinda-nice)
-- [Just wanted to share this adorable picture of bathtime with Ghost 🥰](https://news.puppy-snuggles.com/136120339/just-wanted-to-share-this-adorable-picture-of-bathtime-with-ghost)
-- [Velco dog](https://news.puppy-snuggles.com/134944608/velco-dog)
-- [your dog’s funniest/cutest sleeping poses](https://news.puppy-snuggles.com/122307046/your-dogs-funniestcutest-sleeping-poses)
-- [Our first hair cut! 😜 &lpar;With a smile of course!&rpar;](https://news.puppy-snuggles.com/121713529/our-first-hair-cut-with-a-smile-of-course)
+- [Beef broth soaked peanut butter stuffed frozen carrots. Have I created the ultimate chew/enrichment item for the summer or a mess machine? Only time will tell.](https://news.puppy-snuggles.com/133492468/beef-broth-soaked-peanut-butter-stuffed-frozen-carrots-have-i-created-the-ultimate-chewenrichment-item-for-the-summer-or-a-mess-machine-only-time-will-tell)
+- [My Girl&amp;#039;s Disney Face 🥰](https://news.puppy-snuggles.com/132508002/my-girls-disney-face)
+- [They are very playful by the way.](https://news.puppy-snuggles.com/130930130/they-are-very-playful-by-the-way)
+- [Happy Birthday Jackson 🐾](https://news.puppy-snuggles.com/129786993/happy-birthday-jackson)
+- [Return of the land seal.](https://news.puppy-snuggles.com/128632921/return-of-the-land-seal)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
