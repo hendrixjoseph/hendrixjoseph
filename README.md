@@ -68,11 +68,11 @@ If you want to contact me, the best way is to shoot a message to me via [my Face
 ## The Last Five News Posts on [Puppy Snuggles News](https://news.puppy-snuggles.com/)
 
 <!-- PUPPY-SNUGGLES-NEWS:START -->
-- [Beef broth soaked peanut butter stuffed frozen carrots. Have I created the ultimate chew/enrichment item for the summer or a mess machine? Only time will tell.](https://news.puppy-snuggles.com/133492468/beef-broth-soaked-peanut-butter-stuffed-frozen-carrots-have-i-created-the-ultimate-chewenrichment-item-for-the-summer-or-a-mess-machine-only-time-will-tell)
-- [My Girl&amp;#039;s Disney Face 🥰](https://news.puppy-snuggles.com/132508002/my-girls-disney-face)
-- [They are very playful by the way.](https://news.puppy-snuggles.com/130930130/they-are-very-playful-by-the-way)
-- [Happy Birthday Jackson 🐾](https://news.puppy-snuggles.com/129786993/happy-birthday-jackson)
-- [Return of the land seal.](https://news.puppy-snuggles.com/128632921/return-of-the-land-seal)
+- [The face I chose to remember is never grey.](https://news.puppy-snuggles.com/144003986/the-face-i-chose-to-remember-is-never-grey)
+- [One of the happiest dogs I’ve ever had! Maggie, 2yrs](https://news.puppy-snuggles.com/132677942/one-of-the-happiest-dogs-ive-ever-had-maggie-2yrs)
+- [I never dreamt I&amp;#039;d grow up to be a professional animal collector, but here I am...killing it!](https://news.puppy-snuggles.com/129786996/i-never-dreamt-id-grow-up-to-be-a-professional-animal-collector-but-here-i-amkilling-it)
+- [It is such a privilege to have a dog as a friend 🩷](https://news.puppy-snuggles.com/129381065/it-is-such-a-privilege-to-have-a-dog-as-a-friend)
+- [Puppies Sleeping butt to butt](https://news.puppy-snuggles.com/128937229/puppies-sleeping-butt-to-butt)
 <!-- PUPPY-SNUGGLES-NEWS:END -->
 
 ## Reddit
